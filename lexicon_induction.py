@@ -7,9 +7,9 @@ from scipy.spatial import distance
 import gensim.downloader as api
 from gensim.models import KeyedVectors
 from huggingface_hub import hf_hub_download
-model_pretrained_it = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_itwiki_20180420_300d", filename="itwiki_20180420_300d.txt"))
+# model_pretrained_it = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_itwiki_20180420_300d", filename="itwiki_20180420_300d.txt"))
 
-model_pretrained_en = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_enwiki_20180420_300d", filename="enwiki_20180420_300d.txt"))
+# model_pretrained_en = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_enwiki_20180420_300d", filename="enwiki_20180420_300d.txt"))
 def detect_encoding(file_path):
     with open(file_path, 'rb') as file:
         rawdata = file.read()
@@ -39,6 +39,7 @@ def get_W2V_words_from_corpus(file_path_corpus):
 
 def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
+        f_out.write(f"{len(words_en)} 300\n")
         f_out.write(f"{len(words_en)} 300\n")
         # load pre-trained word embeddings model:
         for word_en in words_en:
@@ -117,20 +118,20 @@ if __name__ == "__main__":
 
     print("--------------------- Preprocessing du corpus de texte source -------------------------\n")
     # preprocessing source corpus
-    preprocess_text(args.source_corpus, clean_corpus_source_path)
+    # preprocess_text(args.source_corpus, clean_corpus_source_path)
 
     print("--------------------- Preprocessing du corpus de texte Cible -------------------------\n")
 
     # preprocessing target corpus
-    preprocess_text(args.target_corpus, clean_corpus_target_path)
+    # preprocess_text(args.target_corpus, clean_corpus_target_path)
 
-    print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
+    # print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
     source_output_path = "source_embeddings"
     # generate_word_embeddings(clean_corpus_source_path, source_output_path)
-    words_it = get_W2V_words_from_corpus(clean_corpus_source_path)
-    words_en = get_W2V_words_from_corpus(clean_corpus_target_path)
-    generate_pretrained_w2v_it_en(words_it, words_en)
-    print("--------------------- Génération des embeddings monolingue pour le corpus target -------------------------\n")
+    # words_it = get_W2V_words_from_corpus(clean_corpus_source_path)
+    # words_en = get_W2V_words_from_corpus(clean_corpus_target_path)
+    # generate_pretrained_w2v_it_en(words_it, words_en)
+    # print("--------------------- Génération des embeddings monolingue pour le corpus target -------------------------\n")
     target_output_path = "target_embeddings"
     # generate_word_embeddings(clean_corpus_target_path, target_output_path)
 
