@@ -27,10 +27,6 @@ def read(file, threshold=0, vocabulary=None, dtype='float'):
     words = []
     matrix = np.empty((count, dim), dtype=dtype) if vocabulary is None else []
     for i in range(count):
-        print("les lignes numero i qui font probleme; ", i)
-        word, vec = file.readline().split(' ', 1)
-        print("word: ", word)
-        print("vec: ", vec)
         if vocabulary is None:
             words.append(word)
             matrix[i] = np.fromstring(vec, sep=' ', dtype=dtype)
