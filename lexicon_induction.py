@@ -35,6 +35,7 @@ def generate_crossLingual_map_embeddings(src_emb, trg_emb, src_mapped_emb, trg_m
 def load_embeddings(file_path):
     embeddings = {}
     with open(file_path, 'r', encoding='utf-8') as file:
+        next(line)
         for line in file:
             parts = line.strip().split()
             word = parts[0]
