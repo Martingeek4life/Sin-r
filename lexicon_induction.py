@@ -105,5 +105,7 @@ if __name__ == "__main__":
     generate_crossLingual_map_embeddings(source_output_path+ext , target_output_path+ext, source_cross_path, target_cross_path)
 
     print("--------------------- Induction de lexique  -------------------------\n")
-    Dictionnary = generate_dictionary(source_cross_path, target_cross_path)
+    source = load_embeddings(source_cross_path)
+    target = load_embeddings(target_cross_path)
+    Dictionnary = generate_dictionary(source, target)
     write_dictionary_to_file(Dictionnary, "Dico_IT-EN.txt")
