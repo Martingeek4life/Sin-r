@@ -1,0 +1,73 @@
+Adoption du procès - verbal 
+Le procès - verbal de la séance d ' hier a été distribué . 
+Y a - t - il des observations ? 
+Madame le Président , c ' est presque sur le procès - verbal . 
+Hier soir , à la fête des asperges à laquelle nous avons été aimablement conviés comme tous les ans , nous n ' avons pas eu droit , pour la première fois depuis de longues années , aux discours officiels , du président Hänsch notamment . 
+Il est vrai que , dans notre Parlement , depuis le début de la présidence Hänsch , on fait l ' économie des discours , notamment au moment des explications de vote , mais enfin je voulais savoir si cela s ' étendait également à la fête des asperges . 
+Eh bien , je voudrais annoncer à mes collègues européens que M. Borghezio de la Lega Nord , député national , a réclamé que la police italienne tire des balles de caoutchouc sur les citoyens indésirables . 
+Quant à M. Boso , de la Lega Nord toujours , il a maintes fois déclaré à la presse et au Parlement , qu ' il fallait prendre les empreintes des pieds des citoyens indésirables . Il s ' agit là de manifestations racistes , exemptes de toute dignité idéologique , pleines d ' ignorance et de stupidité . 
+Elimination des PCB / PCT 
+Protection des intérêts financiers 
+
+
+
+Monsieur le Président , mes chers collègues , je voudrais moi aussi féliciter M. Bontempi et Mme Theato pour la qualité du travail accompli . 
+Eh bien , à mon avis , il ne s ' agit pas de diaboliser ceci ou cela ; il importe certes de stimuler directement et indirectement les États membres pour que ceuxci agissent sur le plan de la répression , mais il importe surtout d ' agir sur le plan de la prévention . 
+Il est juste de dire qu ' une directive communautaire doit être faite , car le système actue. convention plus protocole. est insuffisant . Une meilleure protection juridictionnelle est nécessaire et , surtout , une meilleure définition des délits : la responsabilisation des États membres passe par la transparence . 
+Votes 
+Monsieur le Président , il s ' agit d ' une question très sérieuse . Nous n ' avons malheureusement pas de pouvoir de codécision dans ce domaine et sommes , malgré nous , forcés soit d ' accepter , soit de rejeter la position commune . 
+Nous avons eu un débat , la nuit dernière , sur cette question . Nous avons entendu la Commission promettre qu ' elle chercherait à amender certaines parties de la position commune , essentiellement en ce qui concerne l ' article 3, qui constitue une importante dérogation . 
+J ' aimerais à présent poser la question suivante : la Commission a - t - elle finalement un autre point de vue à ce sujet et , plus précisément , peut - elle nous donner l ' assurance que le Conseil apportera des modifications ? Est - elle en quoi que ce soit mandatée par le Conseil pour apporter un changement quelconque à cette position commune ? 
+Monsieur le Président , puis - je en déduire que malgré le vote qui vient d ' avoir lieu et dont j ' ai été très étonné , la version allemande sera corrigée de telle sorte que la traduction du terme « free to air » n ' apparaisse pas dans la version allemande ? 
+Prix des produits agricoles 
+Monsieur le Président , mes chers collègues , je crois ne surprendre personne en disant que la commission des budgets se félicite , tout d ' abord , de la collaboration étroite qu ' elle entretient avec la commission de l ' agriculture pour garantir la cohérence de la position du Parlement européen . 
+Je n ' insisterai donc que sur quelques points . Tout d ' abord , l ' identification et l ' individualisation du coût agrimonétaire dans l ' évolution des dépenses de chaque OCM , dont nous souhaitons qu ' elles soient s ' accompagnées de l ' évaluation détaillée de toutes les implications des décisions agrimonétaires ainsi que de leur incidence financière sur le budget de l ' Union . 
+
+Nous pensons également que pour les rubriques 3, 4 et 5, la ligne directrice agricole et les plafonds des rubriques ne représentent pas des objectifs de dépenses , et nous considérons donc , de ce fait , que l ' éventuelle marge en dessous de la ligne directrice agricole qui puisse être estimée maintenant pour 1996 ne doit pas être envisagée comme une incitation à la prise de décisions ayant comme conséquence l ' augmentation du besoin de crédits . 
+C ' est la raison pour laquelle nous faisons deux propositions qui nous paraissent importantes . Tout d ' abord , que la Commission chiffre le coût de chaque amendement adopté par la commission de l ' agriculture , et ensuite naturellement , que les mêmes dispositifs , pour les amendements supplémentaires déposés en séance plénière , soient appliqués . 
+
+Monsieur le Président , monsieur le président en exercice du Conseil , monsieur le commissaire , Mesdames et Messieurs les députés , mes collègues ont déjà signalé , en tout ou partie , tous et chacun des aspects concrets relatifs au paquet de prix et au magnifique rapport de M. Santini que je félicite . 
+Mais il s ' agit du court terme . Il s ' agit d ' un an . 
+Et je ne voudrais pas que les arbres nous empêchent de voir la forêt . 
+Je parlerai , comme vient de le dire le président en exercice du Conseil , M. Pinto , dans un moment de réflexion , de quelques questions globales en rappelant ici des questions en suspens avec le Parlement . Ainsi , par exemple , le 15 février 1996, le Parlement approuvait une résolution sur les perspectives de la PAC dans laquelle on insistait sur la nécessité , pour le Conseil et la Commission , d ' achever à court terme la réforme entreprise en 1992 en abordant les secteurs en suspens de la PA. vin , fruits et légumes et huil. dans le respect des accords du Conseil « Jumbo » de septembre 1993 . 
+La Commission devait présenter un bilan global de cette réform. celle de 199. et procéder à une évaluation détaillée de la répercussion des obligations découlant des accords de l ' Uruguay Round de même que des accords avec des pays tiers . Nous n ' avons toujours pas de réponse . 
+Le Conseil d ' Edimbourg de 1992 avait signalé que les accords adoptés alors quant à la non - modification de la base de référence et à l ' indice d ' augmentation de la ligne directrice agricole devraient être révisés en 1996 . Jusqu ' à présent , les dépenses agrimonétaires sont inférieures à la ligne directrice et , dans cette proposition dont nous sommes saisis maintenant , elle est réduite d ' environ 700 millions d ' écus par rapport à la limite maximale fixée pour cette ligne directrice . 
+En conséquence , nous devons nous demander s ' il ne faudrait pas effectuer des transferts de crédits aux dépenses agricoles non couvertes par la rubrique 1 ni par cette ligne directrice et éviter ainsi les opérations de maquillage qu ' implique l ' augmentation de cette ligne pour engloutir d ' autres paiements et dépenses . 
+Dans cet ordre de choses , mes questions seraient : quand vont s ' achever les réformes en suspens ? 
+Que pense faire la Commission pour informer ce Parlement de la date et de l ' heure de ces évaluations ? Pense - t - elle modifier la ligne directrice ? 
+Et si c ' est le cas , sur la base de quels critères ? Tout ceci est urgent au moment où nous sommes saisis de cette réforme et de l ' intégration des PECO . 
+Monsieur le Président , j ' aimerais commencer par faire écho aux propos de mes collègues en félicitant M. Santini pour son excellent travail qui est malheureusement occulté aujourd ' hui par la crise de l ' ESB et son impact sur les revenus des exploitations agricoles . 
+Je regrette profondément la décision prise par le gouvernement britannique de s ' engager dans une politique active de non coopération avec l ' Union européenne . La Grande - Bretagne doit admettre que l ' Union européenne assume une responsabilité dans la protection de ses consommateurs et de son secteur de la viande bovine . 
+Je me réjouis des propositions de la Commission visant à modifier la prime à la désaisonnalisation . 
+C ' est un pas dans la bonne direction . Ces propositions ne vont cependant pas assez loin et je voudrais exhorter la Commission à accepter les suggestions visant à améliorer ce système qui figure parmi les amendements du Parlement . 
+Je voudrais également exhorter la Commission à résister à une suggestion formulée par certaines délégations nationales au Parlement et visant à promouvoir une prime unique pour le bétail . Dans de nombreuses contrées de l ' Union européenne , les pratiques agricoles traditionnelles font que les fermiers sont nombreux à contribuer à l ' élevage des mêmes animaux . 
+Il est donc important de répartir la prime sur l ' ensemble du secteur de production . 
+Monsieur le Président , la position du groupe des verts sur l ' ensemble du paquet prix agricole a été exprimée par le collègue M. Graefe zu Baringdorf . Je me bornerai donc à traiter le problème des viandes et , en particulier , celui de la subvention aux taureaux de corrida . 
+Je veux ici souligner le fait que de très nombreux citoyens européens auraient beaucoup de mal à comprendre pourquoi , avec leur argent , avec l ' argent du contribuable européen , nous subventionnons une activité qui est considérée comme barbare , inacceptable et interdite dans la plupart des pays de l ' Europe . 
+Si nous considérons qu ' en Italie , mais aussi en Angleterre sûrement , les corridas sont interdites , il est incroyable que l ' on puisse subventionner ces spectacles dans d ' autres pays . 
+La Commission avait cependant promis que ce financement scandaleux aurait cessé . Cela avait été garanti à deux reprises : lors d ' une réunion de la commission pour les pétitions et en réponse à une question du collègue M. Otto von Habsbourg . 
+Je me demande si la Commission n ' a pas donné suite à cette initiative de bloquer le financement aux taureaux de corrida parce qu ' elle a eu des obstacle. et , alors , de la part de qu. et si le Conseil n ' est pas à même d ' apporter une réponse positive pour mettre un terme à cette situation . 
+Monsieur le Président , je vais parler d ' une question que peu de gens ont mentionnée , je croi. le commissaire en a parlé - : le secteur du coton . Je vais demander le soutien pour les amendements proposés à cette Assemblée . 
+En premier lieu , je pense qu ' il est important , contrairement à ce que pense la Commission , de maintenir le système de préfixation et de postfixation de l ' aide si nous voulons qu ' elle continue à remplir sa fonction compensatoire . Mais , outre les arguments de la Commission , celui de la distorsion de la concurrence entre opérateurs et celui de la simplification du régime , sont réfutables . 
+Le premier parce qu ' un système qui est à la portée de tous dans des conditions d ' égalité et dont l ' utilisation est , de plus , facultative ne peut entraîner de distorsion . Et deuxièmement parce qu ' une simplification de type administratif pour les services de la Commission ne peut justifier , monsieur le commissaire , le grave préjudice économique qu ' elle entraînerait pour les industries d ' égrenage . 
+Quant au calcul de l ' avance de l ' aide dont vous avez parlé , nous sommes d ' accord sur le nouveau système que vous proposez . 
+Là où nous ne sommes pas d ' accord , c ' est sur le pourcentage que vous fixez à 15 % . 
+Car le pourcentage de 8 % que nous proposons nous semble mieux approprié . 
+Et vous me direz « l ' avance sera plus forte » . Mais quel risque court la Commission lorsque vous exigez des producteurs une garantie bancaire de 110 % du montant de l ' avance ? 
+Enfin , je demande l ' appui pour l ' amendement no 57 que j ' ai présenté avec d ' autres collègues en vue de la modification du paragraphe 3 b ) de l ' article 6 du règlement 1554 relatif au calcul du dépassement du chiffre national garanti en ce sens , monsieur le commissaire , que nous estimons que le prix objectif applicable à un État membre ne doit être réduit qu ' à partir du moment où le chiffre maximal garanti dans la Communauté est dépassé . 
+
+
+Ce qui signifie que l ' État membre dépassant son chiffre national garanti devra bénéficier intégralement de l ' éventuelle sous - utilisation du chiffre national garanti d ' un autre État membre , ce qui n ' est pas le cas pour le moment dans le règlement . 
+C ' est pourquoi je demande qu ' on appuie l ' amendement no 57 . 
+Heure des questions ( Conseil ) 
+Certes , rien ne prouve que le fait de voir des deux yeux comporte une conduite meilleure que si l ' on ne voit que d ' un oeil : il est simplement prouvé que celui qui voit d ' un seul oeil court plus de risques de celui qui conduit en voyant des deux yeux . 
+
+Monsieur le Président en exercice du Conseil , votre réponse me pousse à poser une question complémentaire , de portée plus générale et qui procède de l ' objet discuté . 
+Vous avez invoqué , à juste titre , un problème de compétence . Mais ne pensez - vous pas que les violations du droit international ne doivent pas intéresser uniquement ceux qui ont une compétence juridique directe , mais aussi tous ceux qui sont impliqués dans la vie internationale ? 
+En d ' autres termes , en ce qui concerne la protection de l ' ordre juridique international , ne pensez - vous pas , Monsieur le Président en exercice du Conseil , qu ' il faudrait changer un peu cette mentalité qui consiste à raisonner par compétences , et que nous devrions veiller tous , et en particulier une institution comme la vôtre , à devenir les garants de l ' ordre juridique international ? 
+
+
+Je m ' autorise à poser cette question , comme je l ' ai dit , à la lumière de la réponse que vous avez fournie . 
+Il est vrai que la violation d ' un droit touche tous les citoyens . 
+Personne ne peut se cacher derrière des évaluations d ' ordre juridique ou technique pour ne pas voir la violation du droit . Il est tout aussi vrai , cependant , que la violation du droit rappelle d ' un côté à des responsabilités bien précises de celui qui le viole et de l ' autre à des organes juridictionnels tout aussi précis qu ' il faut inviter à intervenir pour reconstruire le droit violé . 
+Telle est la question qui m ' a été posée , je crois . J ' y réponds en disant que la Présidence du Consei. consciente non seulement du fait qu ' il existe , en termes de principe , une violation du droit de navigation aérienne , mais que la violation de ce droit peut déterminer concrètement une sécurité moindre des citoyens qui sont transporté. peut recommander à la Commission une intervention et une action à l ' égard des compagnies aériennes dans les limites du droit de navigation en vigueur , pour inviter tous les sujets oeuvrant dans ce secteur à respecter pleinement les règles qui garantissent une sécurité plus grande des citoyens . 

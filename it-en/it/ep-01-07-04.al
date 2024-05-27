@@ -1,0 +1,3541 @@
+Signora Presidente , nel mese di agosto , com ' è noto , il nostro Parlamento non si riunirà . 
+Io desidero quindi , oggi , ricordare che il prossimo 8 agosto ricorre un anniversario tragico : il 45 º anniversario della grave sciagura avvenuta nelle miniere di Marcinelle . 
+L ' 8 agosto 1956 morirono 262 minatori , la più grave tragedia sul lavoro occorsa in Europa : 262 minatori provenienti da moltissimi paesi del nostro continente . 
+Io sono certo , gentile Presidente , che lei vorrà adottare le adeguate iniziative per ricordare questa tragica ricorrenza , e sono certo anche che la Presidenza belga , che ha annunciato nel suo programma la creazione di un ' Europa sociale giusta , si prodigherà perché questa stessa proposta possa determinare le condizioni per cui in Europa non debba mai più ripetersi una tragedia come quella di Marcinelle . 
+La ringrazio , onorevole Cossutta . 
+Signora Presidente , ho appreso ieri che l ' Ufficio di Presidenza oggi si dovrebbe pronunciare su una comunicazione che l ' Assemblea sta preparando sull ' ampliamento . 
+Signora Presidente , lei possiede una grande sensibilità per le lingue e più di chiunque altro è consapevole del fatto che la scelta del regime linguistico è determinante per molte altre decisioni che dovranno essere adottate . 
+Può assicurarci che tutti i membri eletti di questa Assemblea manterranno anche in futuro il diritto di esprimersi nella propria lingua , di ascoltare gli onorevoli colleghi nella propria lingua e di scrivere nella propria lingua ? 
+Sarebbe per noi molto rassicurante ricevere una risposta in tal senso . 
+Onorevole Thyssen , ho preso atto della sua dichiarazione . 
+A questo proposito , le preciso che stasera l ' Ufficio di presidenza non approverà il documento di cui lei ha parlato . 
+Lo farà solo a settembre , quando i gruppi avranno potuto studiarlo in modo approfondito . 
+Signora Presidente , vorrei attirare la sua attenzione sui continui e crescenti problemi che i nostri autisti si trovano ad affrontare . 
+Mi è stato detto che questo pomeriggio sarebbe stata consegnata una lettera dell ' avvocato presso il Prefetto dell ' Alsazia per chiarire i punti oscuri dei problemi fra il Ministero degli interni e quello dei trasporti in Francia . Attualmente , infatti , le norme implicherebbero che le autovetture impiegate come tassì nelle altre settimane , non possono esserlo in questa . 
+In considerazione del fatto che la Francia desidera mantenere a Strasburgo la sede del Parlamento , mi pare estremamente deplorevole che formalità di questo genere compromettano il nostro trasporto . 
+Sì , posso risponderle che i questori si stanno occupando della questione . 
+Mi rivolgo in particolare ai questori che sono presenti in Aula e posso confermarle che esamineranno molto scrupolosamente la questione . 
+Programma di attività della Presidenza belga 
+L ' ordine del giorno reca la dichiarazione del Consiglio sul programma di attività della Presidenza belga . 
+Do la parola al Presidente in carica del Consiglio . 
+. Signora Presidente , signor Primo Ministro , onorevoli parlamentari , è per me un grande piacere iniziare il lavoro in comune con la Presidenza belga . 
+Signor Primo Ministro , il vostro lavoro si colloca in un periodo particolarmente delicato . 
+Siamo entrati nell ' ultima fase dei preparativi per l ' introduzione delle banconote e delle monete in euro , l ' espressione più concreta mai raggiunta dalla realtà europea . 
+Il Belgio sa che può contare sulla collaborazione della Commissione e delle Istituzioni europee perché questo evento , che è giusto definire storico , sia un grande successo . 
+Stiamo inoltre procedendo con determinazione verso l ' allargamento dell ' Unione , come lei , signor Primo Ministro , ha detto qualche minuto fa . 
+I negoziati per l ' adesione hanno raggiunto un punto molto delicato , che vede attualmente in discussione i capitoli più complessi . 
+Nel frattempo , e proprio per preparare l ' Unione all ' allargamento , gli Stati membri stanno ratificando il Trattato di Nizza . 
+Il referendum recentemente svoltosi nella Repubblica d ' Irlanda ci ha , però , ricordato che la ratifica non è una conclusione scontata . 
+Ma su questo ci fermeremo con più attenzione in seguito . 
+Signor Primo Ministro , signora Presidente , al Vertice di Laeken riesamineremo i progressi fatti dall ' Unione nell ' attuazione della sua agenda sociale . 
+Una sua realizzazione concreta e senza soste è essenziale se vogliamo riuscire , nel corso di questo decennio , a render davvero dinamica e competitiva l ' economia europea e , al tempo stesso , a garantire che il nostro modello sociale rimanga ancorato ai principi di giustizia e di sostenibilità . 
+Concordo con l ' accento particolare posto dalla nuova Presidenza non solo sull ' indispensabile ricerca della piena occupazione ma anche sull ' altrettanto indispensabile miglioramento della qualità del lavoro . 
+Modernizzare i sistemi pensionistici e previdenziali è , anch ' esso , un ' importante parte della nostra agenda sociale . 
+La Commissione ha approvato , ieri , una comunicazione nella quale propone una strategia integrata a livello europeo , con l ' obiettivo di affrontare una delle sfide più importanti della società contemporanea . 
+Siamo anche impegnati nella lotta contro la povertà e l ' esclusione sociale . 
+Mi fa piacere quindi vedere il governo belga , nella sua funzione di Presidenza , impegnato in queste direzioni . 
+Condivido in particolare la preoccupazione di fondo dalla quale scaturisce tale impegno : in Europa , il divario tra ricchi e poveri si sta aprendo ad un ritmo allarmante . 
+E ' nostro dovere arrestare questa tendenza . 
+Rimanendo ancorati a politiche economiche e sociali immutate si mette in pericolo proprio il valore fondamentale sul quale si basa il modello sociale europeo , vale a dire la solidarietà . 
+Il precipitare verso una società sempre più divisa si osserva non solo in Europa ma anche su scala molto più vasta , nei confronti di un intero continente , quello african. a cui lei , signor Primo Ministro , ha alluso in modo significativo nel suo discors. che ha perso i contatti anche con le nazioni in via di sviluppo . 
+Dovremo fare tutto il possibile per fermare questo modello ingiusto di sviluppo e per dar voce e diritti a chi non ha né voce né diritti . 
+Onorevoli parlamentari , signor Primo Ministro , il Vertice e le Dichiarazioni di Laeken hanno un ' importanza cruciale anche per un ' altra ragione . 
+Laeken deve decidere come dovremo strutturare la seconda fase del dibattito sul futuro dell ' Europa . 
+Si tratta di un dibattito fondamentale e gravido di conseguenze . 
+Sono particolarmente lieto che esso , a differenza di quanto avveniva sei mesi fa , sia ampiamente presente in tutti i mezzi di comunicazione . 
+Finalmente i nostri concittadini , insieme ai loro governanti , cominciano ad accorgersi di quanto questi problemi siano importanti per il loro futuro . 
+Signor Primo Ministro , lei ha recentemente dichiarato , in un discorso pubblico , che " l ' Unione si è trasformata in un garbuglio di istituzioni e di strumenti " . 
+Io ho il poco invidiabile privilegio di condividere la stessa preoccupazione . 
+Se l ' analisi è scontata , i rimedi devono ora essere proposti e discussi apertamente e liberamente . 
+Nessuno deve più pensare di poter risolvere queste questioni a porte chiuse . 
+A mio parere , l ' unico modo per riformare le Istituzioni in maniera accettabile è quello di dar vita a Laeken ad una convenzione . 
+I capi di Stato hanno parlato anche di foru. io , personalmente , preferisco la parola convenzione -- 
+che riunisca in forma paritaria rappresentanti dei governi degli Stati membri e dei paesi candidat. ripeto , anche dei paesi candidat. rappresentanti dei parlamenti nazionali , del Parlamento europeo e della Commissione . 
+Questa convenzione è il luogo per raggiungere le soluzioni più adatte a rispondere ai più gravi problemi europei . 
+Onorevoli parlamentari , non solo il futuro dell ' Europa dev ' essere fermamente nelle mani dei suoi cittadini , ma essi ne debbono capire i necessari cambiamenti . 
+Il " no " irlandese a Nizza ci dice chiaramente , tra le altre cose , che dobbiamo colmare il divario apertosi tra Istituzioni e cittadini . 
+Gli europei vogliono un ' Unione che risponda alle loro nuove richieste , che vanno ben al di là di un ' integrazione economica del continente , ormai largamente acquisita . 
+Vogliono un ' Unione chiara e comprensibil. e questo significa che dobbiamo semplificare le nostre procedure e i nostri trattat. in cui le competenze delle Istituzioni siano ben identificate e le decisioni siano prese a livello adeguato . 
+Vogliono un ' Unione che assicuri qualità della vita e il tipo di società che desiderano . 
+Vogliono un ' Unione che renda loro chiaramente conto dei risultati delle nostre politiche e del corretto impiego delle risorse . 
+Le loro richieste di un maggior controllo democratico nella vita delle Istituzioni dell ' Unione sono pienamente giustificate . 
+La Convenzione dovrà affrontare anche questo aspetto . 
+La Dichiarazione di Laeken deve pertanto contenere un ordine del giorno ambizioso ed esauriente per questa Convenzione , determinandone il metodo di lavoro e le scadenze . 
+Signore e signori , la posizione da me recentemente assunta a proposito del Trattato di Nizza e del referendum irlandese ha destato qualche inquietudine , anche all ' interno di questa Assemblea . 
+Sin dall ' inizio del mio mandato , ho sempre attribuito la massima importanza alle relazioni politiche e istituzionali fra Commissione e Parlamento . 
+Sono infatti convinto che esse debbano basarsi su uno spirito di cooperazione e di franchezza . 
+Permettetemi quindi di concludere spendendo ancora qualche parola sulla ratifica del Trattato di Nizza . 
+Un ' Unione di 25 o più Stati membri non può funzionare con le sue strutture attuali e con gli attuali metodi decisionali . 
+E ' per questo che , per il progetto che l ' attuale Commissione tiene come priorità assoluta , cioè l ' allargamento dell ' Unione , ho sempre sostenuto che dobbiamo introdurre , come minimo , i cambiamenti istituzionali tanto faticosamente e laboriosamente concordati a Nizza . 
+E ' infatti necessario ricordare che il problema dell ' allargamento non è solo una questione interna all ' Europa . Noi giochiamo in questa decisione il nostro ruolo di riferimento ideale e politico per tanta parte del mondo . 
+I paesi candidati , da parte loro , stanno facendo un grande sforz. uno sforzo senza precedent. per poter entrare a far parte dell ' Unione . 
+L ' Unione dev ' essere perciò in grado di accogliere bene i nuovi membri . 
+Questo significa rivedere il nostro sistema istituzionale e il nostro processo decisionale . 
+E ' per questo ch. sebbene inferiore alle aspettativ. il Trattato di Nizza è necessario per l ' allargamento . 
+Per questo motivo ribadisc. come ho già detto più volte davanti a vo. il mio auspicio che il Trattato sia ratificato entro la fine dell ' anno prossimo , nel pieno rispetto delle opinioni democraticamente espresse dai nostri concittadini . 
+Il popolo irlandese si è recentemente espresso su questo trattato . 
+Non mi voglio addentrare nei particolari del dibattito , che ha preceduto , accompagnato e seguito il referendum . 
+Mi limiterò a dire che , soprattutto dopo il viaggio in Irlanda , sono convinto che l ' Unione non minaccia le identità nazionali . 
+Al contrario , la nostra vera forza è l ' unità nella diversità . 
+Dopo la mia visita in Irlanda posso comunque affermare con convinzione che il popolo irlandese non ha votato contro l ' allargamento . 
+Tuttavia , questo " no. di cui non possiamo sottostimare l ' importanz. solleva un interrogativo cruciale , che non possiamo allontanare da noi : che fare se , malgrado i nostri sforzi , Nizza non dovesse essere ratificato ? 
+Per alcuni non è stato facile resistere alla tentazione di dire che la questione non è all ' ordine del giorno . 
+Una risposta di questo genere da parte del Presidente della Commissione non sarebbe responsabile . 
+L ' allargamento non deve essere compromesso . 
+E ' e rimarrà il nostro obiettivo politico principale . 
+E ' un progetto di portata storica , il progetto a cui ho legato il mio mandato di Presidente della Commissione , il progetto a cui il Consiglio europeo di Göteborg ha portato unanime sostegno . 
+E ' dunque mio dovere , in quanto Presidente della Commissione , prevedere le ripercussioni che il " no " irlandese potrebbe avere per il processo di allargamento . 
+E ' saggio secondo voi , onorevoli parlamentari , far finta che questo problema non esista ? 
+No , non lo è . 
+Nei giorni scorsi mi sono quindi fatto carico di questo dovere , scegliendo la strada della franchezza , con un intervento meditato e consapevole . 
+Tutti abbiamo detto che Nizza è necessario all ' allargamento . 
+Allora non possiamo dare l ' impressione che tale processo possa riuscire senza le riforme che tutti noi abbiamo voluto . 
+Non voglio ripetermi sulle interpretazioni giuridiche che ci confermano che sarebbe consentito avviare un allargamento con piccoli aggiustamenti dei Trattati . 
+Il fulcro politico è altrove , e cioè come procedere all ' allargamento accompagnandolo con l ' approfondimento che Nizza stessa ha dichiarato essere indispensabile . 
+Onorevoli parlamentari , il " no " a Nizza ritarderebbe inevitabilmente il processo di allargamento . 
+In questo cas. che noi vogliamo ad ogni costo evitar. non resterebbe che anticipare la data della prossima Conferenza intergovernativa , in modo da tener fede ai nostri solenni impegni , contando anche sulla forza espressa da questa Assemblea nella pienezza del suo mandato . 
+Come si vede , il Trattato di Nizza è già parte integrante del dibattito sul futuro dell ' Europa . 
+Il nostro " sì " alla ratifica non deriva perciò da considerazioni tattiche ma dalla necessità di assicurare la coerenza politica dell ' Unione . 
+Le parole da lei pronunciate , signor Primo Ministro , mi confermano che la sua Presidenza condivide pienamente questa analisi e condivide la strategia che da questa analisi consegue . 
+( Applausi ) 
+Grazie , signora Presidente , signor Presidente in carica del Consiglio , signor Presidente della Commissione , onorevoli colleghi . 
+Signor Presidente in carica del Consiglio , lei oggi si presenta all ' Assemblea con una grande ambizione politica e con un programma articolato che costituisce una sfida importante , e propone un ' alleanza con il Parlamento . 
+A nome del gruppo socialista vorrei dirle che , nei termini in cui lei ha posto la question. in veste di Primo ministro di un governo belga arcobaleno , che ha dimostrato come l ' alternanza democratica funzioni anche in Belgi. può senz ' altro contare sul nostro appoggio e sulla nostra collaborazione . 
+Innanzitutto , per quanto riguarda il futuro dell ' Unione e le sue sfide , lei insiste sul fatto che l ' unione fa la forza , sottolineando l ' importanza della collaborazione con il Parlamento . 
+Siamo d ' accordo sulla diagnosi relativa ai problemi concreti , la questione ora consiste nel capire se la cura è efficace . 
+Ritengo si debba partire dai due punti basilari da lei citati : da un lato , lo sviluppo della cittadinanza europea e dall ' altro , l ' introduzione dell ' euro . 
+Mi sembra di ricordare che negli ultimi vent ' anni il Parlamento si è sempre dimostrato alleato e complice nella crescita europea , dal progetto del Trattato Spinelli , alla relazione Adonino , al lavoro preparatorio del Trattato di Maastricht , fino alle bozze della Carta dei diritti fondamentali . 
+In questo momento siamo realmente convinti dell ' assoluta necessità , a fronte della Dichiarazione di Laeken , di un accordo su quella che lei ha definito la " costituzionalizzazione " dei Trattati , che richiede un dibattito pubblico . 
+Voi avete la responsabilità di definirne , da un lato , il metodo , e dall ' altro , il contenuto . 
+Si tratta di una questione fondamentale : riteniamo che la Convenzione debba costituire il forum che , con la partecipazione di parlamentari , governi e Commissione , preparerà il lavoro per una conferenza intergovernativa dall ' importanza decisiva . 
+Lei ha esordito citando la sua esperienza di Ministro del bilancio nel 1988 . 
+Io ero il relatore che in quell ' occasione presentò le prospettive finanziarie che ci hanno permesso di avanzare , e , come lei ben sa , chi vive al di fuori del bilancio , vive nell ' errore . 
+E ' assolutamente necessario difendere il concetto di finanziamento come elemento pubblico , democratico e fondamentale per il nostro futuro . 
+Un altro elemento basilare è costituito dall ' agenda economica e sociale . 
+Lei ha chiesto una politica economica coerente . 
+Ne abbiamo bisogno . 
+Stiamo attraversando un periodo di profonde riconversioni e ristrutturazioni , dobbiamo salvaguardare la nostra capacità competitiva , ma dobbiamo anche dare risposta alle migliaia e migliaia di lavoratori coinvolti in questo processo vasto e decisivo . 
+Proprio per questo molti elementi contemplati nel suo programma si rivelano assolutamente fondamentali : una dimensione sociale ambiziosa , la qualità del lavoro , la questione delle pensioni e del futuro demografico dell ' Europa . 
+Infine dobbiamo affrontare la nostra dimensione internazionale . 
+L ' Unione europea rappresenta la prima esperienza storica di globalizzazione civilizzata : è un fatto che dobbiamo difendere e portare al prossimo Millennium Round dell ' OMC . 
+Ma vi sono altre sfide importanti relative alla personalità dell ' Unione nei confronti del mondo . 
+Lei ha detto , a ragione , che può ricevere due telefonate . 
+Meglio due che nessuna , come succedeva prima . 
+Dobbiamo consolidare quanto già esiste . 
+Ritengo , in tal senso ( pensi , ad esempio , alla quantità di telefonate che riceve il Presidente degli Stati Uniti ) , che occorra definire una linea chiara , essere presenti nei Balcani , in Medio Oriente , e la ringrazio per aver citato l ' Africa . 
+In sede di Consiglio dell ' Internazionale socialista , tenutosi lo scorso fine settimana a Lisbona , si è parlato dell ' Africa come di una priorità assoluta . 
+Rappresenta uno dei nostri impegni morali . 
+Vorrei aggiungere che , per la prima volta , il Consiglio ECOFIN ha un Ministro che propone il dibattito sull ' attuabilità di una tassa internazionale sulla speculazione . 
+Anche questo deve contribuire a rendere civile la globalizzazione e ci congratuliamo con la Presidenza belga per aver preso tale iniziativa . 
+Per concludere , signor Presidente in carica del Consiglio , ritengo che 99 giorni utili siano davvero pochi ; lei non potrà certo concedersi vacanze . 
+Ma se sarà in grado di portare avanti questo ambizioso progetto , potrà contare sul nostro appoggio , la nostra collaborazione e la nostra comprensione . 
+Signora Presidente , signor Primo Ministro , onorevoli colleghi , è stato ripetuto più volte che la Presidenza belga giunge in un momento cruciale . 
+Le ragioni sono molteplici . 
+Innanzi tutto ricordiamo l ' indispensabile e ampio dibattito sul futuro dell ' Europa che dovrà avviare . 
+La Dichiarazione di Laeken deve tracciare le prime linee che definiranno uno scenario all ' interno del quale un ' Unione allargata potrà comunque operare in modo efficace , uno scenario in cui il cittadino può ritrovarsi . 
+Proprio a causa dello scarso interesse del cittadino per l ' Europa , lei ha giustamente affermato che l ' Unione europea deve prestare maggiore attenzione alle aspettative concrete degli europei . 
+Un altro punto cruciale è il ruolo dell ' UE nel mondo . 
+E ' corretto affermare che l ' Unione europea deve esercitare una più forte influenza sugli sviluppi internazionali a livello monetario , economico , sociale , ambientale e commerciale , ma anche e soprattutto nell ' ambito della politica internazionale . 
+A questo proposito lei concentra giustamente l ' attenzione sull ' Africa , dove esiste un problema umanitario . 
+L ' UE , tuttavia , può svolgere un ruolo più attivo nei rapporti , fra l ' altro , con gli Stati Uniti , la Russia , l ' Asia e , soprattutto , nel processo di pace in Medio Oriente . 
+I meriti della Presidenza belga , comunque , saranno giudicati in gran parte sulla base delle sue prestazioni sul piano interno . 
+Il programma belga appare ricco e ambizioso . Comprende il modello sociale europeo , la preoccupazione per la qualità della vita e del lavoro , una migliore collaborazione in materia di asilo e immigrazione , il passaggio all ' euro , la prosecuzione dell ' ampliamento e molti altri punti . 
+Signor Primo Ministro , la sua Presidenza si troverà quindi ad affrontare un compito pesante . 
+Il Parlamento europeo e il cittadino europeo si attendono un segnale forte . 
+Negli ultimi due anni lei ha saputo portare una ventata d ' aria fresca nella politica belga . 
+La nostra speranza e che questo accada anche in Europa . 
+Si dice di lei che sia un ciclista appassionato e veloce . È vero , lei ama pedalare , senza vento , con il vento e controvento . 
+Si renderà subito conto che in Europa spesso si deve pedalare controvento . 
+Sappiamo però che lei non ha paura e le auguriamo il successo che merita . 
+Signora Presidente , signor Presidente del Consiglio , signor Presidente della Commissione , signor Primo Ministro , nel corso del mandato belga ci troviamo a percorrere una strada piuttosto lunga e tortuosa che è iniziata a Nizza e termina a Laeken . 
+Come abbiamo visto a Göteborg , lungo questa strada ci siamo imbattuti in molti ostacoli , uno dei quali è rappresentato da Dublino . 
+Gli irlandesi ci hanno fatto sapere che senza un cambiamento radicale dei programmi non intendono continuare a percorrere questa strada . 
+Io mi domando ora se sia il caso di fare un passo indietro , di riconsiderare i risultati del Consiglio di Nizza per cercare di ottenere dei buoni risultati a Laeken . 
+A Nizza sono stati commessi molti errori gravi ai quali è necessario rimediare , gli Stati candidati sono stati trattati in maniera ingiusta : non a tutti gli Stati è stata assegnata la quota di seggi in Parlamento che spettava loro . 
+Inoltre non siamo neanche riusciti a rafforzare e a rendere più chiari i processi decisionali dell ' Unione . 
+Voi stessi avete fornito un esempio di questa complessità : vengono utilizzati più di trenta strumenti e in questo modo è veramente difficile riuscire a capire il funzionamento dell ' Unione europea . 
+A mio avviso , anche se il Trattato di Nizza non venisse ratificato nella sua forma attuale , l ' Unione potrebbe comunque continuare il processo di ampliamento e lei , signor Primo Ministro , ha ora un ' opportunità da non perdere . 
+A Laeken è necessario istituire un comitato consultivo con il compito di elaborare una Carta costituzionale europea e di riflettere su alcune questioni fondamentali . 
+E ' altresì importante che gli Stati candidati abbiano la possibilità di partecipare alla convenzione che verrà elaborata a Laeken . 
+Lei ha parlato della globalizzazione ; ho notato con soddisfazione che la Presidenza belga intende considerare la questione della tassa Tobin che fa tanto discutere la società civile . 
+A mio parere il Belgio ha ora l ' opportunità di dimostrare che comprende perfettamente ciò di cui parlava il Presidente Prodi poc ' anzi , ossia che la globalizzazione è causa di problemi piuttosto gravi , essa ha creato delle profonde divisioni nella società europea e mondiale . 
+Vi invito a dimostrare che comprendete e condividete questa nostra preoccupazione e a far sì che anche la globalizzazione contribuisca allo sviluppo di un modello sociale europeo che rientra negli obiettivi che la Presidenza belga si è prefissata . 
+Vorrei anche parlare della conferenza di Bonn che avrà luogo tra due settimane . 
+Spero che utilizziate tutte le vostre capacità diplomatiche per convincere gli Stati Uniti , l ' Australia ed il Giappone a ritornare al tavolo dei negoziati . 
+Il Belgio avrà tutto l ' appoggio del mio gruppo se dovesse decidere di continuare la politica in favore dello sviluppo sostenibile avviata dalla Presidenza svedese . 
+E ' pur vero che la Presidenza dell ' Unione viene assegnata sulla base di un meccanismo a rotazione e questo vale anche per la Presidenza della Commissione . 
+Io credo fermamente , però , che il Belgio saprà dare molto rilievo alle problematiche ambientali , soprattutto ai temi connessi ai trasporti e alla mobilità . 
+Vorrei aggiungere a questo proposito che il Presidente del Consiglio " trasporti " appartiene a mio gruppo politico e svolge un lavoro meritevole . 
+Infine , il Vertice di Laeken è vicino , all ' orizzonte già si profila il magnifico palazzo della famiglia reale . 
+Vi chiedo però di far sì che questo Consiglio non assomigli ad una di quelle assemblee del passato riservate alle teste coronate dove si prendevano le decisioni al di sopra delle teste dei cittadini ; ricordate che abbiamo bisogno soprattutto di democrazia e di trasparenza . Vi raccomando anche di non costruire altri palazzi imponenti per ospitare i Vertici che in futuro avranno luogo a Bruxelles ! 
+Questo non sarebbe sicuramente un segnale positivo nei confronti dei cittadini . 
+Io mi auguro che la vostra Presidenza sia almeno in parte altrettanto apprezzata quanto lo è la principessa Mathilde nel vostro paese . 
+Se riuscirete ad ottenere un tale successo , ciò significherà che la Presidenza belga avrà compiuto grandi progressi . 
+Signora Presidente , signor Presidente del Consiglio , signor Presidente della Commissione , ho apprezzato il fatto che lei , signor Presidente del Consiglio , abbia ammesso con franchezza ciò che ha definito a ragione " una crisi d ' identità " dell ' Europa tra i cittadini e l ' Unione europea , e che abbia sottolineato la necessità di prendere sul serio le loro aspirazioni al fine , come ha affermato , di riconciliare i cittadini con l ' Europa . 
+Questo è un cambiamento di rotta rispetto ai discorsi rassicuranti troppo frequenti che , a forza di limare ogni contraddizione , diventano inascoltabili per la gente . 
+In fondo non c ' è nulla di più normale che veder emergere , dall ' esperienza della vita , nuove problematiche che richiedono adattamenti , innovazioni e , talvolta , di rimettere in discussione ciò che credevamo assodato . 
+Nessun argomento deve essere tabù : lei ha sottolineato che bisogna riconoscere i problemi . 
+Mi permetta , in questo spirito , di ricordare alcune questioni che si ripresentano sempre più spesso nel dibattito suscitato dal cambiamento di congiuntura che scuote anche l ' Unione europea . 
+Tali questioni hanno , a mio parere , un posto di diritto nel grande complesso d ' idee che lei auspica di promuovere durante la Presidenza belga . 
+Ad esempio , ci è stato ripetuto che la zona euro era protetta dalle più gravi ripercussioni della regressione economica americana . 
+Oggi si deve constatare che sfortunatamente questo non è vero . 
+Si tratta di un errore di diagnosi non trascurabile . 
+Che analisi occorre fare ? 
+Quale lezione dobbiamo trarre nel campo della politica economica e monetaria affinché l ' economia europea sia meno coinvolta nella sfera finanziaria americana , la cui esplosione colpisce anche noi ? 
+Ricordo che l ' emorragia di capitali europei verso gli Stati Uniti si è moltiplicata per nove in sei anni , fino a raggiungere lo scorso anno oltre 220 miliardi di dollari . 
+Un altro esempio che il Presidente Duisemberg talvolta ricorda : contrariamente alla riserva federale americana , che ha il mandato di reagire a favore dell ' occupazione e della crescita , la Banca centrale europea non ha ricevuto ordine di occuparsi di tali problemi , che sono tuttavia al centro di tutte le preoccupazioni . 
+Gli europei lo sanno ? 
+E che cosa pensano con esattezza in un momento in cui , appunto , la disoccupazione aumenta e la crescita economica regredisce ? 
+Non vi sono domande da porsi al riguardo ? 
+Ancora un altro esempio : il Patto di stabilità di bilancio esige dagli Stati una politica di razionamento della spesa pubblica e della spesa sociale . 
+Il perseguimento puro e semplice di questa politica nel prossimo periodo non favorirà il rallentamento economico in un momento in cui avremmo bisogno , invece , di stimolare la crescita ? 
+Quale revisione dei criteri abituali o della loro attuazione si può prevedere per superare tale contraddizione ? 
+In linea generale , la questione di fondo che la nuova congiuntura economica , che dà segni di rapido deterioramento , ci presenta ed impone , secondo me , è questa : di quale creatività politica siamo capaci per evitare di avviarci verso serie tensioni all ' interno di tutte le nostre società , persino tra alcuni degli Stati membri e , a maggior ragione , nei confronti dei paesi candidati ? 
+Non si può trovare risposta a questa domanda in un progetto quale l ' elezione a suffragio universale del Presidente della Commissione . 
+Ritengo che dovremo combattere il nocciolo duro del modello neo - liberale , che permea in modo eccessivo la costruzione europea , e che bisognerà non solo ascoltare ma anche coinvolgere le parti sociali ed i cittadini in questa svolta necessaria . 
+Desidererei sapere , signor Presidente del Consiglio : fin dove arrivano , in questa prospettiva , l ' audacia ed il coraggio della Presidenza belga che lei oggi inaugura ? 
+Signora Presidente , vorrei innanzitutto ringraziare il governo belga per aver descritto nella sua agenda legislativa gli obiettivi prioritari che intende perseguire durante i sei mesi di Presidenza dell ' Unione europea . 
+Ha già chiarito che intende promuovere una maggiore cooperazione tra gli organismi incaricati dell ' applicazione della legge nell ' Unione europea . 
+All ' interno dell ' Unione si sta definendo un nuovo quadro istituzionale per la lotta contro la criminalità organizzata , in seguito all ' entrata in vigore del Trattato di Amsterdam . 
+Da allora , il Consiglio europeo ha varato due piani d ' azione per combattere la criminalità organizzata , mirati a superare le differenze tra le procedure nazionali e ad incoraggiare una più efficace cooperazione giudiziaria . 
+La creazione di Europol ha rappresentato un importante passo avanti in questo contesto . 
+E ' importante che tutte le Istituzioni dell ' Unione europea collaborino per garantire lo sviluppo di una strategia europea coerente contro la criminalità organizzata . 
+Al tempo stesso , dobbiamo superare le difficoltà al fine di garantire che i reati transfrontalieri siano perseguiti senza limitare le libertà e i diritti legittimi dei singoli individui e degli operatori economici . 
+Dobbiamo tutti ricordare che il movente primario delle organizzazioni criminali è il tornaconto finanziario . 
+Sono favorevole a un accordo politico a livello europeo in materia di identificazione e confisca dei proventi di reati di qualsiasi tipo . 
+Siamo tutti a conoscenza dei successi raccolti in questo campo dal Criminal Assets Bureau irlandese nel corso degli ultimi cinque anni . 
+In Europa si è già fatto molto per combattere i reati informatici . 
+Il Consiglio d ' Europa sta completando i preparativi per la prima convenzione internazionale del mondo in materia di cibercriminalità . 
+La Commissione ha già presentato una proposta legislativa sulla pornografia infantile su Internet , in linea con le disposizioni della convenzione del Consiglio d ' Europa sulla cibercriminalità . 
+Sono favorevole al programma quadro della Commissione per la lotta contro la tratta di esseri umani ; lo scopo è di sviluppare una cooperazione giudiziaria efficace in tutta l ' Unione europea . 
+Nel corso dei prossimi sei mesi la Presidenza belga svolgerà un ruolo di coordinamento mentre si completeranno i preparativi per il lancio delle banconote e delle monete in euro il 1 º gennaio 2002 . 
+E ' importante che le campagne d ' informazione , che si dovranno intensificare verso la fine dell ' estate , siano gestite in modo efficace . 
+Nelle ultime settimane il Ministro degli esteri israeliano e il leader palestinese hanno visitato il Parlamento europeo . 
+E ' ora evidente che l ' Unione europea ha assunto un ruolo centrale nel promuovere la pace in Medio Oriente . 
+Mi auguro vivamente che la Presidenza belga sappia sfruttare questo momento importante per contribuire ad arrestare la spirale di violenza in Medio Oriente e per incoraggiare la ripresa del dialogo tra tutte le parti coinvolte nella regione . 
+Sappiamo tutti che i leader europei si riuniranno a Laeken nei prossimi mesi per decidere come strutturare il dibattito sul futuro dell ' Europa . 
+E ' molto importante evitare di favorire la creazione di un ' Europa a due livelli . 
+Di sicuro non intendo costruire un ' Unione europea controllata dai grandi Stati membri a spese degli Stati membri più piccoli . 
+I piccoli Stati membri devono essere vigorosamente rappresentati nell ' ambito della struttura istituzionale generale dell ' Unione europea . 
+Infine , vorrei esortare la Presidenza belga a far sì che i capitoli più complessi dei negoziati con i paesi candidati siano aperti il più presto possibile . 
+Si devono trovare soluzioni per discutere i capitoli che finora sono rimasti chiusi e che riguardano la futura adesione dei paesi dell ' Europa centrale e orientale . 
+Signora Presidente , signor Presidente del Consiglio , onorevoli colleghi , ho sentito la Presidenza parlare molto speditamente di una Dichiarazione di Laeken . Devo tuttavia ricordare che , nel frattempo , il Trattato di Nizza non esiste più , giacché questo testo è stato respinto da una consultazione popolare assolutamente democratica che si è tenuta in Irlanda . 
+Il modo in cui questo fatto incontestabile viene ignorato dall ' Europa ufficiale è tipico della svolta non democratica e pericolosamente totalitaria che l ' Unione europea sta prendendo . 
+In altri Stati membri , del resto , non si ha neppure il coraggio di indire un referendum . 
+E ' stato detto " no " al referendum sui progetti di ampliamento europei , sull ' introduzione dell ' euro , sull ' interferenza sempre più forte dell ' Europa in questioni di competenza strettamente nazionale quali , per esempio , la cultura o la sicurezza sociale . 
+Coloro che amano disquisire di democrazia negano al popolo la possibilità di scegliere . 
+A questo proposito , la scorsa settimana , Frans Crols si è così espresso sull ' eminente settimanale fiammingo Trends : " Il 1 º luglio il Belgio assume la Presidenza della mafia di Bruxelles . 
+Un amalgama di burocrati non eletti che cercano di costruire un ' altra superpotenza , complottando con i politici europei , gli uni superando gli altri per mancanza di chiarezza " . . 
+In questo senso è estremamente simbolico che la Presidenza belga sia oggi rappresentata dal Primo Ministro Verhofstadt e dal Ministro degli esteri Michel . 
+Michel è l ' uomo delle campagne denigratorie contro l ' Austria e l ' Italia , dove il popolo , con elezioni democratiche , ha deciso di ignorare il consiglio di voto paternalistico di una compiaciuta eccellenza belga . 
+Verhofstadt è il campione incontrastato , non solo del pedale , ma anche delle menzogne e degli impegni mai rispettati . 
+E ' l ' uomo che in Belgio è salito e rimane al potere rinnegando i propri manifesti e le proprie promesse elettorali e perseguendo una politica di mercanteggiamenti e menzogne contro il proprio popolo . 
+Verhofstadt è l ' uomo che non riesce a sconfiggere alle elezioni il partito di opposizione Vlaams Blok e che quindi , a spese del contribuente , cerca di far dichiarare illegittimo il mio partito dai tribunali ricorrendo a metodi che non sarebbero sembrati fuori luogo nei paesi della Cortina di ferro o nella Germania nazista . 
+A Verhofstadt ben si addice l ' espressione usata all ' epoca dall ' avvocato francese Isorni per Michel Debré : " Qu ' il marche à plat ventre sous le poids lourd de ses reniements " , che strisci ventre a terra , piegato sotto il peso dei suoi rinnegamenti . 
+Signor Presidente , signor Primo Ministro , signor Presidente della Commissione , anche il gruppo per l ' Europa delle democrazie e delle diversità e il gruppo trasversale SOS Democrazia desiderano porgere il benvenuto al Primo Ministro Verhofstadt nella sua veste di Presidente del Consiglio . Desideriamo inoltre annunciare da parte nostra un ' opposizione critica e costruttiva e vorremmo al contempo ricordare al Primo Ministro le sue promesse in merito ad un incontro con SOS Democrazia . 
+Il suo discorso in Austria e quello tenuto oggi in questa sede avrebbero potuto essere molto migliori , se lei avesse parlato anche con l ' opposizione democratica all ' Unione europea . 
+Forse possiamo aiutarla a capire perché la gente ha votato " no " in occasione degli ultimi tre referendum sull ' Unione europea in Danimarca , Svizzera e Irlanda . 
+Quando abbiamo discusso del " no " irlandese in seno alla commissione per gli affari costituzionali , non c ' è stato nemmeno un deputato che abbia osato dire che il Trattato di Nizza potrebbe essere adottato con un referendum nel proprio paese . 
+Coloro che si sono espressi erano dell ' idea che sarebbe stato respinto . 
+Uno solo ha detto che era una fortuna non avere un referendum , perché altrimenti sarebbe stato respinto anche nel suo paese , il Portogallo . 
+E ' più facile cambiare un trattato che un popolo . 
+Rispetti le regole del gioco che sono state adottate all ' unanimità ! 
+Rispetti il " no " irlandese ! 
+Il Trattato di Nizza è decaduto . 
+Appoggi invece il dibattito popolare in merito ad un trattato sul quale la gente potrà votare favorevolmente in tutti i paesi , perché ciò non limita , anzi amplia la democrazia . 
+Si trovi un gruppo più completo e pluralistico di consulenti ! 
+Con tutto il rispetto , il suo nuovo think tank è composto principalmente da facce vecchie che hanno contribuito a trasferire il potere dagli elettori e dai rappresentanti eletti ai funzionari e ai Ministri . 
+Non ci sono giovani , non ci sono donne , e nemmeno uno che pensi come le maggioranze popolari , che votano no ai referendum sull ' Unione europea . 
+Delors , Dehaene , Amato , Geremek e Milliband difficilmente possono elaborare un trattato in grado di ottenere l ' appoggio della maggioranza in occasione di referendum . 
+SOS Democrazia ha delineato un ' alternativa in tredici punti che vorremmo discutere con lei . 
+Questi punti possono essere letti su EU.observer.com e le richieste potrebbero probabilmente essere approvate con un referendum , poiché il titolo è " Un ' Unione europea molto più snella fatta di trasparenza , vicinanza e democrazia " invece di " Più Unione fatta di riservatezza , lontananza e burocrazia " . 
+Signor Presidente , signor Presidente del Consiglio , signor Presidente della Commissione , onorevoli colleghi , sebbene la Presidenza belga abbia appena preso il via , molti hanno l ' impressione , signor Presidente del Consiglio , che il suo giro d ' Europa sia cominciato prima , con il lancio un poco prematuro del programma delle sedici priorità , o addirittura nei corridoi di Nizza , dove la sua macchina per la comunicazione , ben oliata , è riuscita a trasformare Laeken in un vero e proprio concetto ancora prima che apparisse chiaro che Nizza , sotto molti punti di vista , sarebbe stata un fallimento . 
+Il suo percorso non e facile . 
+Da un lato , le difficoltà sono la conseguenza delle sue dichiarazioni ambiziose , ma , dall ' altro , lei non sarebbe sfuggito allo zainetto tricolore che le spetta quale capo di governo di un paese noto a tutti per aver la capacità di conciliare l ' inconciliabile , un paese che , nei momenti difficili , lancia proposte visionarie in grado di far progredire l ' Europa comunitaria . 
+A nome dei cittadini belgi appartenenti al gruppo più numeroso in seno al Parlamento europeo le auguro lo stesso successo di Jean - Luc Dehaene nel 1993 . 
+All ' epoca egli venne coperto di elogi . 
+Noi non facciamo parte della coalizione da lei guidata , ma non abbiamo intenzione di mettere i bastoni tra le ruote alla sua Presidenza né vogliamo ridurre questo semestre a uno spettacolo ad uso e consumo interno del Belgio . 
+La costruzione europea dei nostri predecessori ci sta troppo a cuore per poterlo fare . 
+Siamo perfino disposti a darle una spinta , almeno quando il commissario di gara non guarda , ma solo se con la sua Presidenza sceglierà un percorso che possa migliorare le condizioni di vita qui cosi come nel resto del mondo . 
+Signor Presidente , manca il tempo di soffermarsi sulle diverse problematiche all ' ordine del giorno , ma l ' elenco non è poi tanto importante . 
+Ciò che conta è la qualità delle soluzioni e la visione che da esse emana . 
+Sia che si tratti della conversione all ' euro , dell ' ampliamento , della Dichiarazione di Laeken sul futuro dell ' Europa o dei fascicoli legislativi , una cosa è certa : i cittadini non ci seguono più , hanno perso la strada , il gruppo non sa più dove lo porterà il percorso europeo . 
+Signor Primo Ministro , la esorto ad adoperarsi affinché i cittadini possano di nuovo sentirsi a casa in Europa . 
+Non esistono miracoli , solo parole chiave : informazione , partecipazione democratica e trasparenza . 
+In dicembre avrà la possibilità di usare il Palazzo reale . 
+Spero che le verrà consentito di usare anche le serre , che rivestono una grande importanza simbolica . 
+Ci si aspetta , inoltre , che il palazzo utilizzato per il Vertice di Laeken venga restituito intatto . 
+I dimostranti e i facinorosi non mancano neppure a Bruxelles , a meno che lei non garantisca una reale partecipazione . 
+Perché non organizzare una consultazione con le ONG europee ? 
+Tale consultazione non si terrebbe parallelamente a Laeken , ma quattro settimane prima . 
+Lei offrirebbe ai dimostranti onesti la possibilità di far sentire la propria voce in modo positivo in un momento ancora utile e , se mancherà la massa di dimostranti autentici , viene immediatamente meno qualsiasi interesse a partecipare per i facinorosi anarchici . 
+Attendo con interesse la sua replica a questi suggerimenti . 
+Signor Presidente , signor Presidente del Consiglio , signor Presidente della Commissione , onorevoli colleghi , credo che l ' applauso riservato poco fa dal mio gruppo alla presentazione del programma della Presidenza belga abbia dimostrato , signor Presidente del Consiglio , che lei può contare sul nostro pieno sostegno e , in particolare , sottolineerei , sul pieno sostegno dei socialisti belgi all ' interno del nostro gruppo . 
+Sono particolarmente lieta che lei abbia iniziato il suo intervento menzionando la crisi d ' identità dell ' Europa . Infatti , l ' opinione generale , non solo in Irlanda , ma ovunque nell ' Unione europea , anche in Belgio , è che il divario rispetto ai cittadini sia molto forte . 
+Per la Presidenza belga , quindi , non si tratterà di business as usual , sicuramente non con il compito di portata storica di realizzare l ' ampliamento . 
+In questo contesto vorrei attirare la sua attenzione su tre punti che ci paiono particolarmente importanti . 
+E ' innanzi tutto chiaro che il futuro dell ' Europa non può più essere costruito a porte chiuse da diplomatici , né da tecnici . 
+L ' Europa deve tornare a essere un progetto politico . Ciò significa , fra l ' altro , che il dibattito sul futuro deve diventare un grande esercizio , a dire il vero difficile , di democrazia europea . 
+Un esercizio da portare avanti all ' interno di un dialogo con la società civile ed è più di un dibattito virtuale su un sito web , è una sorta di Stati generali della società civile . 
+Il secondo punto riguarda la Dichiarazione di Laeken . 
+Come lei ha affermato giustamente il dibattito deve essere incentrato sugli orientamenti che vogliamo seguire con l ' Unione allargata . Dobbiamo stabilire come conseguire questo obiettivo , con quali Istituzioni , con quale sistema di finanziamento . 
+Il mio invito è di non dimenticare , in questa visione del futuro d ' Europa , un ambiente sano e la qualità della vita . 
+Reputo saggia la decisione di preparare il dibattito con l ' aiuto dei consiglieri del gruppo di Laeken . 
+Mi si consenta , tuttavia , di rilevare , pur con tutto il rispetto per questi grandi saggi , tutti di sesso maschile , che questo dibattito non può essere preparato senza la presenza di una donna . 
+Mi auguro che lei voglia correggere questo neo giacche il futuro dell ' Europa è il futuro di uomini e donne . 
+Un ' ultima osservazione : sono convinta che la fiducia dei cittadini nelle Istituzioni europee possa essere rafforzata anche affrontando problematiche concrete . 
+Credo che il suo programma sia garanzia di un ' Europa più forte sotto il profilo sociale , politico e della sostenibilità . 
+Consentitemi , però , di tornare brevemente a un fascicolo , ovvero quello dell ' imposta sui flussi di capitale speculativo . 
+Nel suo elenco di priorità questo fascicolo , forse , può sembrare un dettaglio , una problematica simbolica . Tuttavia , per color. membri del Parlamento e ON. che sono convinti in tutta Europa che la globalizzazione abbia condotto a delle distorsioni , questa problematica è estremamente importante . 
+Con questo fascicolo la Presidenza belga può dimostrare che esiste effettivamente una differenza fra le migliaia di dimostranti pacifici scesi nelle strade di Göteborg con un messaggio politico da trasmettere e coloro che , invece , conoscono solamente il linguaggio della violenza . 
+Le porgo i miei auguri per la sua Presidenza e le assicuro il nostro sostegno . 
+Signor Primo ministro , innanzitutto mi permetta di esprimere il mio compiacimento per ciò che definisco la lucidità dell ' analisi della Presidenza belga . 
+Credo che vi sia veramente un deficit democratico e che sia necessario lottare contro un nocciolo duro . 
+Tuttavia , mi permetta di precisare che non intendo parlare del nocciolo duro citato dall ' onorevole Wurtz , ma quello dell ' eccesso di burocrazia , delle scartoffie , della pesantezza amministrativa che ha portato l ' Europa a non essere più trasparente per i cittadini . 
+Mantenga quindi la rotta che ci ha prospettato . 
+Bisogna annientare quest ' Europa che vive sulle carte , su un ' immagine che non corrisponde a ciò che i cittadini effettivamente e direttamente desiderano . 
+Mi permetta di augurarle buona fortuna , poiché sappiamo che ci vuole coraggio per attuare un progetto politico come il suo . 
+Affronterò tre argomenti . 
+La Dichiarazione di Laeken deve senza dubbio dare maggior peso , credibilità e concretezza alla nostra diplomazia . 
+Certo è importante trasformare gli strumenti attuali in termini di relazioni internazionali per ottenere mezzi che ci permettano d ' intervenire , come lei ha affermato , in Africa e in altre zone , senza dimenticare il Maghreb e ciò che vi accade oggi , soprattutto in Algeria . 
+Sono necessari strumenti diplomatici più forti . 
+In secondo luogo , per quanto concerne l ' elemento " potere " in seno all ' Unione europea , faccia ciò che ha promesso , osi aprire un dibattito per definire le responsabilità di ogni Istituzione ed eventualmente per ampliare la codecisione al Parlamento . 
+Terzo e ultimo punto : per dare concretezza alla cittadinanza europea , credo sarà indispensabile trovare il coraggio di sollevare il problema della costituzione . 
+Bisogna che tutti gli europei sappiano chi vuole la costituzione europea e chi non la vuole e che , infine , da Laeken in poi , il processo venga portato avanti con maggiore risolutezza . 
+Le auguro buona fortuna e spero che , entro la fine del mandato , si siano potuti fare progressi nella maggior parte dei punti da lei evidenziati nella presentazione della Presidenza . 
+Signor Presidente del Consiglio , lei può evidentemente contare fin d ' ora sull ' atteggiamento favorevole del Parlamento . 
+Il motivo risiede nelle sue forti ambizioni , che coincidono con le nostre , ma anche nelle grandi delusioni che ci sono state inflitte quali membri del Parlamento a Nizza e durante diverse Presidenze . 
+Lei sa bene però che più si sale e più grave può essere la caduta . 
+In caso di fallimento le critiche nei suoi confronti saranno più accese che non nei confronti di coloro dai quali ci si attendeva meno . 
+Già c ' è una novità : all ' interno della sua Presidenza sederanno anche Ministri regionali . 
+Mi rivolgo a lei in qualità di presidente dell ' Alleanza libera europea per ricordarle che le regioni europee si aspettano che , sotto questa Presidenza , venga accolta la loro richiesta di essere coinvolte direttamente nel dibattito sul futuro dell ' Europa . 
+Noi auspichiamo che , nell ' Unione europea , sia rafforzato il ruolo delle regioni costituzionali europee . 
+Al contempo auspichiamo un ' Europa federale che sia dotata di migliori strumenti per far fronte ai compiti fondamentali che le sono assegnati , per esempio la politica estera e per la sicurezza . 
+Non è spaventoso che , alle soglie dell ' ampliamento che vedrà un ' Europa di 500 milioni di cittadini e più di venti Stati membri , non si disponga ancora di una politica europea coerente in materia di immigrazione e asilo , mentre i trafficanti di persone ogni giorno sbarcano sulle nostre coste e lasciano annegare una folla di disperati ? 
+Uno spazio sicuro e giusto è una delle sue priorità . Uno spazio siffatto ha il compito di eliminare la paura dell ' ampliamento . 
+La lotta contro il commercio illegale di armi , il traffico di stupefacenti e il commercio di esseri umani deve essere portata avanti con forza . 
+Lo stesso dicasi della lotta contro le frodi . Avrei naturalmente altre richieste da porre , ma avrò la possibilità di illustrarle in un altro momento . 
+Le porgo i miei auguri per la sua Presidenza . 
+Signor Presidente , signor Presidente in carica del Consiglio , signor Presidente della Commissione , onorevoli colleghi , vorrei innanzitutto ringraziare in modo sincero e profondo il Presidente Verhofstadt per il programma della Presidenza belga . 
+Ritengo , a differenza della onorevole Thyssen , che il Presidente Verhofstadt ci indichi una rotta . 
+Ci ha presentato proposte rivoluzionarie e mi rattrista , onorevole Poettering , che lei ed altri non l ' abbiate notato . 
+Il Presidente Verhofstadt propone addirittura di salvare la Commissione , poiché l ' elezione a suffragio universale del Presidente della Commissione è di fatto il solo modo per salvare la Commissione , giacché sappiamo che , senza Commissione , l ' Unione europea è destinata a morte sicura . 
+Di conseguenza , alle anime morte della burocrazia , che preferirebbero scegliere un Presidente mediante manovre parlamentari più o meno oscure , dico che quelle tra loro che non sono di questo parere devono appoggiare con determinazione l ' idea e la proposta del Presidente Verhofstadt . 
+Mi auguro che saremo , anche noi , alleati della Presidenza belga e non solo la Presidenza belga alleata del Parlamento europeo . 
+Non c ' è assolutamente alcun dubbio sul messaggio principale della dichiarazione del Presidente Verhofstadt che del resto già conosciamo : il processo di integrazione deve essere rafforzato : integrazion. questa bella parola magic. implica più potere alle Istituzioni dell ' Unione europea e un corrispondente indebolimento delle democrazie nazionali . 
+Lo sa bene il Presidente del Consiglio e , se è per questo , lo sa bene anche tutto l ' apparato dell ' Unione europea ; entrambi , del resto , lasciano trapelare consapevolezza quando parlano di distanza tra l ' Unione europea e la sua gente . 
+Lo si definisce deficit democratico e si dice che i popoli devono riconciliarsi con le Istituzioni dell ' Unione europea . 
+E che cosa si fa allora per quello che è innegabilmente un problema democratico fondamentale ? 
+Che cosa si fa quando la gente ripetutamente vota " no " all ' integrazione , quando la gent. eccezionalmente benintes. viene consultata ? 
+Si ascolta la voce della gente ? 
+No , non lo si fa . 
+Ci si rammaric. recentemente ci si è rammaricati del fatto che il popolo irlandese avesse votato mal. e inoltre si fa riferimento al fatto che non molti hanno votato e che hanno sicuramente votato su qualcosa d ' altro , si dice . 
+Fra l ' altro , l ' affluenza alle urne è stata più o meno pari a quella per le elezioni del Parlamento europeo . 
+E poi , come se non fosse successo nulla , si porta avanti il processo di integrazione e di ratifica del Trattato di Nizza . 
+Tuttavia , come dice molto bene il Presidente del Consiglio : " La retorica da sola non basta " . 
+Il fatto di ignorare la chiara espressione di una popolazione sul processo di integrazione non è democrazia , è autocrazia . 
+Ma l ' autocrazia deve avere una facciata democratica e , per usare le parole molto incisive del Presidente del Consiglio , si deve fare in modo che la gente si riconcili con le Istituzione dell ' Unione europea . 
+La dichiarazione del Benelux del 21 giugno è un esempio spaventoso di questo processo . 
+E ' un cosiddetto dibattito strutturato . 
+Che lo si chiami forum o convenzione , o in qualunque altro modo lo si chiami , la sostanza è che si esclude una parte , la parte fondamentale dell ' ordine del giorno . 
+Si torna al modello storico , i dispositivi democratici del soviet supremo . 
+E ' una parodia della democrazia . Una democrazia senza popolo . 
+Ci vuole ben più della retorica , lei dice , signor Presidente . 
+Sono d ' accordo , e questo " più " consiste nel porre la domanda : l ' integrazione è la soluzione o il problema ? 
+Signor Presidente , solo a fine anno potremo constatare se è stato dato seguito all ' ambizioso epitheton ornans scelto dalla Presidenza . 
+Il programma presentato oggi , ad ogni modo , costituisce già un indizio in tal senso . 
+Mi fa particolarmente piacere che i temi riguardanti il futuro dell ' Europa occupino un posto di rilievo in tale programma . 
+A questo proposito mi siano consentite due osservazioni . 
+Primo : penso che non si possa proprio , senza recare danno all ' idea europea , ignorare il risultato del voto irlandese e passare senz ' altro all ' ordine del giorno . 
+Secondo : sono convinto che anticipare al 2003 la Conferenza intergovernativa , come proposto dal Parlamento europeo , verrebbe inteso come un modo per sottrarsi ai risultati della consultazione popolare . 
+Le conseguenze sarebbero una partecipazione al voto ancora minore . 
+Mi compiaccio pertanto del fatto che nella nota delle priorità ci si attenga alla data del 2004, possibilmente dopo le elezioni . 
+Vorrei richiamare ancora un punto : la Presidenza belga , in particolare , non dovrebbe stupirsi se , nell ' ambito dei suoi sforzi ambiziosi , dovesse constatare che i cittadini austriaci , in seguito al sonoro schiaffo delle sanzioni , fossero diventati un po ' sordi in fatto di solidarietà . 
+Vorrei affrontare uno dei punti fondamentali del programma della Presidenza belga , espostoci stamane . 
+Mi sembra che siamo tutti d ' accordo sulla seguente riflessione : la libera circolazione di persone , merci e capitali vigente nell ' Unione europea ha dato anche origine a una libera circolazione di delinquenti all ' interno delle nostre frontiere e non essendoci invece libera circolazione per le forze di polizia né per le pronunce giudiziarie , esiste il rischio che in Europa venga a crearsi uno spazio di impunità dei reati . 
+Dobbiamo inoltre riconoscere che i progressi registrati dopo Tampere nello sviluppo del terzo pilastro non corrispondono alle ambizioni iniziali . 
+A Laeken , in occasione della prevista valutazione sul grado di adempimento dello scoreboard della Commissione europea per la creazione di uno spazio di libertà , sicurezza e giustizia , ai capi di governo si presenta un ' ottima opportunità di dare un impulso politico a questo processo . 
+Pertanto chiederei al Primo ministro Verhofstadt di confermarci la sua decisione di appoggiare una dichiarazione politica di questo genere , che infonda nuovo dinamismo al processo avviato a Tampere . 
+Ciò presuppone la definizione di strumenti più efficaci nella lotta contro il terrorismo , come l ' ordine europeo di ricerca e cattura . 
+Signor Presidente , l ' Unione europea è uno spazio dotato di sistemi giudiziari omologabili in materia di garanzie processuali e di rispetto dei diritti umani , pertanto è necessario " comunitarizzare " la lotta contro la delinquenza organizzata . 
+Signor Presidente , accolgo con grande favore il programma e le priorità della Presidenza belga in materia di occupazione e in campo sociale . 
+Essenzialmente , si tratta di un programma di modernizzazione , ma anche di rinnovamento e di rafforzamento del modello sociale europeo , e in quanto tale è accolto in modo particolarmente positivo dal gruppo socialista di quest ' Assemblea . 
+Un elemento chiave del programma sarà il lavoro che svolgerete per definire chiaramente gli obiettivi sociali da raggiungere nell ' ambito della riforma dei sistemi pensionistici . 
+Occorre partire da qui anziché concentrare l ' attenzione sulle perplessità degli istituti finanziari . 
+Il vostro lavoro dovrebbe inoltre integrarsi bene con la comunicazione annunciata ieri al Parlamento dal Commissario Diamantopoulou . 
+In tale ambito più ampio , stabilirete gli elementi essenziali per un corretto coordinamento della protezione sociale , e vi facciamo i nostri migliori auguri , sebbene io sia rimasto deluso nel non sentire alcun riferimento specifico all ' esclusione sociale in tale contesto . 
+Tre punti specifici nel settore dell ' occupazione e del mercato del lavoro : innanzitutto , in relazione alla qualità del lavoro , sarebbe molto utile se poteste lavorare con noi in seno al Parlamento al fine di incorporare gli emendamenti sugli indicatori di qualità negli orientamenti in materia di occupazione per il 2002, così da anticipare la comunicazione della Commissione in materia . 
+In secondo luogo , sempre riguardo alla qualità , mi auguro che eserciterete pressioni sulla Commissione affinché proceda rapidamente alla preparazione e al lancio di una nuova strategia in materia di salute e sicurezza . 
+Il ritardo è inaccettabile . 
+Infine , so che lavorerete con noi al fine di adottare , quanto prima possibile , il quadro generale per l ' informazione e la consultazione dei lavoratori e lo statuto della società europea . 
+Ma di nuovo mi auguro che eserciterete pressioni sulla Commissione affinché completi presto il suo lavoro di revisione della direttiva sul comitato aziendale europeo . 
+Anche questo è un elemento molto importante e non vi è alcun motivo per rimandare la questione sino alla fine dell ' anno o all ' inizio del prossimo . 
+Onorevoli colleghi , signor Primo Ministro , dopo il suo intervento sono certo che l ' ampio ma anche difficile dibattito sul futuro dell ' Unione europea con lei sia in buone mani . 
+La esorto pertanto a lasciare che a Laeken la porta si apra il più possibile affinché il dibattito possa essere approfondito . 
+Quale cittadino fiammingo , vorrei inoltre chiederle di fare in modo che le regioni possano finalmente svolgere un ruolo all ' interno dell ' Unione . 
+Lei ha giustamente affermato che è necessario un intervento radicale per chiarire ai cittadini ciò che l ' Unione europea può significare per loro . 
+Ma serve anche altro . 
+L ' Unione europea deve mettere in atto e portare a conclusione le decisioni già prese e che prenderà . 
+A questo proposito lei ha già ricordato alcuni punti . 
+Quale politico liberale mi si consenta di evidenziare ancora alcuni elementi : il Vertice di Tampere , i diritti e gli obblighi del cittadino , la sicurezza . 
+Sono lieto che lei abbia affermato che è giunto il momento di agire concretamente in questi ambiti . 
+Il Vertice di Tampere risale a quasi due anni fa . 
+Il Vertice di Lisbona ha fissato l ' obiettivo dell ' economia più competitiva e più efficiente del mondo , un ' affermazione tipicamente liberale , ma l ' entusiasmo è svanito . 
+Sono lieto che siano stati presentati alcuni importanti fascicoli sulla liberalizzazione e che lei abbia dichiarato che un paio dovranno essere affrontati e risolti . 
+Il Vertice di Göteborg , un paio di settimane fa : la sostenibilità e , fra l ' altro , la decisione di ottemperare agli obblighi di Kyoto . 
+La Commissione dovrà quindi elaborare al più presto una proposta sul commercio dei diritti di emissione e , sotto la sua Presidenza , tale proposta dovrà essere rapidamente tramutata in qualcosa di concreto così che Kyoto possa essere applicato in modo economicamente sostenibile . 
+Per l ' economia europea e , certamente , per quella fiamminga questo aspetto riveste enorme importanza . 
+Il Vertice di Feira , il mio ultimo esempio . 
+In quella occasion. che risale anch ' essa a più di un anno f. è stata approvata una Carta per le PMI . 
+L ' Unione da tempo ha elaborato una politica per queste imprese . Tuttavia i vantaggi che l ' Unione europea rappresenta per le piccole imprese sono a volte troppo lontani . 
+Il quadro viene giudicato troppo complicato . La invito pertanto a dare un contenuto concreto ad alcune disposizioni della Carta per le PMI . 
+Se interverrà su questi front. sicurezza , politica per il rafforzamento della competitività , politica per le PMI , ambient. se metterà in atto alcune decisioni , riuscirà a rendere l ' Europa più tangibile agli occhi dei cittadini e , alla fine dell ' anno , potremo esserne giustamente orgogliosi . 
+Signor Presidente , ci è noto il suo interesse per le imprese , soprattutto per il loro ruolo sociale , in ognuno dei nostri Stati . 
+Il rallentamento della crescita economica , il numero ancora troppo elevato di disoccupati nelle nostre società , la gestione del territorio , specialmente nelle zone rurali , rendono ancora più urgente una reale politica economica di cooperazione rivolta alle imprese . 
+Che ne è stato delle belle intenzioni e degli obiettivi fissati a Lisbona nel marzo 200. fare dell ' Europa la zona più dinamica e più efficiente del mond. o a Feira , un anno fa , quando il Consiglio ha approvato la Carta europea delle piccole imprese ? 
+Quella carta è rimasta lettera morta . 
+Non sono stati previsti stanziamenti né altre misure concrete . 
+Signor Presidente , quali decisioni prenderà per definire un programma che riguardi l ' attuazione pratica dei dieci orientamenti politici contenuti in quella carta ? 
+Occorre ricordare che il Sesto programma quadro di ricerca e sviluppo , che verrà votato durante la Presidenza belga , è in fase di elaborazione . 
+Quale posto destinerà alle imprese ? 
+Quali sono le sue proposte per far sì che ogni azienda possa accedere alla società dei consumi , indipendentemente dalle sue dimensioni e dal settore di attività ? 
+In particolare , mi riferisco alle piccolissime imprese e alle aziende tradizionali . 
+Signor Presidente , grazie per il caloroso saluto . 
+Signor Presidente in carica del Consiglio , signor Presidente della Commissione , onorevoli colleghi , la Presidenza belga avrà un ruolo decisivo nel segnare una svolta . 
+Credo sia accaduto raramente che una Presidenza abbia dovuto avviare i propri lavori in una situazione così difficile , ma anche così ricca di opportunità . 
+Infatti siamo all ' inizio di un semestre durante il quale si dovranno gettare le basi per l ' assetto futuro dell ' Europa : per il processo post - Nizza che si dovrà concludere a Laeken e , allo stesso tempo , per i preparativi necessari all ' allargamento dell ' Unione europea . 
+Si tratta anche di creare un collegamento tra i due ambiti . 
+Ciò significa dare un ' indicazione importante al Presidente Prodi , ossia che , in seguito al voto irlandese , occorre prevedere un ' opzione sul possibile modo di realizzare l ' allargamento senza Nizza , evitando che per questa ragione l ' ampliamento venga rimandato . 
+Va mantenuta questa possibilità , proprio per non disorientare i paesi candidati all ' adesione . 
+Signor Presidente del Consiglio , mi rallegro immensamente del fatto che con la sua proposta di convenzione , o comunque la si voglia chiamare , lei abbia creato i presupposti , cui darà sicuramente seguito in occasione del Vertice di Laeken , per la ricerca da parte dell ' Unione europea di un nuovo metodo che si lasci alle spalle la routine delle passate Conferenze intergovernative . 
+Grazie alla convenzione la preparazione della Conferenza intergovernativa assumerà una valenza politica e ciò comporta andare in cerca di soluzioni , di un modo per avere un Trattato comprensibile ai cittadini , un Trattato da cui risultino chiaramente agli occhi dei cittadini le responsabilità , che permetta loro di punire o di ricompensare e che , innanzitutto , ci dia un ' Unione con 27 paesi membri in grado di prendere decisioni . 
+Sono anche soddisfatto in particolare che lei abbia colto l ' occasione per affermare che il Consiglio , nella sua veste di legislatore , deve agire come una seconda Camera , vale a dire pubblicamente , affinché in tal modo si possa davvero raggiungere un ' interazione visibile nei processi decisionali . 
+Al contempo è importante per l ' attuale Presidenza , a fronte di quanto sta accadendo in Macedonia , che in materia di politica estera , di sicurezza e di difesa si abbandoni il metodo del " troppo tardi , troppo poco " e che finalmente le decisioni vengano prese in un modo tale da impedire il ripetersi di simili conflitti armati . 
+Signor Presidente , credo di poter dire che la commissione per gli affari costituzionali di questo Parlamento si riconosce ampiamente nella dichiarazione che ha inaugurato questa mattina il semestre della Presidenza belga e in modo particolare in una sua affermazione , signor Verhofstadt : non basta offrire ai cittadini soluzioni concrete ai problemi concreti che essi sentono più fortemente . 
+Certo , gli sviluppi nuovi delle politiche dell ' Unione , quali lei li ha delineati , potranno farci recuperare consensi per il progetto europeo nell ' opinione pubblica , ma i cittadini sentono fortemente anche l ' esigenza di poter partecipare al processo di formazione degli orientamenti e delle decisioni dell ' Unione . 
+La questione della legittimità democratica dell ' Unione non è una questione astratta , che interessi solo gli appassionati e gli esperti dei problemi istituzionali ; d ' altronde , il grande allargamento pone con forza la necessità e offre l ' occasione di una vera e propria rifondazione , simbolica e istituzionale , dell ' Unione europea . 
+Apprezziamo perciò grandemente il suo impegno così netto , così limpido per una Costituzione europea . 
+Desidero al riguardo segnalare che proprio ieri , a Milano , il Presidente della Repubblica italiana , Ciampi , ha pronunciato un discorso che muove esattamente nella stessa direzione . 
+In quanto alla Convenzione , signor Verhofstadt , lei lo sa , la disputa sul nome non è innocente . 
+Chi insiste sul termine forum ha in mente qualcosa di diverso da quel che lei ci ha detto . 
+Noi ci riconosciamo in quel che lei ci ha detto , e abbiamo fiducia che sarà la Convenzione la scelta di Laeken . 
+Signor Presidente , l ' ambizioso progetto della Presidenza belga per questo semestre ci fa sperare che sia possibile associare passi fermi e concreti , sul cammino verso un futuro ancor più ricco di successi per l ' Europa , alle utopie . 
+Infatti penso che i cittadini non si aspettino solo soluzioni concrete , bensì vogliano anche sapere che direzione intendiamo dare all ' Unione europea . 
+Lo stesso vale per quanto riguarda la politica economica . 
+Anche qui , signor Presidente del Consiglio , ha promesso più democrazia e trasparenza ed io voglio augurarmi che la Presidenza belga accolga le proposte già elaborate dal Parlamento europeo . 
+Infatti , proprio in materia di politica economica , ci rendiamo conto , sulla base dei documenti di Lisbona e di Stoccolma , che vanno compiuti ulteriori progressi , se vogliamo effettivamente programmare una crescita efficace dal punto di vista occupazionale . 
+In tempi in cui una prognosi negativa sullo sviluppo dell ' Unione europea cede il passo all ' altra , sarebbe importante che la Presidenza belga cercasse di fissare le priorità con mano ferma , in modo che si possa davvero condurre a buon fine l ' ambizioso progetto di convergenza e coordinamento delle politiche in ambito economico , occupazionale e sociale . 
+Al riguardo occorre ancora recuperare terreno e il coordinamento non deve rimanere solo teoria , bensì occorre mostrare , anche in fatto di convergenza delle politiche e di trasparenza , che tutti gli Stati membri stanno intraprendendo simili passi comuni . 
+Ciò si applica anche alla politica fiscale , signor Presidente , in quanto in questo settore esiste una concorrenza sleale all ' interno dell ' Unione europea . 
+Per questo aspetto conto sulla Presidenza belga . 
+Ancora un ' osservazione , per concludere . Lei dovrà guidare l ' area dell ' euro fino al primo gennaio 2002, anche nella fase di doppia Presidenza . 
+Sappiamo tutti che l ' informazione e il consenso scarseggiano . 
+Nell ' adempiere i compiti della Presidenza belga , faccia dell ' introduzione dell ' euro un tema di primaria importanza , insieme a tutti i suoi colleghi , assicurando che non vengano solo distribuiti opuscoli , bensì anche adottando su vostra iniziativa misure che diano affidamento , affinché l ' euro , nel passaggio dall ' Unione monetaria virtuale alla realtà , sia davvero accompagnato da fiducia e credibilità . 
+Signor Presidente , le ambizioni della Presidenza belga convergono con le ambizioni di questo Parlamento . 
+C ' è la continuità con la politica estera e di difesa , con la realizzazione della moneta unica e con lo sviluppo sostenibile , ma c ' è soprattutto l ' insistenza sul rapporto tra integrazione europea , competitività economica ed agenda sociale . 
+Bisogna rendere più moderno il modello sociale europeo , che è caratterizzato dalla solidarietà . 
+Tuttavia , la questione centrale riguarda il rapporto tra allargamento e riforma delle Istituzioni europee . 
+L ' allargamento deve essere un successo per l ' Europa . 
+Il Vertice di Laeken deve cancellare le incertezze intergovernative di Nizza . 
+La questione diventa di metodo ed è , insieme , una questione di sostanza politica . 
+La risposta può venire solo da una Convenzione cui partecipino , in primo luogo , i parlamenti nazionali e il Parlamento europeo come rappresentanze democratiche dei cittadini . 
+Per conciliare i cittadini con l ' Europa bisogna rendere quest ' ultima più trasparente , efficiente e democratica nelle sue istituzioni . 
+Questo è il punto di convergenz. lo abbiamo registrato anche ogg. tra Consiglio , Commissione e Parlamento . 
+Questa è una sfida che è resa più evidente dalla globalizzazione , una sfida che dobbiamo affrontare insieme nella prospettiva della Costituzione europea . 
+Präsident , sehr geehrter Vorsitzender der Kommission , signor Presidente del Consiglio , il Belgio è una piccola Europa con tutti i vantaggi e gli svantaggi . 
+In questa sua caratteristica risiede anche , in parte , la chiave del successo della Presidenza belga . 
+Il programma belga è ambizioso e si colloca , per di più , in un contesto straordinario per riguadagnare la fiducia dei cittadini , ossia nel contesto dell ' introduzione dell ' euro , con un dibattito sull ' avvenire dell ' Europa nonché sull ' allargamento . 
+Tuttavia , se vogliamo conquistare la fiducia del cittadino , ritengo che sarà soprattutto necessario rendere l ' Europa e la nostra politica credibili . 
+( DE ) Signor Presidente , a tal proposito vorrei sottolineare un problema particolare , ovvero il tipico atteggiamento europeo che abbiamo potuto constatare negli ultimi anni , che consiste nell ' impegnarsi per il proprio paese , la propria regione , persino a prezzo dello sviluppo europeo , e poi stupirsi del fatto che i cittadini abbiano perso fiducia nell ' Europa . 
+L ' analisi però non si ferma qui . 
+Si tratta in definitiva , come ben sappiam. e qui mi rifaccio a quanto affermato dal Presidente della Commission. della rinuncia alla solidarietà . 
+Anche a livello europeo , come avviene in Belgio , convincere i ricchi a rinunciare alla solidarietà nei confronti dei poveri è una politica facile , ma alquanto pericolosa . 
+Credo che oggi , per essere solidali , sia necessario avere più coraggio ma che occorra una dose di coraggio ancora maggiore per l ' imminente allargamento . 
+Rendere credibile l ' Europa significa anche rispondere alle semplicissime domande dei cittadini , domande che fanno parte del suo programma . 
+Perché volere un ' Europa senza confini se in materia di politica sanitaria , fiscale e sociale continuano ad esistere frontiere tali da portare alla concorrenza ? 
+Il motivo è semplice : vogliamo l ' allargamento ad est , ma nessun paese è disposto a spendere un euro in più per realizzarlo . 
+Gli interrogativi sono tanti e potrei dire al Primo ministro belga quanto segue : il vostro programma di rito è eccellente , ma , come nel pattinaggio artistico , sarete giudicati per gli esercizi liberi , e il Parlamento sarà al vostro fianco negli sforzi che compirete per conquistare i cittadini . 
+( Applausi ) 
+Signor Presidente , l ' ambizione è una beffa degli dei nei confronti dell ' umanità . 
+Ci danno l ' ambizione , così crediamo di poter scalare le vette dell ' Olimpo , e poi fanno in modo che non raggiungiamo mai la cima . 
+Il programma della Presidenza belga è ambizioso . 
+Sarebbe ambizioso per una presidenza biennale , ma per una di 99 giorni , come ha precisato il Presidente in carica del Consiglio , temo lo sia troppo . 
+Accolgo con favore , com ' è ovvio , la sua intenzione di far sì che l ' Unione ascolti i cittadini . 
+" Dobbiamo risolvere la questione irlandese " . 
+Quante volte sono state pronunciate queste parole nel corso dei secoli ? 
+Tuttavia , il Presidente Verhofstadt deve guidare il Consiglio verso una soluzione del problema sollevato dal fallimento di Nizza e dal referendum irlandese . 
+La decisione democratica del popolo irlandese non può essere ignorata o disdegnata . 
+La democrazia può essere scomoda , ma è tutto ciò che abbiamo tra la libertà e la tirannia . 
+Inoltre , il referendum irlandese e i problemi espressi nelle manifestazion. sebbene siano degenerate a causa di estremist. dovrebbero dirci qualcosa . 
+Come ha affermato il Presidente in carica del Consiglio : ci dicono che l ' Europa non viene ascoltata . 
+In tutta l ' Unione , e in realtà nel contesto globale del mondo intero , i cittadini hanno perso fiducia nelle istituzioni di governo . 
+Guardano a noi , i loro rappresentanti eletti , non per le iniziative che potremmo prendere , ma per essere rassicurati . 
+Non perché vogliono un cambiamento dopo l ' altro , ma perché si aspettano la stabilità . 
+Non per l ' ambizione , ma per la più rara di tutte le virtù umane : il buon senso . 
+Consentitemi di parafrasare l ' antico proverbio greco per il Presidente in carica del Consiglio : " Gli dei elevano coloro che desiderano distruggere " . 
+Signor Presidente della Commissione , onorevoli colleghi , io ho apprezzato , nell ' intervento del Primo Ministro Verhofstadt , l ' appello a fare di questa Europa un ' Europa non soltanto della burocrazia ma soprattutto l ' Europa dei cittadini . 
+Ma non è sufficiente , onorevoli colleghi , dire agli europei : " Siete cittadini europei " . 
+Bisogna farli sentire cittadini europei . 
+L ' euro è certamente un passaggio important. e io condivido l ' impostazione del Presidente Prod. ma non è sufficiente . 
+Senza un forte sostegno politico l ' euro rischia di essere in difficoltà , com ' è stato in questi ultimi mesi , nei confronti del dollaro , nei confronti delle altre monete . 
+Per questo non possiamo non prendere in considerazione e osservare con grande attenzione il risultato del voto irlandese . 
+Per questo noi dobbiamo coinvolgere i cittadini europei con una forte riscoperta dell ' identità comune , culturale , storica , politica , con una forte politica legata al principio di sussidiarietà , per cui ciò che può essere deciso a livello più bass. e qui condivido le parole dette dal Primo Ministro Verhofstad. deve essere deciso a livello più basso . 
+L ' Unione europea non deve preoccuparsi di troppe cose ma deve dare le linee guida , le linee politiche per un coinvolgimento vero dei popoli e dei parlamenti nel processo di unificazione e di allargamento . 
+Nella Convenzione preparatoria della prossima CIG dovranno quindi essere coinvolti direttamente i rappresentanti dei popoli , cioè i rappresentanti di questo Parlamento e dei parlamenti nazionali . 
+E questo coinvolgere anche i popoli nella riforma delle Istituzioni è per dare un ruolo politic. ripeto , un ruolo politico e non soltanto economic. sempre più forte a questa Unione europea . 
+Sono queste le basi , credo , per dar vita ad un allargamento che noi crediamo profondamente sia una scelta irreversibile e necessaria per l ' Unione europea : un allargamento nel quale la mia forza politica crede , e che il governo , che la mia forza politica sostiene in Italia , ha sottolineato sia nell ' incontro con il Presidente Prodi sia nell ' ultimo incontro di Göteborg . 
+Ma se vogliamo veramente dar vita ad un allargamento che sia un allargamento duraturo , non possiamo fare a meno di coinvolgere sempre di più i cittadini e le loro rappresentanze . 
+Signor Presidente , la Presidenza belga rappresenta un importante anello nella preparazione dell ' ampliamento , giacché in questo semestre saranno compiuti i primi passi della prossima CIG , quella che ci offrirà l ' ultima possibilità di riformare le Istituzioni e il processo decisionale europei prima dell ' adesione di nuovi paesi . 
+Il contesto generale si presenta , tuttavia , difficile . 
+L ' asse franco - tedesco sarà in parte bloccato dalle elezioni che , il prossimo anno , si terranno in entrambi i paesi . 
+La paura della popolazione davanti all ' ampliamento è reale . 
+Il coraggio europeista degli attuali Stati membri non è particolarmente grande e il tempo che ci rimane non è molto . 
+In queste circostanze il Belgio deve riuscire a far approvare a Laeken una dichiarazione che deve comunque prevedere un miglioramento del processo decisionale e rafforzare la legittimità democratica . 
+In questa sede non voglio deliberatamente trattare di progetti ancora più ampi che saranno lanciati e che si prefiggono un cambiamento radicale di tutte le Istituzioni . 
+Nutro dei dubbi sulla fattibilità politica di tali progetti . 
+Due elementi sono indispensabili per migliorare il processo decisionale . 
+Innanzi tutto occorre abolire la norma dell ' unanimità , tranne nel caso in cui la decisione riguardi questioni inerenti alle stesse Istituzioni e il passaggio di poteri . 
+Con ventisette o trenta Stati membri non è possibile continuare a operare con la regola dell ' unanimità . 
+Tale abolizione deve accompagnarsi a un ' estensione della procedura di codecisione con il Parlamento . 
+I due provvedimenti devono essere associati l ' uno all ' altro . 
+In secondo luogo occorre assolutamente semplificare la complessità europea . 
+Il Trattato di Nizza è a malapena comprensibile , figuriamoci le difficoltà quando si tratta di illustrarlo . 
+Numerose decisioni , direttive , regolamenti , disposizioni , linee guida , raccomandazioni sono incomprensibili senza l ' ausilio di un testo interpretativo o note di accompagnamento e anche in questo caso non è facile districarsi . 
+Le decisioni di Göteborg rimangono un rompicapo anche dopo tre letture e quattro traduzioni . 
+Le difficoltà sorgono non solo per il cittadino comune , ma anche per quello più preparato . 
+Il gergo europeo sembra essere diventato una dodicesima lingua , con termini che , per quanto incomprensibili , vivono comunque di vita propria . 
+In Europa , del resto , non si fa già benchmarking , mainstreaming e così via ? La lingua europea non è diventata la lingua degli europei , al contrario . 
+Per poter garantire la partecipazione dei cittadini , la Presidenza belga dovrebbe fare di tale partecipazione un vero e proprio progetto e inserirlo fra sue priorità . 
+Euronews viene finanziata dall ' Europa . 
+Se vogliamo sapere qualcosa dell ' Europa , seguiamo la CNN , non Euronews . 
+Lo stesso potrebbe dirsi di molte altre iniziative europee destinate a informare i cittadini . 
+Signor Primo Ministro , elabori un progetto sulla partecipazione dei cittadini . 
+Ne faccia una priorità e cerchi in questo ambito di concordare un percorso con gli altri paesi europei . 
+Signor Presidente , onorevoli colleghi , signor Presidente del Consiglio , lei ha annunciato un programma ambizioso , ma l ' ambizione del suo progetto è pari alle sfide che abbiamo di fronte . 
+Per questo motivo , al termine della discussione , desidero augurarle pieno successo nel soddisfare la sua ambizione . 
+Le auguro , a nome del gruppo CDU / CSU del Parlamento europeo , di diventare un grande Presidente del Consiglio . 
+Avrà bisogno del nostro sostegno , ed io le assicuro che può contarci . 
+A ragione ha esordito affermando di voler riconciliare i cittadini con l ' Europa . 
+E ' un aspetto cui si è accennato in svariati modi . 
+I motivi del calo di fiducia all ' interno dell ' Unione , che prima era latente e che attraverso il referendum irlandese si è materializzato come un segno premonitore , sono molteplici , e sono stati citati . 
+A margine si dovrebbe comunque ricordare che potrebbe avervi contribuito anche il modo in cui i grandi membri del Consiglio si sono comportati nei confronti di un paese come l ' Austria . 
+Forse il suo Ministro degli esteri avrà la possibilità di porre in parte rimedio al danno alla fiducia arrecato in Austria . 
+Il metodo della Conferenza intergovernativa è ormai superato , in quanto decisioni della portata di quelle che vengono adottate per le modifiche dei Trattati non possono più essere prese in notti buie nei meandri del Consiglio , bensì necessitano di una fase preliminare di discussione pubblica . 
+Per questo motivo chiediamo l ' insediamento di un ' assemblea , simile ad una convenzione , che organizzi il dibattito pubblico in Europa prima che si prendano le decisioni all ' interno del Consiglio . 
+Soprattutto per questo abbiamo bisogno del suo appoggio . 
+Signor Presidente del Consiglio , sarebbe un primo passo avanti molto concreto , nonché un segnale per gli irlandesi , se il metodo della Conferenza intergovernativa si aprisse per garantire maggiore trasparenza . 
+Con un passo del genere saremmo anche legittimati a comparire un ' altra volta al cospetto degli irlandesi per sottoporre il Trattato a votazione . 
+E ' su questo che il suo operato sarà giudicato . Da parte nostra le auguriamo ogni successo , nell ' interesse dell ' Europa . 
+La ringrazio molto , signor Presidente in carica del Consiglio , e desidero porgerle i miei migliori auguri per la Presidenza e per il Belgio . 
+La discussione è chiusa . 
+Situazione nella ex Repubblica iugoslava di Macedonia 
+L ' ordine del giorno reca le dichiarazioni del Consiglio e della Commissione sulla situazione nella ex Repubblica iugoslava di Macedonia . 
+Signor Presidente , onorevoli deputati , sin dall ' inizio l ' Unione ha seguito con molta attenzione e preoccupazione gli sviluppi della crisi nell ' ex Repubblica iugoslava di Macedonia . 
+Ha inoltre ricoperto un ruolo molto attivo nella ricerca di una soluzione pacifica a questo conflitto . 
+Dallo scorso aprile l ' Alto rappresentante per la PESC , Javier Solana , si è recato più volte sul posto ed ha incontrato , sia a Skopje che altrove , le autorità politiche ed i rappresentanti dei principali gruppi etnici del paese allo scopo di informarsi sulla situazione e di promuovere una soluzione politica della crisi . 
+Nel mese di aprile , una troika ministeriale dell ' Unione , composta dalla signora Lindh , dal Commissario Patten e dalla signora Neyts , si è recata a Skopje . Il 10 aprile 2001 a Lussemburgo l ' Unione europea e l ' ex Repubblica iugoslava di Macedonia hanno firmato un accordo di stabilizzazione e associazione , il primo tra l ' Unione europea ed un paese dei Balcani . 
+Questa firma ha contribuito ad attribuire all ' Unione un ruolo essenziale di cui è necessario tener conto nella ricerca di una soluzione alla crisi . 
+Inoltre , ci ha anche fornito uno strumento di pressione sulle parti in causa nell ' ex Repubblica iugoslava di Macedonia . 
+Sin dalle prime manifestazioni , l ' Unione europea ha condannato con forza le violenze commesse dagli estremisti di origine albanese e li ha invitati a porre immediatamente fine agli scontri , a deporre le armi ed a ritirarsi . 
+D ' altro canto , l ' Unione ha fermamente chiesto alle autorità di Skopje di cercare di evitare la risposta militare alle provocazioni dei ribelli ed ha rilevato la necessità di incoraggiare il dialogo tra le diverse etnie nella prospettiva di realizzare le riforme urgenti e indispensabili per risolvere il conflitto , in particolare quelle in materia di diritto e di tutela delle minoranze . 
+Ciò dovrebbe anche contribuire ad isolare gli estremisti , offrendo speranze concrete a tutte le popolazioni interessate . 
+In questo spirito , l ' Unione europea nonché l ' Alto rappresentante Solana si sono rallegrati per l ' accordo siglato l ' 11 maggio per la formazione di un governo di larga coalizione che include i dirigenti dei principali partiti politici slavi ed albanesi , eletti democraticamente , s ' intende . 
+Li ha invitati ad intensificare i loro sforzi per raggiungere in breve tempo risultati concreti e sostanziali relativi alle tematiche principali oggetto del dialogo in corso . 
+In occasione del Consiglio europeo di Göteborg , i Capi di Stato e di governo dell ' Unione europea hanno riaffermato la necessità di una soluzione pacifica della crisi . 
+Dal punto di vista politico , ciò implica l ' apertura di un vero e proprio dialogo in seno alla coalizione di governo in merito a tutte le questioni in discussione , comprese le riforme costituzionali . 
+Il Consiglio europeo ha invitato le forze politiche locali a presentare i risultati nel più breve tempo possibile . 
+La scadenza corrisponde alla data del Consiglio " affari generali " del 27 giugno . 
+Per quanto attiene alla sicurezza , il Consiglio europeo ha condannato in termini inequivocabili gli estremisti ed il ricorso alla violenza . 
+Ha posto l ' accento sulla necessità di arrivare ad un cessate il fuoco duraturo concordato fra le parti , il che potrebbe richiedere un minimo di contatti diretti o indiretti tra di loro . 
+Da questo punto di vista , l ' Unione europea e la NATO dovranno probabilmente svolgere un ruolo di intermediari o di promotori . 
+Il piano di disarmo proposto dal Presidente Trajkovski è l ' altro punto importante dal punto di vista della sicurezza . 
+Attribuisce un ruolo centrale in questo processo alla NATO , poiché la sua eventuale presenza e quella di osservatori dell ' Unione europea in loco è considerata dalle parti come un indispensabile elemento di fiducia . 
+La NATO ha già preso i provvedimenti necessari per potervi far fronte . 
+Nella prospettiva del disarmo dei ribelli albanofoni , quest ' intervento è tuttavia soggetto a condizioni precise di sicurezza che , finora , non sono state soddisfatte dalle parti . 
+L ' elemento essenziale è la conclusione di un cessate il fuoco duraturo basato su un accordo politico volto a sviluppare una soluzione negoziata della crisi . 
+Da questo punto di vista , è necessario osservare che l ' Unione europea , sin dall ' inizio della crisi , mantiene uno stretto coordinamento con la NATO attraverso frequenti riunioni periodiche congiunte del Consiglio atlantico e del comitato politico e di sicurezza , collegamenti regolari tra segretariati , nonché contatti diretti tra l ' Alto rappresentante Solana ed il Segretario generale della NATO , Lord Robertson . 
+Questi due responsabili hanno anche effettuato visite congiunte nell ' ex Repubblica iugoslava di Macedonia nel corso delle quali si è portato alle parti un messaggio fermo ed univoco da parte della comunità internazionale . 
+Al fine di garantire una presenza politica permanente dell ' Unione europea a Skopje , il Consiglio europeo di Göteborg ha deciso di nominare un rappresentante speciale dell ' Unione nell ' ex Repubblica iugoslava di Macedonia . Il Consiglio " affari generali " del 25 giugno ha affidato questo compito all ' ex Ministro della difesa francese , François Léotard , che si trova a Skopje da giovedì 28 giugno . 
+Il mandato del signor Léotard riguarda innanzitutto l ' instaurazione ed il mantenimento di contatti con il governo dell ' ex Repubblica iugoslava di Macedonia nonché con le parti interessate al processo politico . 
+Prevede anche consulenza e appoggio da parte dell ' Unione europea al dialogo in corso , uno stretto legame con i rappresentanti in loco della Presidenza e della Commissione , con i capi missione degli Stati membri e con gli osservatori europei . 
+Esso contempla altresì l ' instaurazione ed il mantenimento di contatti con gli altri organismi internazionali e regionali competenti , tra cui la NATO , l ' OSCE e le Nazioni Unite , ovviamente allo scopo di garantire il coordinamento necessario . 
+Infine , prevede di contribuire , se del caso , all ' applicazione di eventuali accordi e di seguire da vicino tutti gli sviluppi e le iniziative in materia di sicurezza in collegamento con gli organismi competenti . 
+La via che la Presidenza belga deve seguire è quindi stata chiaramente tracciata dalle decisioni e dall ' approccio che l ' Unione europea ha adottato in questi ultimi mesi , dal ricorso agli strumenti citati , dal considerevole impegno dell ' Alto rappresentante Solana , nonché dall ' azione sul posto del signor Léotard . 
+L ' Unione europea dimostra il proprio impegno attivo in questa crisi . 
+Tale sforzo , volto a contribuire al conseguimento di progressi rapidi e tangibili , viene effettuato anche in collaborazione con altre parti interessate , segnatamente con l ' inviato americano , signor Pardew , nonché con le organizzazioni internazionali attive sul posto . 
+A questo punto , per la nuova Presidenza si tratta di proseguire ed incoraggiare con costanza e determinazione il dialogo politico nell ' ex Repubblica iugoslava di Macedonia . 
+Da questo punto di vista , bisogna rallegrarsi che ieri sera , sotto l ' egida del Presidente Trajkovski , si sia concluso un accordo per rilanciare il dialogo politico tra i partiti dell ' ex Repubblica iugoslava di Macedonia . 
+Come conseguenza di tale accordo , nei prossimi giorni sono previste numerose importanti riunioni . 
+Si porrà soprattutto l ' accento sulle questioni costituzionali , sulla scia della recente missione in loco del signor Badinter . 
+Contemporaneamente , e in stretto coordinamento con la NATO , la questione della sicurezza sarà discussa con la stessa determinazione , poiché i due aspetti della crisi sono indissolubili e dovranno essere seguiti parallelamente . 
+Signor Presidente , la situazione nella ex Repubblica iugoslava di Macedonia rimane , come il Ministro ha appena affermato , una questione di grave preoccupazione per tutti noi . 
+Nei tre mesi trascorsi dall ' ultima volta che ho discusso la questione con gli onorevoli parlamentari la situazione della sicurezza ha subito un costante peggioramento , si è assistito ad una crescente polarizzazione dell ' opinione politica e il numero di profughi e di sfollati all ' interno della regione è aumentato in misura esponenziale . 
+Le violenze davanti al parlamento di Skopje appena una settimana fa hanno portato la situazione , senza esagerare , sull ' orlo dell ' abisso . 
+E ' una buona notizia il fatto che durante l ' ultima settimana la situazione della sicurezza non si sia ulteriormente deteriorata e che , come ha appena affermato il Ministro Michel , il dialogo politico avviato dal Presidente Trajkovski sia stato ripreso . 
+Vorrei rendere omaggio agli sforzi del Presidente , al suo atteggiamento pacato e dignitoso di fronte alla crisi . 
+Come gli onorevoli deputati sapranno , l ' Unione europea ha partecipato attivamente , fin dall ' inizio , alle iniziative volte a contenere e a placare il conflitto . 
+Tutti noi che abbiamo responsabilità nella regione siamo profondamente consapevoli del pericolo che insorgerebbe non solo per la comunità local. che sarebbe già abbastanza grav. ma per l ' intera regione , se la situazione nella ex Repubblica iugoslava di Macedonia dovesse degenerare in guerra civile . 
+Collaborando con la NATO , l ' OSCE e gli Stati Uniti , non lasceremo nulla di intentato per cercare di porre fine a questo conflitto e concordare un modo di procedere basato sul dialogo e su una soluzione politica . 
+Un aspetto che ha caratterizzato la crisi è la strettissima cooperazione tra le organizzazioni e gli enti internazionali competenti , che non deriva da manuali o libri di testo , ma dal fatto che sappiamo quanto sia importante affrontare il problema in modo unitario e coerente . 
+Non siamo ancora riusciti a porre fine al conflitto , ma sappiamo con certezza che solo lavorando insieme e operando in collegamento con il governo democraticamente eletto di Skopje riusciremo a farlo . 
+Il ruolo guida a nome dell ' Europa , com ' è noto , è stato giustamente assunto dall ' amico e collega Alto rappresentante Javier Solana . 
+E ' stato a Skopje innumerevoli volte ed io l ' ho accompagnato in diverse occasioni , oltre a visitare il paese per conto mio . 
+Il signor Solana ha lavorato e continua a lavorare instancabilmente per trovare una soluzione pacifica , con il valido sostegno a Skopje dell ' ambasciatore della Presidenza uscente , Mark Dickinson , e del capo della delegazione della Commissione , José Pinto Texeira . 
+Vorrei rendere un omaggio particolarmente caloroso al signor Solana per il suo coraggio , la sua risolutezza e la sua saggezza . 
+Come ha affermato il Ministro , una settimana fa il Consiglio " affari generali " ha nominato il signor Léotard inviato residente dell ' Unione europea a Skopje , sotto l ' autorità del signor Solana . 
+Ho incontrato il signor Léotard la scorsa settimana e gli ho promesso il pieno sostegno della Commissione europea nel suo lavoro . 
+Siamo pronti a fare tutto il possibile , ovunque e in qualsiasi momento . 
+Il signor Léotard inizialmente si sistemerà presso l ' ufficio della delegazione della Commissione a Skopje . 
+Come gli onorevoli deputati sanno , in aprile la ex Repubblica iugoslava di Macedonia ha sottoscritto un accordo di stabilizzazione e di associazione con l ' Unione europea . 
+Tale accordo prevede importanti impegni da parte del governo di Skopje in materia di rispetto dei diritti umani , compresi i diritti delle minoranze . 
+E ' essenziale che tali impegni siano rispettati , e tutti noi vogliamo vedere presto risultati nel dialogo interetnico . 
+Questa è l ' unica strada verso una soluzione politica duratura . 
+La Commissione europea fornisce un sostegno molto consistente : 42 milioni di euro nel quadro di CARDS nel 2001 . 
+Buona parte di tale sostegno è destinata a contribuire specificamente alla realizzazione di progetti di assistenza a favore sia della comunità albanese sia di quella slava macedone . 
+Per esempio , abbiamo erogato 5 milioni di euro a favore dell ' università di lingua albanese dell ' Europa sudorientale di Tetovo , fondi per il censimento e fondi per la riforma delle amministrazioni locali e la realizzazione di progetti di infrastrutture regionali su piccola scala , che migliorano visibilmente la vita delle persone e l ' organizzazione delle comunità . 
+Abbiamo affermato esplicitamente , e voglio ripeterlo oggi , che saremo pronti a fornire una considerevole assistenza alla ex Repubblica iugoslava di Macedonia non appena si raggiungerà un accordo politico tra le parti . 
+Mi auguro che tutti gli interessati lo considerino un serio incentivo a lavorare intensamente e costruttivamente con il signor Léotard e il signor Pardew , il rappresentante degli Stati Uniti , nei prossimi giorni . 
+Facciamo in modo che sia anche un incentivo a prolungare il cessate il fuoco e ad interrompere le attività militari da entrambe le parti , che comportano costi ingenti sotto il profilo politico e finanziario e in termini di vite umane . 
+Mi preme sottolineare questo punto . 
+Il Parlamento non vedrà di buon occhio le proposte della Commissione , o di chiunque altro , di erogare più fondi per sostenere la ricostruzione e lo sviluppo , nonché il bilancio della ex Repubblica iugoslava di Macedonia , se al tempo stesso si dovessero spendere fondi , di cui francamente nessuno dispone , per acquistare più bombe e più missili e non ci fosse una chiara prospettiva di soluzione politica e di un il cessate il fuoco duraturo . 
+Quando riferirà al comitato politico e di sicurezza del Consiglio venerdì a Bruxelles , il Ministro degli esteri della ex Repubblica iugoslava di Macedonia si troverà in condizione di descrivere progressi sostanziali , perché altrimenti si presenterebbe ai nostri occhi una situazione davvero troppo cupa . 
+Non è troppo tardi per evitare una catastrofe , ma è necessario il coraggio di ogni cittadino della ex Repubblica iugoslava di Macedonia per allontanarsi dall ' orlo del baratro . 
+Bisogna che coloro che esercitano un ' influenza sui ribelli in Kosovo li inducano ad allontanarsi dall ' abisso ed è necessario continuare ad incoraggiare la moderazione , seguendo l ' esempio fornito dal governo di Tirana , al quale rendo omaggio senza riserve per il suo contributo . 
+Non può esistere una soluzione unicamente militare . 
+Si deve trovare una soluzione politica , e non sarà mai troppo presto per farlo . 
+Signor Presidente , signor Presidente del Consiglio , signor Commissario , ci rallegriamo della nomina di Léotard nonché dell ' intervento di Badinter nelle vicende macedoni . 
+Ritengo che si tratti di due rappresentanti della Comunità europea che possono fare molto a favore della regione . 
+Peraltro , come il Commissario Patten , non vorrei passare sotto silenzio il fatto che la delegazione UE in loco agisce già da anni in modo davvero provvidenziale ed ha sempre svolto opera d ' intermediazione . 
+E ' necessaria una presenza costante nella regione , non perché vogliamo una sorta di protettorato , bensì perché intendiamo manifestare il nostro interesse a preservare la Macedonia come Stato . 
+Il paese ha bisogno di un mediatore e spero che lo abbiamo infine trovato , ma ritengo che non si possa prescindere dal fatto che sarebbe bene che la NATO fosse presente in Macedonia a titolo preventivo . 
+Se oggi subordiniamo il nostro impegno finanziario al requisito della volontà di pace in loco , questa non è un ' interferenza in questioni interne , come viene descritta nella regione . 
+Alla lunga , infatti , non possiamo spendere il denaro dei nostri contribuenti in un paese in cui la volontà di pace non è sorretta da azioni comuni a favore della pace stessa . 
+Ad esempio , non possiamo costruire strade ed infrastrutture mentre le truppe governative ed i ribelli comprano armi . 
+Lo ribadisco : l ' UCK ha portato il fermento nel paese , questo è fuor di dubbio . 
+Tuttavia , per evitare la guerra civile , il governo ora non deve cedere alle rivendicazioni dell ' UCK , bensì deve tener conto delle richieste avanzate da anni dai deputati albanesi in Macedonia e cercare di elaborare soluzioni insieme a loro . 
+Comunque , a mio avviso , queste soluzioni non possono risiedere nella divisione del paese lungo le frontiere etniche . 
+La Macedonia è la terra di tutti i suoi cittadini , e questo va sancito anche dalla costituzione . 
+Non si può attribuire ad alcun gruppo della popolazione un diritto di veto , in qualunque modo esso sia concepito , in quanto esso dividerebbe il paese . 
+Il Capo dello Stato è il presidente di tutti i cittadini macedoni ed un vicepresidente albanese con diritto di veto sarebbe quindi una richiesta iniqua da parte albanese . 
+L ' utilizzo della propria madrelingua dev ' essere consentito ad ogni cittadino . 
+Il decentramento del potere ed il potenziamento delle amministrazioni comunali e locali , come programmato da tempo , va infine attuato . 
+Tuttavia il decentramento di esercito e polizia , come richiesto ora dagli albanesi , non può rafforzare la coesione del paese , anzi tutt ' altro . 
+La volontà di pace dev ' essere sorretta da richieste adeguate e giustificate . 
+L ' Unione europea deve preoccuparsi delle esigenze di riforma e di riconciliazione dei paesi vicini , in quanto non può assistere , senza agire , alla guerra civile che si va profilando in Macedonia . 
+I ribelli dell ' UCK hanno viaggiato in autobus dotati di aria condizionata , con le loro armi , da Skopje verso il nord della Macedonia . 
+Vi rendete conto dell ' impressione che ha suscitato il nostro intervento nel paese ? 
+Tutto questo ci ha fortemente danneggiati e ha dato di noi la falsa immagine di sostenitori degli albanesi . 
+La Macedonia ci mostra con estrema chiarezza che dobbiamo finalmente elaborare un concetto comune di politica balcanica , in quanto questo problema può essere risolto soltanto nell ' ambito di una strategia comune che includa il Kosovo . 
+Signor Presidente , il gruppo del Partito europeo dei liberali democratici e riformatori sta lavorando con impegno ad una posizione congiunta che voteremo alle 12 in una prospettiva di condanna della violenza e di appoggio al dialogo , ma soprattutto nel tentativo di applicare misure immediate , a breve termine , come lo sono state la nomina di un mediatore e l ' appoggio al piano Traikovski . 
+E ' importante che anche gli sforzi a medio termine e la responsabilità dell ' Unione in questo camp. l ' accordo di associazione rappresenta evidentemente un fattore important. progrediscano verso un esito positivo . 
+Desidero affrontare due aspetti complementari di quanto sta accadendo nella FYROM , che coinvolgono direttamente l ' Unione europea . 
+In primo luogo , raramente si sono presentate prove altrettanto difficili per l ' immagine esterna dell ' Unione europea come le successive crisi nei Balcani , e la situazione continua a rimanere immutata . 
+Sebbene vi siano stati netti miglioramenti dopo la nomina dell ' Alto rappresentante , signor Solana , e la sua gestione e collaborazione con il Commissario Patten e con il Consiglio , è evidente che la nostra volontà e il nostro sforzo devono convergere per rendere efficace la nostra azione e al contempo salvaguardare il nostro prestigio politico . La posta in gioco , come risulta dagli interventi del Presidente Verhofstadt , del Commissario Patten e del Ministro Michel , è infatti molto alta . 
+Vi è un altro effetto importante per l ' Unione europea che non è stato citato e che , sebbene indiretto , è fondamentale : la ripercussione sul processo di allargamento . 
+E ' certo un caso , ma i paesi confinanti con la FYROM , in particolare Bulgaria e Romania , sono quelli che incontrano maggiori difficoltà a raggiungere uno sviluppo economico sufficiente che consenta di avviare negoziati di adesione . 
+Penso che tale vicinanza incida negativamente sul conflitto , da molti punti di vista , non solo quello economico , e ancora più direttamente sugli investimenti diretti in tali paesi . 
+Occorrerà tenerne conto nella definizione del nostro intervento e di quello degli Stati membri , perché paesi come la Bulgaria , per esempio , hanno contribuito in modo molto positivo alla stabilità nella zona . 
+Signor Presidente , signor Commissario , signor Presidente del Consiglio , innanzitutto vorrei manifestare il mio apprezzamento per l ' impegno finora dimostrato dall ' Unione europea , dal Consiglio e dalla Commissione . 
+Ci si è espressi con un ' unica voce , diversamente a quanto accaduto in relazione ai Balcani ; si è giustamente esercitato un influsso volto alla moderazione in merito all ' uso della violenza e si è posto l ' accento sull ' individuazione di una soluzione politica . 
+Ciononostante nutro due timori . 
+La mia prima preoccupazione riguarda il collegamento tra gli aiuti comunitari e il ruolo costruttivo dei partiti . 
+Si tratta di un elemento determinante . 
+E ' logico che gli aiuti non siano un fatto scontato . 
+M. è un quesito che rivolgo alla Commission. ritireremo il nostro aiuto a favore dell ' università albanese di lingue di Tetovo se non gradiremo la posizione dei partiti albanesi nel governo o interromperemo la costruzione di infrastrutture su piccola scala se non condivideremo i compromessi dei partiti macedoni ? 
+Su questo punto andrei molto cauto . 
+Sono favorevole alle pressioni , sono favorevole all ' impegno dell ' Unione europea , ma sono contrario alle minacce vaghe . 
+La mia domanda concreta alla Commissione è se tale vincolo vale solo per i nuovi aiuti , come mi è sembrato di capire dalle parole del Commissario , o se vale anche per quelli già in atto . 
+In altri termini , vorrei sapere se ad un certo punto la Commissione europea dirà : " Cari partiti , le vostre posizioni non ci aggradano e pertanto sospendiamo completamente o parzialmente l ' erogazione degli aiuti " . 
+La mia seconda preoccupazione concerne il raggiungimento di un accordo . 
+E ' stato detto che si avrà un coinvolgimento militare solo se vi sarà un accordo a tale riguardo a livello di governo e di ribelli , ma è quest ' ultimo punto che mi appare problematico . 
+Infatti il rappresentante speciale , il signor Léotard già ricordato dall ' onorevole Swoboda , ha affermato , persino prima di giungere in loco , che si dovevano avviare negoziati con i ribelli . 
+Il mondo era troppo piccolo . 
+Il signor Léotard non è quasi riuscito ad entrare in Macedonia . 
+Ma se il governo non intende scendere a trattative con i ribelli , chi negozierà con loro ? 
+La Commissione è forse coinvolta dietro a qualche paravento o è stata coinvolta in negoziati ? 
+Il Consiglio è forse coinvolto ? 
+Qualcuno dovrà fungere da tramite tra accordo governativo e ribelli . 
+Non nutro alcuna simpatia per i ribelli e voglio che pongano fine alla violenza da parte loro , m. che ci piaccia o men. un accordo senza un ' intesa con i ribelli non è un vero accordo . 
+Perciò manca un anello della catena per perfezionare l ' accordo con il governo e con i ribelli . 
+Domando quindi a Commissione e Consiglio : chi è disposto fungere da tramite a tale fine ? 
+Signor Presidente , vorrei segnalarle che il mio gruppo si schiera compatto a favore dell ' unità e della democratizzazione della FYROM e soprattutto della garanzia dei diritti per tutte le persone che vivono in quel paese . 
+L ' abbiamo già ribadito , ma a quanto pare non si fa molto affidamento sulle nostre parole . 
+Mi chiedo perché gli abitanti della regione non abbiano fiducia nell ' Unione europea . 
+Alcuni onorevoli colleghi hanno citato vari esempi : le armi dell ' UCK , il trasporto dei ribelli su pullman climatizzati scortati dalla NATO per consentire loro di proseguire la guerra in altre regioni , le dichiarazioni del signor Léotard... Si tratta di una gaffe o di una dichiarazione ben calcolata ? 
+Oggi , signor Presidente in carica del Consiglio , lei ci parla di un " contact minimum " con i ribell. è questa l ' espressione che ho udit. in modo da trovare una soluzione politica . 
+Questi ribelli non sono forse quelli che fino a poco tempo fa Lord Robertson definiva criminali ? 
+Dov ' è finito Lord Robertson ? 
+Lei ha fatto il nome del signor Badinter ed io vorrei sapere quali sono le posizioni di quest ' ultimo . 
+Se ricordo bene quanto riportato dalla stampa , il signor Badinter avrebbe detto " no ad uno Stato con due etnie separate " ; lei lo appoggia ? 
+Il Commissario Patten ha detto " niente soldi senza soluzione politica " : in altre parole , dipenderemmo dalla volontà politica dei ribelli . 
+Mi rattrista questa mancanza di simmetria tra le due parti . 
+Per loro ragioni soggettive , l ' Unione europea e la NATO non vogliono immischiarsi e schierarsi a sostegno del governo legittimo , ma preferiscono che le due parti trovino da sole un accordo . 
+Non c ' è simmetria . 
+Tempo fa , nel corso di una mia visita a Skopje , ho avuto modo di discutere non con i ribelli , ma con i partiti albanesi ufficiali , i quali mi hanno detto : " non vogliamo l ' applicazione del principio della maggioranza nelle questioni importanti " . 
+Non importa se il veto sarà esercitato da un vicepresidente o ai sensi di un ' altra procedura prevista dalla costituzione . 
+Con queste premesse ci si avvia verso la distruzione dello Stato . 
+Da parte dell ' Unione europea serve quindi un sostegno più fermo , serio e credibile a favore dell ' unità e della democrazia dello Stat. due fattori che vanno sempre in coppia . 
+In caso contrario , assisteremo al fallimento della nostra politica nei Balcani e non sarà certo la prima volta ! 
+Signor Presidente , signor Presidente in carica del Consiglio , Commissario Patten , vorrei anzitutto esprimere la mia soddisfazione e congratularmi con l ' Alto rappresentante per la PESC ed il Commissario Patten , in quanto ritengo che , nel tentativo di risolvere questo conflitto , la nostra politica di sicurezza comune si vada a poco a poco delineando . 
+Il Commissario Patten ha parlato della responsabilità di cui siamo investiti nella regione . 
+Signor Commissario , vorrei spingermi oltre e far rilevare dove si è sbagliato . 
+Nella fattispecie concreta , si sono tralasciati due interventi contemplati nella risoluzione 1244 : in primo luogo , disarmare l ' UCK nel Kosovo e , in secondo luogo , scioglierlo . 
+Non si è proceduto né in un senso , né nell ' altro . 
+Al contrario , si sono date all ' UCK strutture che prima non aveva . 
+Questo errore ha anche un nome , in quanto è l ' incaricato del Segretario generale dell ' ONU , Bernard Kouchner , il responsabile dell ' omissione . 
+Dobbiamo dirlo apertamente anche in questa sede . 
+Perciò non possiamo limitarci ad offrire i nostri servigi per la soluzione del conflitto , bensì siamo tenuti a rimediare agli errori commessi . 
+Mi compiaccio della disponibilità della NATO . 
+Il disarmo dei terroristi dell ' UCK mi consente di dar loro la denominazione che meritano : terroristi e criminali , non ribelli ! 
+Sono terroristi che devono essere disarmati , e la NATO è disposta ad assumersi questo compito . 
+Mi chiedo perché si debbano inviare ora nella regione altri 3 000 soldati , nelle circostanze note , mentre avremmo potuto disarmare questi criminali e scioglierne l ' organizzazione già in Kosovo . 
+La presenza costante della NATO non deve in alcun mod. su questo concordo pienamente con la onorevole Pack e gli altri deputat. creare una divisione del paese lungo i confini etnici e la NATO non deve consacrare questa scissione con la sua presenza e la buona volontà di prestare aiuto . 
+Essa deve intervenire in Macedonia con un mandato ben concreto , ossia soltanto procedere al disarmo . 
+Signor Presidente , credo che dobbiamo ricordare come la popolazione multietnica macedone abbia fatto fronte al conflitto in Kosovo . 
+Ha accolto circa 250.000 rifugiati , una cifra molto elevata tenuto conto che la popolazione in questione è poco numerosa . 
+Non dobbiamo dimenticarlo ora che la situazione è così precaria in Macedonia . 
+Inoltre ritengo che dobbiamo prendere nota del fatto che la popolazione albanese in Albania non partecipa a questo conflitto , probabilmente perché intravedono la possibilità che la pace possa dare loro un futuro . 
+Possono intravedere uno sviluppo economico , possono vedere uno sviluppo , uno sviluppo democratico . 
+E di questo sviluppo c ' è bisogno in tutta questa regione . 
+Non posso fare a meno di ricordare quanto sia stato facile per i paesi NATO e per molti Stati membri dell ' Unione europea trovare i soldi quando si doveva bombardare la ex Iugoslavia . 
+Dov ' è la stessa volontà di trovare i soldi ora che è necessario ricostruire , ora che è necessario uno sviluppo economico e sociale in questa regione ? 
+E ' questa l ' essenza di tutto il processo di pace . 
+Si tratta di trovare le risorse , perché così si troverà anche la via . 
+Signor Presidente , con grande preoccupazione seguiamo gli sviluppi in un paese confinante con la Grecia , nel quale continuano gli scontri armati e nel contempo si intensificano i negoziati per addivenire ad una composizione definitiva delle controversie che hanno provocato gli scontri . 
+Dopo una guerra o una rivoluzione , la separazione e la segregazione dei popoli entro confini fortificat. che nessuno considera più definitivi e che a loro volta diventano il pretesto per nuovi scontr. costituiscono purtroppo l ' esperienza storica della regione balcanica . 
+Per secoli la pulizia etnica è stata uno strumento per imporre soluzioni simili . 
+Nel paese confinante con il nostro assistiamo al ripetersi di un vecchio copione , la cui protagonista stavolta è l ' organizzazione armata degli estremisti albanesi che , come sempre accade , sfruttano il malcontento , spesso giustificato , di molti loro compatriot. disarmat. per spingerli ad annientare le altre etnie . 
+Da un punto di vista storico l ' Unione europea è l ' ultimo fattore ad essere entrato in gioco a sostegno di taluni principi che , se riuscissero ad imporsi , potrebbero liberare la regione dall ' incubo della sua storia . 
+Per far valere le moderne soluzioni europee , si dovrebbero convincere i popoli di etnia diversa ad abbandonare la logica della separazione e della segregazione entro i confini e ad accettare l ' idea della convivenza sotto la stessa egida statale . 
+Questo principio illuminato viene oggi messo in pratica da due paesi della regione : la FYROM e Cipro . 
+I vantaggi derivanti per i cittadini da una soluzione di stampo europeo sarebbero incalcolabili ; essi presuppongono però la rinunzia alla lotta armata come strumento di ricatto di fronte agli avvenimenti storici . A tale proposito l ' Unione europea non ha certo brillato né per Cipro né per la FYROM ; non si è dimostrata forte con chi esercita la violenza , o meglio ha dato prova di parzialità . 
+L ' eliminazione della violenza non si ottiene organizzando conferenze , colloqui o visite , specie se accompagnati dal mancato rispetto degli impegni internazionali , oppure cedendo alle lusinghe delle antiche potenze coloniali e prendendo sotto la propria ala gruppi armati di una particolare etnia . 
+Si ha l ' impressione che , con il suo comportamento , la NATO stia cercando di trasformare gli albanesi armati nei gurkha della regione . 
+Il dovere delle forze responsabili dell ' intervento nel Kosovo era quello di disarmare l ' UC. ma non l ' hanno fatt. nonché creare una zona di sicurezza intorno al Kosovo stess. ma l ' hanno fatto solo parzialmente e a scapito dei serbi , permettendo all ' UCK di entrare e uscire liberamente . 
+Com ' è noto , l ' UCK si finanzia per mezzo del narcotraffico e di apposite raccolte di fondi effettuate nei nostri paesi . 
+La stampa ha scritto che il governo americano ha congelato i conti albanesi che finanziavano l ' UCK , mentre i paesi europei non hanno fatto nulla del genere . 
+Come possiamo aspettarci che l ' UCK rinunci alla violenza delle armi e perda il proprio prestigio agli occhi della gente , se a nostra volta tolleriamo la presenza di " protegés " armati in Iugoslavia e l ' occupazione trentennale di Cipro da parte di forze armate ? 
+Visto che non diamo prova della necessaria determinazione , sarebbe ipocrita dire ai popoli che lottano tra loro in quella regione che essi sarebbero responsabili delle loro tragedie . 
+Se essi sono responsabili , signor Commissario , noi lo siamo altrettanto per la tragedia storica che si ripete nei Balcani . 
+Mi rendo conto che il Presidente in carica del Consiglio non risponde per motivi di tempo . 
+Molti gruppi nutrivano gravi preoccupazioni riguardo alle armi nei Balcani e al mancato disarmo nella regione . 
+Mi auguro che , anche se non può rispondere ora , il Presidente in carica del Consiglio prenderà in seria considerazione le preoccupazioni espresse da tutti i gruppi e le solleverà in sede di Consiglio dei Ministri . 
+Si tratta di un problema che rischia di diventare cronico , non di una semplice questione locale . 
+Signora Presidente , onorevoli deputati , risponderò molto rapidamente all ' insieme delle domande che sono state poste . 
+Innanzitutto , la Presidenza dovrà garantire una presenza rafforzata dell ' Unione europea nella regione . 
+Da questo punto di vista , la Repubblica federale di Macedonia è un caso cui applicare il nostro obiettivo globale di accrescere la visibilità e l ' efficacia dell ' azione esterna dell ' Unione . 
+Come tutti voi , deploriamo le tensioni etniche che arrivano a coinvolgere anche le strutture di governo . 
+Per quanto attiene al disarmo , esso avviene al momento su base volontaria sotto la supervisione della NATO . 
+Tuttavia , come ha detto il Commissario Patten , deve essere data priorità assoluta alla ripresa del dialogo politico . 
+A proposito degli effetti della crisi sull ' allargamento , vorrei ricordare il processo avviato a Zagabria per dare un ' impronta più europea ai Balcani , per giungere ad un accordo negoziato . 
+L ' onorevole Lagendijk mi ha chiesto se vi erano contatti e in quale modo erano organizzati . Dirò semplicemente questo . 
+Per giungere ad un accordo negoziato , sono necessari tutti i tipi di contatti ed occorre sfruttare tutte le possibili opportunità per allacciare contatti con i ribelli ; ovviamente , onorevole Lagendijk , la valutazione spetta a coloro che sono incaricati del negoziato . 
+La ringrazio per le sue risposte , signor Ministro . 
+La discussione è chiusa . 
+Passiamo ora alle votazioni . 
+Signora Presidente , onorevoli colleghi , faccio riferimento ad un problema attuale : abbiamo molti gruppi di visitatori , e ci rallegriamo che numerosi cittadini dell ' Unione partecipino alle sedute plenarie , come in questo caso . 
+Ma sappiamo anche che è difficile trovare un albergo per cinquanta visitatori : perciò essi devono accettare alberghi che non si trovano a Strasburgo , bensì nei dintorni . 
+Naturalmente vogliamo il dialogo con i cittadini e il colloquio personale fra cittadini dell ' Unione e deputati : ciò avviene da un canto tramite le visite al Parlamento europeo , dall ' altro facendo in modo che il deputato faccia visita agli ospiti negli alberghi e dialoghi con loro . 
+Noi , in quanto deputati , ci rechiamo in Cile... in Sudafrica.. . 
+( Il Presidente interrompe l ' oratore ) 
+Capisco che si tratta di una mozione di procedura , ma in questo momento lei ha diritto soltanto ad un minuto di tempo . 
+VOTAZIONI 
+Signora Presidente , le chiedo solo brevemente la parola perché vorrei precisare , viste le diverse informazioni arrivate sui banchi sotto forma di liste di voto , che coloro che intendono seguire il parere del relatore , in questo caso , devono votare contro la relazione . 
+Ripeto : chi sostiene il parere del relatore deve votare contro la relazione . 
+( Dopo la votazione sul progetto comune della delegazione del Parlamento europeo al Comitato di conciliazione , il Presidente , avendo constatato la parità di voti , fa riferimento al Regolamento ) 
+Presidente . In questa situazione delicata , seguiremo scrupolosamente il Regolamento , come facciamo sempre . 
+Si applica l ' articolo 128, paragrafi 2 e 3, che recita che , in caso di parità di voti in una votazione sull ' insieme dell ' ordine del giorno oppure su un testo posto in votazione per parti separate , il testo messo ai voti il testo si considera approvato , ma che " in tutti gli altri casi di parità di voti , fatti salvi gli articoli che richiedono una maggioranza qualificata , il testo o la proposta sono respinti " . Ne consegue che il testo è respinto . 
+( Vivi applausi ) Mi pare lampante . 
+Vi sono obiezioni ? 
+Signora Presidente , in queste circostanze devo rivolgerle una domanda personale . 
+Tuttavia , se ha preso parte alla votazione , non porrò la domanda . 
+Ha partecipato a questa votazione ? 
+No , onorevole McMillan - Scott , non ho votato . 
+Del resto , ho agito come tutti i Presidenti che mi hanno preceduta e che hanno sempre seguito la saggia regola di votare solo in circostanze del tutto eccezionali , e non per problemi sui quali l ' Assemblea è divisa . 
+Onorevole McMillan - Scott , lei ha il diritto di pensare che io non abbia agito bene . 
+Mi sono interrogata a lungo a questo proposito . 
+Non avevo escluso di trovarmi in una situazione del genere . 
+Ho agito secondo coscienza . 
+E ' possibile che mi sia comportata nel modo sbagliato , ma ho deciso così . 
+Signora Presidente , onorevoli colleghi , ogni Presidente è libero di votare o meno . 
+E ' una sua decisione . 
+L ' esito della votazione è perfettamente chiaro . 
+La relazione non ha ottenuto la maggioranza e noi non dovremmo mettere in dubbio tale risultato . 
+Ciò andrebbe a scapito dell ' efficacia della decisione adottata dal Parlamento . 
+Signora Presidente , mi scuso con lei e con gli onorevoli colleghi se con il mio intervento metto a dura prova la vostra pazienza , ma poiché è stata indulgente con altri deputati , vorrei esprimere un parere molto conciso . 
+Rispetto pienamente la sua scelta personale . 
+Sulla questione della votazione , ha dato l ' interpretazione corretta . 
+Provo grande rammarico per questo risultato , ma si deve vivere da democratici e seguire l ' iter regolare . 
+A nome del gruppo dei liberali democratici , vorrei porre una domanda alla Commissione europea . 
+E ' chiaro che , nella forma presentata , la direttiva sulle concentrazioni e acquisizioni è ora decaduta . 
+Si tratta di una questione di importanza fondamentale e mi auguro che non getterete la spugna a causa di queste difficoltà . 
+Dobbiamo imparare dalle difficoltà e invito la Commissione a raddoppiare quanto prima gli sforzi al fine di presentare una nuova proposta , così da riuscire a portare avanti la riforma di Lisbona . 
+Da quest ' Aula non possiamo lanciare il messaggio che non siamo interessati alle dinamiche economiche fondamentali nell ' Unione europea . 
+Consiglio e Commissione possono venirci incontro al riguardo . 
+La Commissione ha capito perfettamente , onorevole Cox . 
+Raccomandazione per la seconda lettura ( A5 - 0227 / 2001 ) della commissione per l ' industria , il commercio estero , la ricerca e l ' energia relativa alla posizione comune del Consiglio in vista dell ' adozione della direttiva del Parlamento europeo e del Consiglio sulla promozione dell ' energia elettrica prodotta da fonti energetiche rinnovabili nel mercato interno dell ' elettricità ( 5583 / 1 / 200 . 
+C5 ­ 0133 / 200 . 
+2000 / 0116 ( COD ) ) ( Relatore : onorevole Rothe ) 
+Prima della votazione 
+Signora Presidente , ho chiesto la parola prima di altri colleghi e vorrei dire innanzitutto che , riguardo alle sue affermazioni , non si tratta di una posizione personale , e che altri Presidenti in passato hanno seguito la stessa linea , sia il Presidente Hänsch che io stesso . Ritengo assai riprovevole che si eserciti una specie di vigilanza di polizia sul voto dei colleghi . 
+Si tratta di un diritto individuale e personale . 
+Per quanto riguarda la direttiva , mi rivolgo non solo alla Commissione , ma anche al Consiglio . 
+Si tratta di una direttiva tecnicamente molto complessa ; non si può considerare l ' esercizio dei nostri diritti alla stregua di una situazione di irresponsabilità da parte del Parlamento . 
+Vi abbiamo lavorato molto ( lei stessa lo ha fatto in passato in veste di relatrice ) e la lezione che devono trarre oggi Commissione e Consiglio è la seguente : se esistono una doppia lettura parlamentare e una conciliazione , occorre tenere conto della posizione del Parlamento anche per questioni in relazione alle quali , pur avendo offerto molteplici possibilità di transazione , ci siamo scontrati con un muro da parte del Consiglio e della Commissione . 
+Do la parola alla onorevole Rothe che desidera fare una breve dichiarazione sulla procedura . 
+Signora Presidente , la ringrazio per avermi concesso brevemente la parola . 
+Vorrei solo spiegare in modo conciso , proprio per evitare malumori , che gli emendamenti nn . 1 - 11, esclusi gli emendamenti nn . 
+2 e 4, sono il risultato di compromessi raggiunti sin d ' ora col Consiglio , prima della seconda lettura , in una sorta di procedura di conciliazione informale . 
+Vi prego vivamente di accoglierli , in quanto credo che apportino notevoli miglioramenti alla posizione comune . 
+La ringrazio , onorevole Rothe . 
+Sull ' emendamento n. 11 
+Signora Presidente , richiamo brevemente l ' attenzione su una rettifica linguistica necessaria . 
+Nell ' ultima parte dell ' emendamento n . 11, la traduzione in lingua olandese dev ' essere modificata . 
+Adesso si legge : " indien de hiërarchie hierdoor werd ondermijnd " . 
+La versione corretta dall ' inglese deve riportare : " indien deze hiërarchie zou worden ondermijnd " . 
+Signora Presidente , anch ' io avrei un ' osservazione da fare sulla traduzione : vorrei che nel verbale venisse inserita la segnalazione di un errore contenuto nella traduzione finlandese della posizione comune . 
+Il paragrafo b dell ' articolo 2 relativo alle definizioni dovrebbe essere tradotto nella maniera seguente : " biomassa , la parte biodegradabile dei prodotti , rifiuti e residui provenienti dall ' agricoltura ( comprendente sostanze vegetali e animali ) e dalla silvicoltura e dalle industrie connesse , nonché la parte biodegradabile dei rifiuti industriali e urbani " . 
+La parola " prodotti " non appare nella versione in finlandese del testo . 
+Le altre versioni invece erano corrette . 
+Molto bene , la ringrazio della segnalazione . 
+( Il Presidente dichiara approvata la posizione comune così modificata ) 
+Relazione ( A5 - 0220 / 2001 ) dell ' onorevole Karas a nome della commissione per i problemi economici e monetari , sulla proposta di direttiva del Parlamento europeo e del Consiglio relativa alle attività di enti pensionistici per lavoratori autonomi o subordinati ( COM ( 2000 ) 50 . 
+C5 ­ 0596 / 200 . 
+2000 / 0260 ( COD ) ) 
+Prima della votazione sull ' emendamento n. 118 
+Signora Presidente , è la prima volta che faccio una dichiarazione di voto e la faccio sulla decisione del Comitato di conciliazione di approvare la direttiva sull ' OPA , che è stata respinta con un voto di parità da questo Parlamento . 
+Per un verso sono dispiaciuto perché io avrei voluto un voto a favore di questa direttiva . 
+Il mio sentimento più forte , però , è quello di profonda soddisfazione , e il motivo è che , insieme agli altri colleghi della delegazione del Comitato di conciliazione , con il nostro vot . 
+8 a . 
+abbiamo permesso che a decidere fosse l ' Assemblea . 
+Sapevamo che i quindici governi erano divisi fra di loro , che erano divisi al loro interno , che i sindacati e le organizzazioni economiche erano divise , che quasi tutti i gruppi parlamentari erano divisi . 
+Allora , perché decidere alle 2 di notte a Lussemburgo , sette contro sette ? 
+E ' stata una buona decisione e credo che anche gli amici , che avrebbero voluto chiudere la partita a Lussemburgo , ci debbono ringraziare . 
+E ' stata una giornata straordinaria , un voto emozionante , uno di quei giorni che ti fanno amare ancora di più quella straordinaria conquista della storia umana che è la democrazia ! 
+Signora Presidente , il partito laburista in seno al Parlamento europeo ha votato a favore del progetto comune relativo alle concentrazioni e acquisizioni . 
+Pur rendendoci conto del fatto che la direttiva si poneva l ' obiettivo primario di proteggere gli interessi degli azionisti di minoranza e degli investitori da direttori senza scrupoli e da consigli di amministrazione inefficienti nel caso di un ' acquisizione o fusione , in sede di conciliazione abbiamo ottenuto l ' inserimento di alcuni emendamenti presentati dal gruppo socialista , grazie ai quali la direttiva avrebbe riconosciuto gli interessi legittimi dei lavoratori in un ' offerta di acquisizione . 
+Alcuni ritengono che la direttiva non contenesse disposizioni sufficienti in tal senso e non prevedesse una vera e propria consultazione della forza lavoro . 
+Cerchiamo di essere chiari : si è trattato di scegliere tra l ' assenza di informazioni e la fornitura di informazioni alla forza lavoro nell ' ambito di un ' acquisizione o concentrazione . 
+Come ha affermato il segretario generale anziano di un sindacato britannico , si tratta di un passo avanti significativo e offre la possibilità di gettare importanti fondamenta . 
+E ' un errore opporsi alla direttiva perché non prevede diritti adeguati all ' informazione e alla consultazione . 
+La direttiva non avrebbe avuto alcun effetto sull ' acquis communautaire relativo ai diritti dei lavoratori nell ' Unione europea o nei singoli Stati membri . 
+Si trattava di un requisito minimo . 
+Penso sia d ' accordo , signora Presidente , sul fatto che oggi il Parlamento non si è coperto di gloria con il risultato di parità . 
+Non avremo una direttiva sulle concentrazioni e acquisizioni e non avremo diritti all ' informazione e consultazione dei lavoratori , anche se le fusioni e le acquisizioni continueranno a verificarsi in tutta l ' Unione europea . 
+Signora Presidente , plaudo all ' ingresso dell ' onorevole Imbeni nel circolo di coloro che fanno dichiarazioni di voto . 
+Per me non è la prima dichiarazione di voto , questa ! 
+Ero molto incerto , signora Presidente , su come votar. a favore o contr. anche perché si tratta di una questione di carattere finanziario , economico , sulla quale io non ho molta esperienza . 
+Allora , ho seguito volentier. non l ' ho sognata , signora Presidente , purtropp. le indicazioni contenute nell ' intervento dell ' onorevole Kauppi , che è qui dietro di me , che è giovane , sì , ma ha a cuore gli interessi di tutti i pensionati , anche degli italiani ai quali ha parlato più volte . 
+Lei ha detto che , se questa conciliazione fosse passata , avrebbe agevolato i pensionati : io le credo e perciò ho votato a favore . 
+) Signora Presidente , ritengo veramente deplorevole il fatto che il compromesso raggiunto con la procedura di conciliazione sia stato respinto oggi con un margine così ridotto . 
+Questa direttiva sulle acquisizioni era ed è tuttora una parte importante dell ' attuazione finale del mercato unico europeo . 
+L ' elaborazione di questa direttiva ha richiesto molto tempo , dodici anni , e spero che dopo questa bocciatura di stretta misura il lavoro che è stato fatto finora non vada sprecato , ossia spero che si continui a cercare di elaborare delle regole comuni relative alle acquisizioni , forse un giorno riusciremo a trovare un compromesso che riceva il sostegno della maggioranza di questo Parlamento . 
+Mi chiedo anche come la decisione di respingere questa direttiva influenzerà i flussi di capitale in Europa . 
+A mio avviso è estremamente preoccupante il fatto che tutti i progetti ambiziosi che abbiamo fatto a Lisbona siano rimasti solo parole vuote . 
+La bocciatura di questa direttiva dimostra che noi non abbiamo sufficiente volontà politica per attuare le decisioni prese a Lisbona . 
+Signora Presidente , onorevoli colleghi , la decisione odierna di respingere il progetto comune di direttiva concernente le offerte pubbliche di acquisizione all ' interno dell ' UE è deplorevole . 
+Con la mancata approvazione da parte del Parlamento il mercato dei capitali europeo rimane diviso su un punto cruciale , la compravendita di imprese . 
+Occasioni future di crescita del benessere si possono creare solo attraverso l ' apertura dei mercati e il libero scambio . 
+Il Parlamento purtroppo se ne è allontanato . 
+Mi auguravo vivamente che ci saremmo espressi a favore dell ' obbligo di neutralità da parte del consiglio di amministrazione , in quanto gli interessi dei proprietari non sempre coincidono con quelli dei dirigenti . 
+Il riferimento al fatto che la Germania avrebbe bisogno di essere maggiormente protetta da offerte di acquisto ostili , come altri paesi dove esistono golden shares e azioni con voto plurimo , riflette un modo di pensare protezionistico . 
+Non si può fare protezionismo solo perché altri paesi lo fanno . 
+Dopo l ' esito di questa votazione gli Stati europei proteggeranno i pezzi migliori della loro industria e del settore finanziario . Nel complesso questo è un giorno sfortunato per il mercato unico e per l ' Europa . 
+La reiezione della proposta di direttiva sulle OPA segnerà a lungo la fine di qualsiasi serio tentativo di armonizzare i servizi finanziari nell ' Unione europea . 
+Nella decisione del Parlamento confluiscono aspettative profondamente diverse . 
+Ad esempio , essa esprime la legittima frustrazione di coloro che sostengono un ' autentica armonizzazione legislativa , che sono andati riconoscendosi sempre meno in un testo via via più minimalista , tecnicamente zoppicante e politicamente squilibrato , ed hanno voluto sanzionare l ' arroganza dei governi che hanno rifiutato qualsiasi concessione al Parlamento . 
+La delusione inflitta alla delegazione parlamentare in sede di Comitato di conciliazione si spiega tuttavia con l ' acuirsi di un clima del tutto diverso di apprensioni e cautele protezionistiche , che ha fatto andare in frantumi il fragile accordo realizzato nella fase di conciliazione . 
+Alla strategia di rifiuto dei deputati tedeschi hanno man mano aderito numerosi colleghi olandesi , spagnoli ed italiani . 
+Per quanto riguarda la Francia , ha dato prove di liberalismo piuttosto paradossali da parte di un governo socialista , che ha tuttavia consentito ad un ' impresa nazionale iperprotetta di condurre uno spettacolare sforzo di acquisizione in tutte le direzioni e di risvegliare un po ' ovunque in Europa demoni protezionisti dal sonno terribilmente leggero . 
+Pur edulcorata e svilita , e benché la sua applicazione fosse sospesa per cinque anni , a molti la direttiva pareva ancora troppo minacciosa . 
+Nessuno piangerà il naufragio finale di un testo che , tra concessioni e rinunce , era diventato solo l ' ombra di una politica comune . 
+Tuttavia , nessuno può ignorare che questo testo scadente è stato respinto soprattutto per cattive ragioni . 
+Dopo il referendum irlandese , la reiezione di una direttiva riguardante una posta economica essenziale è un ulteriore segno della gravissima crisi politica e morale che attraversa oggi l ' Europa . 
+E ' un bene che il Parlamento europeo abbia appena respinto il risultato della conciliazione sulla tredicesima direttiva ( OPA ostili ) . 
+Ciò significa che questa incoerente proposta di direttiva è stata finalmente spazzata via dal tavolo di discussione e che la Commissione europea si potrà ben presto mettere al lavoro per elaborare nuove proposte . 
+Se la Commissione terrà conto dei sentimenti della stragrande maggioranza del Parlamento , potrà presentare tra breve una nuova proposta di direttiva . 
+I presupposti per la rapida approvazione da parte del Parlamento sono : che la decisione su un ' offerta ostile non venga lasciata agli azionisti , ma al Consiglio d ' amministrazione , che sia quest ' ultimo a stabilire , tenuto conto di tutti gli interess. e quindi anche della posizione dei lavorator . , se la nuova proposta crei un vero level playing field all ' interno dell ' Europa , il che significa , fra l ' altro , che si devono vietare gli interventi statali , sotto forma di golden share o altro , volti a impedire le acquisizioni e che si deve permettere in ogni caso che nell ' Unione europea le imprese applichino le medesime opzioni difensive delle aziende con sede negli Stati Uniti . 
+Soltanto in questo modo avremo una proposta legislativa equilibrata , conforme alla tradizione socioeconomica della maggior parte dei paesi europei , che ponga un freno a quel fondamentalismo di mercato che è alla base della proposta appena respinta . 
+. ( SV ) Sono qui in esame le regole istituzionali per il grande capitale europeo in materia di acquisizione di grandi aziende . 
+Da un lato abbiamo una tradizione anglosassone improntata al laissez - faire e ai principi del libero mercato . 
+Dall ' altro , invece , una tradizione continentale di stampo corporativista e protezionista . 
+Non a caso , una delle due proposte è stata presentata da un collega tedesco e l ' altra , nella discussione di ieri , è stata sostenuta soprattutto da colleghi inglesi . 
+Sebbene la relazione Lehne contempli un minimo di attenzione , un po ' corporativa e patriarcale , nei confronti dei dipendenti delle grandi aziende , noi riteniamo che nessuna delle alternative proposte tuteli gli interessi dei lavoratori . 
+Le respingiamo entrambe ed esigiamo invece che la Commissione presenti una nuova proposta volta a chiarire in che modo gli interessi e le esigenze dei lavoratori e dei consumatori possano essere tutelati in occasione di acquisizioni di grandi imprese . 
+La polemica che ha circondato la procedura di conciliazione relativa alla presente proposta di direttiva , percepibile dal risultato della votazione in Assemblea ( reiezione con un voto di parità ) , dimostra come si contrapponessero due concezioni contraddistinte da alcune differenze pratiche riguardo al processo di armonizzazione della legislazione in materia di offerte pubbliche di acquisizione . 
+Sebbene durante la procedura di conciliazione siano stati compiuti alcuni piccoli progressi a favore della difesa degli azionisti di minoranza e siano state approvate alcune norme relative all ' obbligo di informazione dei lavoratori , la situazione continua a non garantire appieno la possibilità di intervenire ai lavoratori e ai piccoli azionisti . 
+Infine , per quanto la posizione risultante dalla conciliazione potesse contenere alcuni aspetti interessanti per il Portogallo , dato che le imprese portoghesi possono rappresentare un facile bersaglio potenziale da parte di offerte transfrontaliere , vi sono altre maniere più consone di difendere gli interessi nazionali . 
+Ciò spiega il nostro voto di astensione . 
+E ' con un certo rammarico che ho votato contro questo risultato della procedura di conciliazione . 
+So che sono stati compiuti enormi sforzi per concedere alla forza lavoro un maggiore accesso all ' informazione e per proteggere i diritti dei piccoli azionisti . 
+Tuttavia , ritengo che gli Stati membri non si siano impegnati in modo sufficiente nei confronti dell ' ampliamento della consultazione dei lavoratori e , in realtà , in alcuni Stati membri i risultati sarebbero stati regressivi . 
+Non credo che dovremmo aumentare i diritti di alcuni lavoratori a spese di altri , né dovremmo votare per diritti di consultazione inferiori a quelli che vorremmo fossero riconosciuti nella futura direttiva . 
+La nostra posizione dev ' essere coerente . 
+Dobbiamo ora esercitare pressioni sui governi nazionali affinché adeguino le proprie normative agli standard più elevati in materia , non nasconderci dietro un compromesso internazionale . 
+Per quanto riguarda i piccoli azionisti , sarà necessario fare di più delle proposte contenute in questo documento per proteggere i loro diritti rispetto a quelli dei grandi azionisti , la cui posizione giuridica può imporre loro di ricercare il massimo profitto in una prospettiva a breve termine . 
+Non dobbiamo incoraggiare questa impostazione . 
+Migliorando il testo originale , si è tenuto conto del punto di vista del Parlamento ; il VVD può accettare questo testo . 
+E ' previsto un più ampio obbligo d ' informazione nei confronti dei lavoratori e inoltre occorre assicurare chiarezza in vista delle futura occupazione . 
+La Commissione ha anche promesso d ' incaricare un comitato di esperti di relazionare prima del marzo 2002 su una serie di presunte anomalie ed evidenti squilibri che possono condurre ad una distorsione dei principi del mercato interno . 
+Se tale indagine confermerà le supposizioni , la Commissione adotterà le misure del caso . 
+Gli oppositori intendono respingere la direttiva in esame per attendere una nuova proposta da elaborare a breve termine . 
+Abbiamo però potuto vedere che gli interessi nazionali possono frustrare e ritardare in maniera sostanziale la presentazione di una nuova proposta . 
+L ' ora dell ' egocentrismo è ormai passata e noi non possiamo chiudere gli occhi dinanzi alla globalizzazione delle nostre economie . 
+Le aziende e gli investitori europei devono poter competere con il resto del mondo . 
+Siamo consapevoli che la direttiva in questione non meriterà un premio di bellezza , ma il respingerla ci farà compiere un passo indietro , il che non è certo nell ' interesse dell ' Europa . 
+Alla fin fine fermarsi significa retrocedere e la paura è cattiva consigliera . 
+Per questo motivo abbiamo espresso voto favorevole . 
+Il progetto comune di direttiva del Parlamento europeo e del Consiglio in materia di diritto delle società concernente le offerte pubbliche di acquisizione viene respinto dal mio gruppo . 
+Il compromesso trovato in sede di Comitato di conciliazione per noi è inaccettabile . 
+Secondo il proverbio " chi la dura , la vince " , dopo 12 anni di discussioni avremmo potuto aspettarci una direttiva perfetta . 
+Invece è successo il contrario . 
+Quali sono i problemi ? 
+1 . 
+Negli Stati membri esistono società protette , sia mediante limitazioni di voto e golden shares , che attraverso diritti di voto plurimo , eccetera . La direttiva stabilisce che le società protette possono acquisire quelle non protette , mentre non è possibile il contrario . 
+Ciò significa che non vi è parità di trattamento ( level playing field ) . 
+2 . 
+Mancano i criteri per la determinazione del prezzo equo da offrire in caso di offerta pubblica obbligatoria , nonché i principi concernenti il diritto degli azionisti di maggioranza ad acquistare le quote degli azionisti di minoranza . 
+3 . 
+Le società europee verrebbero esposte alle pressioni dei grossi gruppi finanziari , cosicché non sarebbe più il valore aggiunto ad essere messo in primo piano , bensì esclusivamente la massimizzazione del profitto . 
+Ciò a sua volta aumenterebbe il rischio di massicce perdite di posti di lavoro in caso di acquisizioni secondo tale modello . 
+4 . 
+I diritti di codecisione dei rappresentanti dei lavoratori sono formulati in modo disarticolato . 
+L ' obbligo d ' informazione non implica che ci sia un ' influenza sul processo di acquisizione da parte dei rappresentanti dei lavoratori . 
+I problemi esposti sono ben noti anche alla Commissione , dal momento che propone di chiedere ad un gruppo di esperti una consulenza su un ' ulteriore armonizzazione del diritto societario e di esprimere un parere , entro marzo 2002, sull ' articolo 9 della presente direttiva concernente le offerte pubbliche di acquisizione . 
+Che razza di logica è questa ? 
+Penso che sarebbe stato più sensato convocare prima un gruppo di esperti , presentare i risultati del loro lavoro e solo successivamente emanare una direttiva , invece di emanare prima una direttiva e poi chiedere consiglio ad un gruppo di esperti sui problemi irrisolti della direttiva . 
+Inoltre è indispensabile adottare con urgenza , nell ' ambito della direttiva sulle offerte pubbliche di acquisizione , una direttiva sull ' obbligo di neutralità . 
+E ' dal 1972 che il relativo progetto è in attesa di delibera . 
+Esortiamo vivamente il Commissario Bolkestein ed il Consiglio a svolgere i compiti assegnati loro . 
+Abbiamo respinto il presente documento perché volevamo dare loro questa possibilità . 
+La direttiva del Parlamento e del Consiglio in materia diritto societario , relativa alle offerte pubbliche di acquisizione ( OPA ) è volta ad armonizzare le legislazioni degli Stati membri nel caso in cui una società disciplinata dalla legge di uno Stato membro sia oggetto di un ' OPA e i suoi titoli ( valori mobiliari ed azioni ) siano ammessi alla negoziazione su un mercato regolamentato . 
+L ' obiettivo principale è la tutela degli interessi degli azionisti di minoranza e in particolare , mediante l ' armonizzazione , la tutela di tali interessi quando l ' OPA assume carattere transfrontaliero . 
+Si intende in tal modo , attraverso la definizione di un principio di parità di trattamento per tutti gli azionisti , creare le condizioni minime affinché tutti gli azionisti possano pronunciarsi e valutare i termini dell ' offerta presentata , garantendo allo stesso tempo , mediante norme per l ' annuncio dell ' offerta e limiti temporali per il periodo di accettazione , il mantenimento delle condizioni di funzionamento dell ' impresa durante il periodo in questione . 
+Do pertanto pieno appoggio all ' accordo raggiunto e , di conseguenza , al progetto comune , adottato dal Comitato di conciliazione , di direttiva del Parlamento europeo e del Consiglio relativa alle offerte pubbliche di acquisto , volto ad introdurre una serie di norme armonizzate che disciplinino la materia e garantiscano pari tutela a tutti gli azionisti . 
+Un tempo la maggior parte delle aziende era di piccole dimensioni e era legata a una città o a una regione . 
+La loro proprietà non era anonima e i dipendenti vi lavoravano per tutta la durata della loro attività professionale . 
+Per molto tempo le autorità statali hanno dato il loro appoggio cercando di far restare le aziende in mano a un proprietario regionale o nazionale oppure di creare imprese su base non commerciale che potevano meglio servire gli interessi dei lavoratori e dei consumatori . 
+In una società in cui tutto viene subordinato ad un mercato libero e alla concorrenza su scala mondiale , le imprese sono diventate una merce di scambio . 
+Se tali operazioni vanno bene ai nuovi acquirenti e ai vecchi azionisti , esse vengono concluse perché il loro margine di profitto è inferiore rispetto a quello delle restanti imprese del gruppo , perché il loro marchio commerciale può essere applicato su altri prodotti oppure perché la loro produzione può essere trasferita in un paese dove la manodopera riceve un basso salario e le norme ambientali sono insufficienti . 
+Le conseguenze sull ' occupazione , la coesione sociale nell ' ambito dell ' azienda , i consumatori e lo spazio per una politica statale fissata secondo criteri democratici sono estremamente negative . 
+Perciò imprese trasparenti , controllabili e di piccole dimensioni vanno preferite di gran lunga a colossi su scala mondiale che continuano a stupire gli altri e a imporre le regole . 
+Fusioni senza che sia previsto il diritto di veto per il sindacato e per le autorità statali sfociano in autentiche catastrofi . 
+Respingo con fermezza il commercio di aziende e voto contro la proposta . 
+Con mio disappunto ho dovuto votare contro il risultato conseguito dal comitato di conciliazione in merito alla direttiva sulle acquisizioni . 
+Mi spiace che , anche a causa del mio voto contrario , siano andati perduti tanti anni di lavoro , ma alla fin fine dobbiamo applicare quale criterio la qualità del prodotto finale . 
+Tale prodotto finale non è di qualità ; tra l ' altro perché indebolisce la posizione delle imprese europee nei confronti delle offerte americane , in particolare rendendole più deboli di quanto lo sia un ' azienda statunitense oggetto di un ' offerta europea . 
+Inoltre tutti si concentrano su un unico aspetto , vale a dire l ' aumento di capitale , mentre altre tecniche o strumenti difensivi non vengono armonizzati . 
+Chi pensa che , con questa proposta le imprese europee vengano trattate in maniera paritaria , si sbaglia di grosso . 
+Con tutta franchezza , è con profondo rammarico che , per tutte queste ragioni , non ho potuto fare altro se non esprimere voto contrario . 
+Raccomandazione per la seconda lettura Rothe ( A5 - 0227 / 2001 ) 
+Signora Presidente , sono stato di recente nella bellissima isola italiana di Capri : sole , mare , cielo blu , e mi sono ricordato di un ' altra bella isola , questa volta in Svezia , l ' isola di Gotland , anche quella bellissima : mare , cielo , sole e ... mulini a vento ! 
+C ' erano , Presidente , dato che quelle isole sono molto ventose , dei congegni che trasformano l ' energia del vento in energia elettrica . 
+Ecco , questa è l ' Europa che a me piace molto , e credo che piacerebbe anche ai cittadini europei . 
+Perciò ho votato a favore di un maggiore impegno nelle energie rinnovabili . 
+Signora Presidente , oggi abbiamo votato , in seconda lettura , il documento sulla promozione , all ' interno del mercato unico , dell ' energia elettrica prodotta da fonti energetiche rinnovabili . 
+Il Libro bianco della Commissione ci ha posto un obiettivo , ovvero che entro il 2010 una quota del 12 per cento del consumo di energia sia coperto da fonti energetiche rinnovabili . 
+Per raggiungere tale obiettivo dobbiamo incentivare in vari modi la produzione di energia elettrica da fonti energetiche rinnovabili , in quanto siamo ancora molto lontani da tale risultato . 
+Le nuove tecnologie necessitano di meccanismi di promozione poco burocratici , semplici ed efficienti . 
+Colgo l ' occasione per sottolineare l ' importanza delle energie rinnovabili soprattutto per le zone rurali . 
+La produzione di energia , la coltivazione di piante energetiche , rappresentano una fonte di reddito alternativa per gli agricoltori europei che va assolutamente sfruttata . 
+In tal modo la multifunzionalità delle zone rurali può essere rafforzata ed utilizzata in misura crescente . 
+La ritengo una grossa opportunità per l ' agricoltura e per un ambiente rurale sano all ' interno dell ' Europa comune . 
+Signora Presidente , abbiamo appena votato per la definizione delle fonti energetiche rinnovabili e abbiamo anche determinato con più precisione il concetto di " biomassa " . 
+Per biomassa s ' intende la parte biodegradabile dei prodotti , rifiuti , e residui provenienti dall ' agricoltura , dalla silvicoltura e dalle industrie connesse . 
+Benché il Parlamento non abbia purtroppo ribadito la definizione che era stata approvata precedentemente , secondo la quale la torba viene classificata come fonte energetica rinnovabile proprio perché si rinnova ogni anno , vorrei affermare che la torba è contenuta in maniera implicita nella versione che è stata approvata . 
+Ogni giardiniere sa che la torba è biodegradabile , essa si decompone totalmente e la sua formazione ha un ' origine biologica . 
+I batteri e i microbi ne causano la decomposizione quando la torba viene a contatto con l ' ossigeno . 
+La torba si decompone anche se si trova sulla superficie di una palude e su questo si basa anche la teoria della formazione della torba : le paludi tendono a svilupparsi dove il tasso di formazione della torba è più alto rispetto al suo tasso di decomposizione . 
+Visto che tutto questo è stato provato scientificamente , spero che d ' ora in avanti il Parlamento , il Consiglio e la Commissione trasformeranno ciò che è implicito in esplicito e includeranno la torba nella lista delle fonti energetiche rinnovabili , ciò è auspicabile anche per la difesa dell ' ambiente . 
+Il mio emendamento che era stato approvato dal Parlamento a novembre conteneva anche dei limiti per l ' uso della torba , non si tocca il capitale ma si trarre beneficio dagli interessi . 
+Le organizzazioni per la tutela dell ' ambiente si sono paradossalmente opposte alla formulazione relativa alla proibizione dello sfruttamento delle paludi dame proposta , ma la loro posizione era fondata su informazioni molto datate sul ciclo del carbonio . E questo è il risultato , l ' avidità non può altro che causare danni e ciò vale anche per l ' avidità degli ambientalisti . 
+Mi auguro che il dibattito su questa questione prosegua . 
+La commissione per l ' industria ha approvato all ' unanimità la relazione della onorevole Rothe ( PSE , Germania ) sulla posizione comune del Consiglio sulla direttiva riguardante la promozione della produzione di elettricità da fonti energetiche rinnovabili ( FER ) nel mercato interno . 
+La posizione comune , approvata a marzo , si allontana in modo considerevole dalla posizione adottata in prima lettura dal Parlamento nello scorso novembre , nonostante che il Consiglio abbia ripreso circa un terzo degli emendamenti proposti dal Parlamento . 
+La relatrice si è adoperata per raggiungere un compromesso prima della seconda lettura in Aula ed ha spiegato alla commissione competente che il Consiglio , in occasione del trilogo organizzato martedì 19 giugno , aveva manifestato il proprio accordo per otto dei nove emendamenti di compromesso . 
+L ' unico punto che resta da risolvere è se l ' incenerimento dei rifiuti debba essere considerato come fonte energetica rinnovabile . 
+Il Consiglio è favorevole . 
+I deputati sottolineano tuttavia che l ' appoggio fornito alle energie rinnovabili deve essere compatibile con gli altri obiettivi comunitari , segnatamente quello del " rispetto della gerarchia nello smaltimento dei rifiuti " . 
+Per questa ragione , né questa direttiva né un futuro regime di sostegno delle fonti energetiche rinnovabili dovrebbero incoraggiare l ' incenerimento di rifiuti domestici non differenziati . 
+Una delle più profonde divergenze tra i due organi legislativi verte sulla questione del carattere vincolante o semplicemente indicativo degli obiettivi nazionali in materia di utilizzo delle fonti energetiche rinnovabili . 
+A novembre il Parlamento insisteva sulla necessità di disporre di obiettivi vincolanti , ma il Consiglio vi si è opposto . 
+Il compromesso stabilisce che se gli Stati membri non hanno fatto progressi nel perseguimento dei loro obiettivi indicativi nazionali , la Commissione dovrà presentare proposte che possono prevedere obiettivi vincolanti . 
+Gli obiettivi indicativi nazionali dovranno essere compatibili con l ' obiettivo indicativo globale che stabilisce che nel 2010 il 12 per cento del consumo energetico interno lordo dovrà provenire da fonti energetiche rinnovabili . 
+Parallelamente , queste ultime dovranno rappresentare una quota indicativa del 22,1 per cento del consumo totale di elettricità all ' interno della Comunità . 
+( Dichiarazione abbreviata in applicazione dell ' articolo 137 del Regolamento ) 
+. L ' importanza dell ' energia rinnovabile e l ' incremento del suo utilizzo in Europa : queste logiche sono alla base del provvedimento al nostro esame in seconda lettura . 
+Riaffermo in questa occasione la mia soddisfazione per lo sforzo congiunto che fissa per il 2010 quella cifra significativa del 12 percento del mercato elettrico europeo di provenienza da fonti rinnovabili a beneficio anche dell ' ambiente : sappiamo quanto questi temi siano di attualità , specie in connessione con i cambiamenti climatici . 
+Per l ' " oro bianco " , l ' acqua impiegata nelle zone di montagna d ' Europa per la produzione dell ' energia idroelettrica , ciò significa un ' evidente valorizzazione quale risorsa fondamentale per l ' economia montana . 
+Sono lieto che , come risulta dagli atti parlamentari , alcuni miei suggerimenti migliorativi figurino conclusivamente nel testo . 
+Ciò consentir. ed è un esempio concreto significativo , benché su piccola scal. alla mia Valle d ' Aosta , regione alpina per eccellenza , di poter con fiducia puntare ed investire nel settore idroelettrico , a conclusione della quarantennale situazione di espropriazione di un caposaldo per la ricchezza dell ' economia locale derivante dalla nazionalizzazione e dal monopolio del settore elettrico in Italia , cui solo ora si pone rimedio grazie alla spinta europea , che riapre il gioco anche per competenze regionali derivanti per la mia Valle dallo Statuto di autonomia . 
+E ' positivo , in questo senso , che l ' Unione europea valorizzi quella fonte rinnovabile per definizione che è l ' idroelettrico , offrendo sicurezza e meccanismi incentivanti sul mercato , da cui ricaveranno sicuri vantaggi anche le zone di montagna , specie laddove a gestire le società elettriche saranno dirette emanazioni delle popolazioni locali . 
+In conseguenza al funzionamento del mercato , dove è importante individuare non tanto l ' energia più pulita , quanto quella più economica , si rischia di assistere al ritorno di combustibili inquinanti quali energia nucleare , carbon fossile , lignite e petrolio . 
+Nei Paesi Bassi centrali elettriche relativamente non inquinanti sono bloccate per poter importare energia a basso prezzo , ma non certo pulita . 
+Riuscire a sostituire quanto prima i combustibili inquinanti rimpiazzandoli con l ' energia solare , eolica ed idrica è indispensabile per preservare l ' ambiente in cui viviamo . 
+Invece di adoperarsi attivamente a favore di nuove forme di produzione elettrica , si chiede ai singoli consumatori di acquistare energia più pulita ad un altro prezzo da un altro fornitore . 
+Adesso questo tipo di fornitori può offrire una minor quantità di energia pulita rispetto a quella richiesta dal consumatore . 
+Ciò sfocia in tentativi di annoverare un maggior numero di forme di produzione energetica tra quelle pulite . 
+Da sempre si sono inceneriti i rifiuti domestici organici non separati e le scorie di legno ; improvvisamente questo tipo di combustione viene annoverato nella categoria della produzione pulita al fine di poter raggiungere gli obiettivi previsti . 
+Il mio sostegno a favore della produzione di energia pulita non si spinge al punto di abbracciare queste aggiunte . 
+Importanti investimenti in nuovi tipi di energia pulita che anticipano le richieste dei consumatori e che non dipendono dallo smaltimento dei rifiuti rappresentano un ' alternativa al sistema che adesso viene proposto dal Consiglio . 
+. ( SV ) Noi cristiano democratici svedesi salutiamo questa direttiva sull ' energia elettrica prodotta da fonti energetiche rinnovabili . 
+Troviamo ragionevole che l ' elettricità prodotta dalla combustione della frazione biodegradabile dei rifiuti domestici urbani possa essere inclusa negli obiettivi guida fissati a livello nazionale . 
+Avremmo però preferito che la combustione di rifiuti domestici urbani non differenziati non potesse essere considerata come produzione di elettricità derivante da fonti rinnovabili e pertanto non accettiamo l ' idea che tale combustione di rifiuti non differenziati debba essere sovvenzionata . 
+Il compromesso negoziato con il Consiglio in questo ambito ci pare troppo debole . 
+A tale riguardo il Consiglio ha preso una decisione senza considerarne a fondo il contenuto . 
+La necessità che questa direttiva sia adottata quanto prima , non da ultimo pensando al ruolo guida dal quale l ' Unione non dovrà recedere nei prossimi negoziati sul clima , ci pare rappresentare una motivazione sufficiente per sostenere il compromesso negoziato con il Consiglio in questo ambito . 
+Abbiamo pertanto scelto di sostenere il compromesso . 
+Relazione Karas ( A5 - 0220 / 2001 ) 
+Signora Presidente , la relazione Karas riguarda i fondi professionali di pensione . 
+Oggi , signora Presidente , non è il 4 luglio 2001, è il 4 luglio del 2030 . 
+Lei non faccia il conto di quanti anni avremo nel 2030 e ascolti la fine . 
+Nel 2030 un pensionato francese incontra un pensionato inglese e gli dice : " Hai visto che bella pensione abbiamo ? 
+Pensa che , nel 2000, i cittadini europei avevano meno della metà della pensione che abbiamo noi . 
+E come ci siamo riusciti ? 
+Perché abbiamo obbligato , con una direttiva europea successiva , tutti gli Stati ad impegnare tutti i fondi pensione , pagati fino a quel momento allo Stato , nei fondi professionali , che hanno bene gestito i denari e quindi realizzato buone pensioni " . 
+Il progetto di direttiva e la relazione Karas sui fondi pensione e sui regimi complementari sono un ulteriore attacco ai sistemi pensionistici esistenti nell ' Unione europea . 
+La relazione Karas si basa sulle conclusioni molto liberali del Consiglio europeo di Feira per approvare la direttiva . 
+Il procedimento è fondato su un ' armonizzazione minima delle norme e su un approccio " anglosassone " della normativa , il che significa una mancanza di regole precise nel definire gli impegni assunti dai fondi pensione . 
+La direttiva risponde alle esigenze dell ' industria dei fondi pensione inglesi ed olandesi che vogliono essere liberi di intervenire a livello europeo con un fondo unico invece di fondi diversi presenti in ciascun paese . 
+L ' Unione europea si sottomette nuovamente alla dittatura del mercato unico e questa volta , nel settore pensionistico , con conseguenze che conosciamo fin troppo bene : aggravamento delle disparità tra lavoratori , assoggettamento del risparmio pensione ai mercati finanziari e agli azionisti nonché aumento della pressione dei fondi pensioni rispetto al lavoro dipendente . 
+Anziché armonizzare verso il basso e creare un mercato unico in materia di pensioni , dovremmo attuare a livello europeo un sistema basato sulla solidarietà e la perequazione . 
+Per queste ragioni abbiamo votato contro la relazione Karas e respingiamo il progetto di direttiva . 
+Gli imprenditori hanno scoperto i fondi pensionistici aziendali quale fonte di capitale a rischio . 
+I responsabili politici considerano tali fondi come parte di un mercato finanziario integrato che deve contribuire ad aumentare la competitività dell ' economia europea . 
+Aspettandosi un aumento del guadagno , il denaro dei fondi pensionistici viene messo in mano ad aziende che hanno come unico obiettivo il profitto . 
+Gli azionisti di banche e compagnie di assicurazioni traggono subito vantaggio da tali profitti , mentre i pensionati sopportano il crescente rischio derivante dal venir meno di misure protettive e gli svantaggi del passaggio ad un altro datore di lavoro o ad un altro Stato membro non vengono risolti . 
+La normativa europea proposta non tiene conto delle ragioni per cui sono sorti i fondi pensionistici . 
+La pensione costituisce uno strumento di ridistribuzione ed integrazione del reddito , così da assicurare a tutti una vita adeguata , anche quand. a 70, 90 o 110 anni d ' et. non sono più produttivi . 
+Una pensione statale uguale per tutti e sufficiente rappresenta la miglior garanzia che nessuno perda il diritto al reddito . 
+Invece i fondi pensionistici aziendali risultano vantaggiosi soltanto per coloro che occupano un posto di lavoro fisso e ben remunerato ; essi non offrono una soluzione per coloro che sono stati spesso costretti a cambiare posto o datore di lavoro . 
+Ciò vale in misura ancor maggiore per le pensioni private integrative , che sono accessibili solo per chi è in grado ed è disposto a investire il proprio surplus presso una società di assicurazioni durante gli anni produttivi . 
+Relazione Ettl ( A5 - 0211 / 2001 ) 
+La relazione dell ' onorevole Ettl si riferisce alla solvibilità delle assicurazioni sulla vita . 
+Io credo , signora Presidente , che l ' Europa , che ha tanto a cuore la qualità della vita dei cittadini europei , la qualità dei beni di consumo di qualunque genere , dovrebbe obbligare le compagnie di assicurazione sulla vita che rispettano questa direttiva ad aggiungere al loro nome la dichiarazione : " E ' una compagnia di assicurazione affidabile secondo la direttiva europea " . 
+Ad esempio : " Assicurazione Tal dei Tali , affidabile " , perché il cittadino deve sapere che quella assicurazione impiega bene i suoi fondi . 
+Relazione Ettl ( A5 - 0212 / 2001 ) 
+La seconda relazione dell ' onorevole Ettl prevede , anch ' essa , maggiori garanzie perché le assicurazioni diverse dalle assicurazioni sulla vita siano solvibili . 
+Ebbene , a questa ho pensato questa notte , signora Presidente . 
+Ho dormito molto male , stanotte , ho avuto un vero incubo . 
+Perché ? 
+Ho sognato che , purtroppo , la casa dove abito andava distrutta ; io correvo via dalla camera da letto e vedevo disperato la casa dell ' onorevole Fatuzzo distrutta . 
+Ed ero ancora più disperato perché mi ero assicurato con una pessima compagnia di assicurazione . 
+In quel momento mi sono svegliato e mi sono ricordato , per fortuna , che la mia assicurazione è invece una buona assicurazione e , soprattutto , che la mia casa non era distrutta e mi trovavo a Strasburgo . 
+Relazione Flesch ( A5 - 0226 / 2001 ) 
+Per illustrarle , signora Presidente , la mia dichiarazione di voto sulla relazione dell ' onorevole Flesch , che riguarda la denominazione " .EU " nei computer , devo dirle che nei giorni scorsi ho incontrato , proprio a Strasburgo , un ' affascinante ragazza di uno dei paesi dell ' est europeo , di uno dei paesi che chiedono di entrare nella nostra Unione . 
+Chiacchierando e passeggiando , questa giovane ragazza di questo paes. un paese bulgar. mi ha chiesto : " Come mai voi non autorizzate gli Stati candidati a entrare nell ' Unione europea a utilizzare anche loro il livello Internet " .EU " " ? 
+E ' per questo che io rivolgo la domanda all ' onorevole Flesch . 
+Questa relazione riguarda una proposta di regolamento relativa al dominio Internet di primo livello ' .EU ' . 
+La proposta della Commissione risponde alle richieste formulate in occasione del Consiglio di Lisbona ( 23 - 24 marzo 2000 ) . 
+Il Consiglio di Stoccolma ( 23 - 24 marzo 2001 ) ha ribadito lo stesso auspicio affermando che " il Consiglio adotterà , insieme alla Commissione , le misure necessarie a garantire che il dominio .eu di primo livello sia disponibile per tutti gli utenti quanto prima " . 
+Tale formulazione può sembrare un po ' barbara e necessita di alcune spiegazioni . 
+Questo regolamento vuole essere un atto a carattere generale che definisce un quadro per la creazione di un registro ' .EU ' . 
+Tale registro dovrebbe concludere contratti sia con la Commissione sia con l ' ICANN ( Internet Corporation for Assigned Names and Numbers ) . 
+Ricordo che l ' ICANN è stata creata nell ' ottobre 1998 per far fronte all ' egemonia americana nella gestione di Internet . 
+Questa società privata senza scopo di lucro si occupa di quattro settori chiave di Internet , tra cui il DNS ( sistema dei nomi di dominio ) e l ' assegnazione di spazi per gli indirizzi IP . 
+L ' ICANN è costituita da un comitato di direzione di cui fanno parte 19 membri . 
+I direttori ed i membri esterni sono scelti secondo criteri di equilibrio geografico . 
+L ' ICANN comprende infine quattro comitati di consulenza , tra cui il GAC ( Governmental Advisory Committee ) di cui fanno parte la Commissione europea e gli Stati membri . 
+L ' Unione europea ha deciso , con mia grande soddisfazione , di investire di più in seno a quest ' organo per poter rivestire un ruolo determinante nella gestione internazionale di Internet e rafforzare la neutralità dell ' ICANN . 
+Nella stessa ottica , se l ' Unione europea auspica di affermarsi nel ciberspazio , deve creare un nome di dominio come hanno fatto i suoi Stati membri , i cui territori nazionali si riconoscono su Internet mediante nomi di dominio quali ' .uk. ' o ' .be ' . 
+Una simile iniziativa costituirebbe un fattore determinante per l ' accelerazione dello sviluppo dell ' economia e del commercio elettronici in Europa . 
+Mi è quindi parso importante convalidare il buon lavoro eseguito dalla relatrice . 
+Consiglio europeo di Göteborg 
+Signora Presidente , vorrei dare un giudizio anche sulla relazione sul Consiglio di Göteborg . 
+Come lei sa , si è deciso in questo Consiglio di affrontare con decisione il problema delle pensioni nei quindici Stati dell ' Unione europea . 
+Secondo lei , potevo io non intervenire per spiegare perché ho votato a favore ? 
+Ieri , a pranzo , in un convegno del Kangaroo group , qui al Parlamento europeo , ho ascoltato con piacere il leader di un ' industria giapponese che ha detto : " Noi industriali giapponesi attendiamo con ansia che in Europa ci sia una pensione unica europea , con regolamenti e leggi uguali in tutta Europa " . 
+Perciò non sono il solo che chiede una pensione europea ! 
+Mi rallegro quindi e pertanto ho votato a favore di questa relazione perché il Consiglio di Göteborg ha imboccato questa strada . 
+Signora Presidente , con questa risoluzione ci siamo pronunciati sul tema Macedonia , ed io vorrei solo aggiungere che ritengo positivo che l ' Unione europea si impegni a fondo in Macedonia , ma senza assumere atteggiamenti da maestro , bensì nel rispetto delle persone e delle popolazioni locali . 
+La Macedonia è guidata da un governo di ampia coalizione , in cui sono rappresentate tutte le nazionalità . 
+Ha un Primo ministro ed un eccellente Capo di Stato , entrambi europeisti . 
+Visto che parliamo così tanto dei diritti delle minoranze , dovremmo renderci conto una buona volta che i modelli europei sulle minoranze di cui discorriamo tanto nell ' Unione europea purtroppo non esistono . 
+Pertanto dovremmo veramente accostarci a questo tema con una certa umiltà e offrire i nostri buoni servigi senza recitare di continuo la parte dei maestri . 
+Dovremmo innanzitutto rafforzare il governo , mettendo in chiaro che chi collabora con l ' Unione europea , così come sta facendo la Macedonia , riceverà un massiccio sostegno , sia a livello politico che materiale . 
+Per questo motivo mi sono rammaricato del fatto che il Commissario Patten , che adesso purtroppo non è più presente , abbia detto che se inviassimo i nostri fondi laggiù , verrebbero usati per le bombe . 
+La considero un ' affermazione davvero strana nei confronti di questo governo di grande coalizione eletto democraticamente . 
+Io spero che i nostri amici macedoni , nella persona del loro Capo di Stato , possano presto farci visita a Strasburgo , cioè mi auguro che la visita di Boris Trajkovski possa essere rimandata ad altra data . 
+Dobbiamo procedere contro i fenomeni di degenerazione , ma possiamo farlo soltanto rafforzando le autorità democratiche . 
+Signora Presidente , nell ' interesse di un ' Unione europea democratica e giusta chiedo al Consiglio di rispettare il rifiuto della popolazione irlandese del Trattato di Nizza , fermandone immediatamente la ratifica . 
+Invito anche la Commissione , in veste di custode dei Trattati , a garantire che sia mantenuto il requisito dell ' unanimità . 
+Chiedo parimenti la sospensione di ogni misura di ulteriore ratifica . 
+Insieme alle persone che rappresento , sostengo un ' Europa unita e democratica nonché il suo allargamento . 
+Accolgo quindi con favore la conferma della Commissione del mio parere secondo cui si può procedere all ' allargamento senza la ratifica del Trattato di Nizza . 
+Ritengo che l ' allargamento debba procedere con la massima rapidità , in modo che i paesi candidati possano non solo condividere i benefici dell ' adesione all ' Unione europea , ma anche contribuire appieno al dibattito sul tipo di Unione europea che desideriamo costruire . 
+Sono favorevole ad un dibattito ampio e aperto prima della Conferenza intergovernativa del 2004, ma non sotto forma di convenzione . 
+L ' Unione europea sta inventando una nuova forma di democrazia : la democrazia senza popoli . 
+E ' la conclusione cui si giunge quando si vede l ' arroganza con la quale il Consiglio di Göteborg si è fatto beffe del voto irlandese . 
+Il nuovo Presidente in carica del Consiglio , Guy Verhofstadt , oggi ha rafforzato quest ' impressione presentando subito le conclusioni del dibattito che si presume debba essere avviato in vista della Conferenza intergovernativa del 2004 . 
+In particolare , l ' organizzazione di tale dibattito in Francia , in seguito al comunicato dell ' 11 aprile scorso diffuso congiuntamente dal Primo ministro e dal Presidente della Repubblica , dimostra che esso è strumentalizzato sin dall ' origine . 
+Entrambi fingono di voler avviare una discussione sull ' avvenire dell ' Europa , ma la ratifica del Trattato di Nizza , d ' importanza capitale in tale prospettiva , nel nostro paese è stata volontariamente elusa . 
+La questione non è stata deferita alla Corte costituzionale né si è indetto un referendum , si sono avuti solo brevissimi dibattiti all ' Assemblea nazionale e al Senato , con interventi miseri , se si eccettuano quelli effettuati dai sostenitori della sovranità , tra cui Philippe de Villiers , che paiono i soli a conservare una certa libertà di pensiero nel tracollo della classe politica nazionale . 
+Il testo più importante per l ' avvenire dell ' Unione , i nuovi sviluppi sovranazionali del Trattato di Nizza , viene quindi sottratto alla discussione . 
+Per il resto , è evidente che tutto è organizzato affinché ovunque la discussione porti solamente a conclusioni accettabili per i federalisti . 
+Non solo le riunioni vengono preparate dai prefett. il che la dice lunga sul loro livello d ' indipendenza rispetto al govern. ma , inoltre , le conclusioni verranno redatte da un gruppo di sintesi composto da dieci esperti scelti liberamente dal Presidente della Repubblica e dal Primo ministro . 
+Lo scorso 20 aprile io stesso ho scritto ai due capi dell ' esecutivo per chiedere loro che questo gruppo venisse costituito scegliendone i membri tra tutte le compagini politiche elette alle elezioni europee . 
+Ecco il risultato : tra le nomine che sono state effettuate , si cercherà invano il più debole oppositore alla linea di Bruxelles . 
+Per di più , è previsto che questa ridicola procedura termini entro ottobre , il che significa che il grande dibattito nazionale avrà una durata di quattro mesi , di cui due di vacanza . 
+Tuttavia si comprende perfettamente perché occorre concludere così in fretta : alla fine dell ' anno entreremo tutti nel periodo cruciale della sostituzione delle monete e delle banconote nazionali per l ' entrata in vigore dell ' euro . 
+I nostri responsabili nazionali non hanno evidentemente alcuna voglia di avere un dibattito sull ' Europa in sospeso in quel periodo . 
+Il Vertice di Göteborg resterà nella storia per quanto accaduto dentro e fuori la sala delle conferenze . 
+Le decine di migliaia di manifestanti , che hanno espresso la loro opposizione alla costruzione antipopolare , dispotica e accentratrice dell ' Unione , sono state attaccate con violenza inaudita dalla polizia . Si è avuta l ' ennesima prova di come i leader dell ' UE preferiscano decidere a porte chiuse . 
+La risoluzione del Parlamento europeo non menziona nemmeno le istanze di migliaia di manifestanti o le vittime della violenza messa in atto dalla polizia , ma adotta una definizione di " reparti specializzati d ' assalto " , contribuendo così a preparare il terreno all ' applicazione di misure ancor più rigide e antidemocratiche per fronteggiare il " popolo - nemico " in occasione dei prossimi Vertici tra l ' UE e le altre organizzazioni imperialiste . 
+Di fronte al " no " irlandese al Trattato di Nizza , il Parlamento europeo si schiera con il Consiglio , che dichiara fermamente " di voler contribuire ad aiutare in qualunque modo il governo irlandese a trovare una soluzione " . In tale contesto preme sul governo irlandese affinché ratifichi ad ogni costo il Trattato entro la fine del 2002, ignorando il parere espresso dal popolo irlandese . 
+Relativamente ai tragici fatti nella FYROM , la risoluzione approva sia la politica interventista , sia l ' intenzione della NATO " di non rinunziare al compimento dell ' opera di pace " . 
+La posizione dell ' Unione in merito alla riuscita dell ' accordo è stata chiaramente espressa dall ' inviato speciale Léotard , il quale ha invitato il governo della FYROM ad avviare il dialogo con gli estremisti albanesi . 
+Nella risoluzione si plaude ai progressi registrati nella militarizzazione dell ' UE , nello sviluppo di un dispositivo di reazione rapida e nella " creazione di rapporti stabili e costruttivi con la NATO " ; si invitano anche gli Stati membri a " riorganizzare il proprio bilancio per la difesa portandolo ad un livello adeguato al conseguimento degli ambiziosi obiettivi della PESC " . 
+In materia di ampliamento , malgrado le obiezioni " endoimperialiste " che sono emerse , si mira chiaramente ad una politica di pressante coinvolgimento dei nuovi paesi dell ' UE , malgrado il relativo calendario sia sempre più confuso . 
+Nella consapevolezza che tra i cittadini dei paesi candidati si va affermando la resistenza alla prospettiva dell ' adesione , l ' Unione vorrebbe farli abboccare all ' amo con la promessa partecipazione alle euroelezioni del 2004 . 
+Il Vertice di Göteborg , d ' altronde , ha confermato gli orientamenti di Lisbona e di Stoccolma , che insistono nel voler fronteggiare la congiuntura economica con misure più dure e antipopolari a scapito dei lavoratori , prendendo di mira anzitutto i sistemi pensionistici e la previdenza sociale in generale . 
+Per tutti i suddetti motivi gli europarlamentari iscritti al partito greco KKE hanno votato contro la risoluzione . 
+Nel gennaio 2001, la Presidenza svedese dell ' Unione europea aveva annunciato con modestia tre priorità : ambiente , allargamento ed occupazione . 
+Sei mesi dopo , al Consiglio di Göteborg , se ne constata il fallimento . 
+A proposito dell ' occupazione , questo periodo è stato contrassegnato da un ' ondata di licenziamenti in massa da parte dei grandi gruppi internazionali , come Marks & Spencer o Danone , che registrano utili per milioni di euro . 
+L ' Unione europea ha nuovamente dato prova d ' incapacità a controbilanciare la dittatura dei mercati e degli azionisti , ad esempio instaurando una tassa sui movimenti speculativi ( del tipo " tassa Tobin " ) , rafforzando il diritto di controllo dei lavoratori dipendenti e dei cittadini sull ' economia , oppure emanando leggi a livello europeo per impedire i licenziamenti . 
+Nell ' ambito dell ' allargamento , l ' unica prospettiva offerta ai paesi candidati è l ' assorbimento puro e semplice della loro economia nel mercato unico . 
+Le popolazioni non saranno mai consultate , né sul contenitore né sul contenuto della loro adesione . 
+E tuttavia , il " no " irlandese dimostra ancora una volta che l ' Europa senza i popoli non può costruirsi intorno ad un progetto democratico , politico e sociale . 
+Infine , a livello internazionale , l ' Unione europea ha dimostrato di non riuscire ad influire positivamente sulla soluzione dei conflitti , per esempio imponendo ad Israele un pace giusta e duratura in Palestina . 
+La Presidenza svedese sarà soprattutto ricordata per le provocazioni della polizia che hanno caratterizzato il Vertice di Göteborg . 
+Alla necessità di rimettere in discussione i progetti europei , i governi hanno contrapposto per la prima volta , dal loro bunker , la violenza delle armi da fuoco contro i manifestanti . 
+Abbiamo urgente bisogno di un ' altra Europa : quella della democrazia e del progresso sociale . 
+Per questo motivo votiamo contro la risoluzione comune . 
+Questa risoluzione presenta molti aspetti lodevoli , soprattutto in termini di sviluppo sostenibile . 
+Mi compiaccio dell ' invito all ' Unione europea a ratificare il Protocollo di Kyoto , un accordo internazionale essenziale per la protezione del pianeta . 
+Accolgo con favore il rinnovato impegno a raggiungere l ' obiettivo delle Nazioni Unite in materia di assistenza allo sviluppo e mi auguro che , infine , tale obiettivo sarà raggiunto , dal momento che ve ne è urgente necessità . 
+Mi compiaccio anche della necessità , espressa nella risoluzione , che l ' Unione europea si prepari adeguatamente per il Vertice mondiale sullo sviluppo sostenibile . 
+Perché mi sono dunque astenuta sulla risoluzione nel suo insieme ? 
+Non credo che lo sviluppo di una politica di sicurezza comune , che miri a legarci strettamente alla NATO , abbia alcun ruolo nello sviluppo sostenibile dell ' Unione europea . 
+Né ritengo che dovremmo chiedere all ' Irlanda di annullare il recente referendum e prepararsi a ratificare il Trattato di Nizza . 
+Una richiesta del genere ignora i desideri democraticamente espressi dai cittadini e non attribuisce alcun merito a questa Assemblea . 
+Ricalcando la relazione del Consiglio europeo tenutosi a Göteborg il 15 e 16 giugno 2001, la risoluzione comune che accomuna verdi , rosa e bianchi liberali nonché viola di ispirazione democratico - cristian. cioè una maggioranza sincretica e politica che parte dagli Schröder - Jospin per arrivare agli Aznar - Chirac passando attraverso i Grünen , i Joschka Fischer , le Dominique Voynet e gli ultraliberali di Alain Madeli. offre apparentemente un ' accozzaglia di parole , concetti e problemi che vanno dalla pena di morte ( paragrafo 32 ) al " pacchetto fiscale " ( paragrafo 25 ) , passando attraverso le banane ( paragrafo 30 ) , la missione diplomatica del signor Léotard nell ' ex Repubblica iugoslava di Macedonia , ora FYROM ( paragrafo 42 ) , senza dimenticare marginalmente la PAC , gli aiuti allo sviluppo , Kyoto , la frode fiscale degli USA grazie ai paradisi fiscali dei Caraibi , l ' allargamento o la necessità di una convenzion. a ricordo , se pure non espressamente , di Filadelfia 178. per adottare una costituzione europea nel 2004 . 
+Tuttavia questo ciarpame all ' apparenza incoerente nasconde le due idee chiave della setta oligarchica che ci governa , cioè il disprezzo dei popoli e la ricerca di un oscuro " baliato " mondiale . 
+Il disprezzo dell ' oligarchia eurofederale di Bruxelles nei confronti dei popoli si esprime al contempo nel paragrafo 3, con il rifiuto di rispettare le chiare conseguenze del referendum irlandese analizzato come un intoppo a cui si deve " trovare una via d ' uscita " , e nel paragrafo 9, dove il rifiuto spontaneo dei popoli alle tendenze globalizzatric. da Seattle a Göteborg , passando per Praga , Nizza , Davos , Washington , Salisburgo o forse domani Genov. è condannato come una " provocazione " , dimenticando che il diritto alla " resistenza " all ' oppressione economica che il mercato mondiale esercita sulle donne e sugli uomini di Marks & Spencer e di Danone , passando per Moulinex , Michelin , Vilvorde , Alcatel , Ericsson o AOM , è una delle libertà essenziali stabilite due secoli prima della Carta europea che proclama solo per i ricchi diritti formali , che i disoccupati , i giovani esclusi e la quarta età senza risorse non ritengono invece fondamentali . 
+Analogamente i nove paragrafi dedicati allo sviluppo sostenibil. che prevedono persino un Vertice mondiale a Johannesburg nel 200. nascondono a malapena , senza la nebulosità di questo oscuro concetto divenuto un riferimento dottrinale , la ricerca di un governo mondiale che risolverebbe miracolosamente tutti i problemi , soprattutto per l ' Africa , quali il sottosviluppo , l ' epidemia di AIDS / HIV , la schiavitù economica e la miseria , scientemente alimentati dai sostenitori del libero scambio che non pagano il cotone , il cacao , il caffè e tutte le materie prime al loro prezzo reale , ossia al prezzo della vita degli uomini di cui sfruttano il lavoro . 
+Rilevo che nel tempo trascorso è avvenuto esattamente quanto avevo previsto il 15 marzo e il 3 maggio . 
+Rileggete il processo verbale ! 
+All ' epoca ho affermato che esprimere il nostro appoggio al governo macedone e condannare i cosiddetti estremisti non avrebbe portato a nuove soluzioni , pace e riconciliazione , ma avrebbe incoraggiato la violenza . 
+Una parte della popolazione e del governo macedoni pensano che tutti i problemi si possano risolvere negando l ' esistenza oppure cacciando via la grande minoranza albanese . 
+Essi intendono acquistare armi con le sovvenzioni dell ' Unione europea e continuano a rifiutare una regolamentazione per cui l ' albanese diventi lingua dell ' amministrazione e dell ' istruzione in quelle aree del paese in cui risiedono gli albanesi . 
+Credo che , se non si adotterà una regolamentazione statale analoga a quella belga , non sarà possibile trovare una soluzione durevole . 
+Auguro al Consiglio e alla Commissione di riuscire nel loro intento , se finalmente cercheranno di far sì che il loro impegno non sfoci in maggiore violenza e repressione , bensì in una soluzione pacifica condivisa da tutte le parti interessate . 
+Non ho potuto votare a favore della risoluzione comune sul Vertice di Göteborg , sebbene contenesse diverse conclusioni positive , in particolare per quanto riguarda l ' allargamento , le circostanze che hanno contraddistinto il Vertice , il seguito del Consiglio europeo di Lisbona , le relazioni esterne e , più concretamente , il Medio Oriente , solo per citarne alcune . 
+Tuttavia , il fatto che la maggioranza dei parlamentari europei continui ad insistere su un modello di discussione post - Nizza che , sia per quanto riguarda il metodo , sia per quanto riguarda il contenuto , si discosta dalle conclusioni dei Capi di Stato e di governo del Vertice di Nizza nonché dagli stessi Trattati in vigore , soprattutto per quanto attiene alla critica serrata del metodo intergovernativo e all ' ambizione di fissare un ' agenda più ampia , se non addirittura irrealistica , per tale discussione , mi ha costretto ad optare per l ' astensione . 
+Inoltre , non giudico positiva neppure la conclusione n . 5, poiché mi sembra che non spetti al governo irlandese ratificare il Trattato , bensì al suo popolo , secondo i dettami costituzionali in vigore in quel paese . 
+Una risoluzione del Parlamento europeo sul Vertice di Göteborg avrebbe potuto essere utile , se avesse preso le distanze dalla disinvoltura manifestata dal Consiglio nelle conclusioni sul risultato del referendum irlandese sul Trattato di Nizza , atteggiamento che rappresenta un nuovo aspetto della tendenza antidemocratica estremamente preoccupante della costruzione europea . 
+Non è stato così . 
+Tuttavia , qualsiasi riflessione sull ' avvenire dell ' Europa , soprattutto sull ' allargamento , dovrà ormai tenere debito conto di questo voto senza ambiguità . 
+Come si può condannare il carattere decisamente antidemocratico dell ' attuale Unione europea e pretendere di volervi rimediare senza iniziare dal rispetto della volontà chiaramente espressa dai popoli e , nella fattispecie , dal solo popolo invitato a pronunciarsi sul nuovo Trattato tramite referendum , procedura eminentemente democratica ? 
+Dopo due referendum che avevano già rivelato la distanza crescente che divide l ' Europa reale e quella cui aspirano i suoi popoli , la decisione del popolo irlandese avrebbe dovuto avere l ' effetto di uno shock salutare . 
+La lezione da trarre dal referendum irlandese è che un ' Europa duratura può essere fondata solo sul rispetto delle democrazie nazionali . 
+Di fatto è urgente riprendere da zero la costruzione europea , su basi del tutto diverse da quelle di Nizza , che dovrebbe costituire l ' ultima metamorfosi di un processo che è stato avviato con l ' Atto unico , è proseguito con Maastricht ed Amsterdam e ci ha portati ad avere oggi un ' Europa rifiutata dalla gente . 
+Apparentemente , non è questa la direzione che intende seguire la Presidenza belga . 
+Per colmare le carenze democratiche in seno all ' Unione , ci propone infatti di istituire un ' imposta europea , quando solo i parlamenti nazionali sono democraticamente preposti all ' imposizione fiscale . 
+Privilegia una modalità di elaborazione del futuro Trattato nel quadro di organismi la cui legittimità democratica , se non dubbia , è almeno molto indiretta . 
+Esalta l ' euro , la cui creazione non è stata auspicata da nessun popolo e che , al contrario , rappresenta emblematicamente un ' Europa imposta ai popoli e da essi non richiesta . 
+La lezione irlandese pare non sia stata compresa . 
+Per questa ragione , presto o tardi , bisognerà ascoltare con attenzione i popoli . 
+Meglio prima , se vogliamo che si riavvicinino ad un ' idea di Europa da cui oggi si stanno allontanando . 
+Oggi mi sono astenuto dalla votazione complessiva sulla risoluzione relativa al Vertice di Göteborg e ho raccomandato ai colleghi conservatori del Regno Unito di fare altrettanto , in quanto , pur essendo pienamente favorevoli ai punti in cui si accoglie con favore il processo di allargamento dell ' Unione europea e agli inviti a sostenere la riforma della PAC e lo sviluppo sostenibile , avevamo diverse riserve su altri aspetti della relazione . 
+Tali riserve riguardano il paragrafo 3, che si può intendere come un ' indicazione del fatto che l ' Unione non rispetta pienamente la decisione espressa dai cittadini irlandesi nel referendum di respingere il Trattato di Nizza ; il paragrafo 6, che raccomanda un modello di convenzione controverso per rinviare i negoziati fino alla prossima CIG ; il paragrafo 25, a sostegno del pacchetto fiscale che prevede l ' armonizzazione e una trattenuta alla fonte ; il paragrafo 26, che raccomanda misure riguardanti il comitato aziendale europeo ispirate al capitolo sociale ; i paragrafi 33 e 34 a favore di uno schema di sviluppo dello spazio comunitario autonomo , che potrebbe dissociarci dalla NATO . 
+Per il resto , la relazione presenta molti aspetti positivi e di conseguenza , secondo i conservatori britannici , la posizione corretta da adottare era di astenersi dalla votazione nel suo insieme . 
+Relazione Randzio - Plath ( A5 - 0225 / 2001 ) 
+La relazione del Parlamento europeo sull ' esercizio 2000 della BCE e il rapporto di quest ' ultima sullo stesso argomento tentano di eliminare le divergenze di valutazione e di presentare un volto unico alla vigilia della sostituzione fisica delle monete e delle banconote . 
+Tuttavia , se si gratta un po ' , le contraddizioni vengono a galla e sono colme di conseguenze , poiché rinviano a vizi molto difficili da correggere nell ' istituzione della moneta unica . 
+Consideriamo ad esempio le questioni istituzionali . 
+Prima divergenza , sui poteri del Consiglio dei ministri : la relazione del Parlamento europeo appoggia il rafforzamento del coordinamento economico e dei programmi di stabilità ( paragrafo 5 della risoluzione ) , che presume un rafforzamento del gruppo dell ' euro e dei suoi strumenti operativi . 
+Al contrario , il rapporto della BCE sottolinea che " i primi due anni dell ' euro hanno anche dimostrato che l ' assetto delle politiche economiche a livello europeo è soddisfacente " ( pagina 3 ) . 
+In questo modo sembra che la Banca difenda con accanimento la sua indipendenza , intuendo che l ' aumento di potere della parte politica nella gestione della moneta unica , nell ' ambito di una zona monetaria non ottimale , rischia di portare a conflitti di difficile soluzione . 
+Tuttavia è preferibile la gestione tecnocratica ? 
+In verità , entrambe le vie sono impraticabili . 
+Seconda divergenza , sulla trasparenza : la relazione del Parlamento europeo chiede nuovamente ( paragrafo 4 ) che i processi verbali delle riunioni del Consiglio dei governatori vengano pubblicati con l ' indicazione delle prese di posizione ( a favore o contro ) . 
+Questa proposta viene respinta dalla BCE per una buona ragione che il Parlamento europeo si ostina a non capire : nel caso specifico della zona euro , formata da nazioni distinte , i conflitti tra i governatori potrebbero facilmente sembrare conflitti tra nazioni e ciò nuocerebbe alla credibilità dell ' euro , già troppo debole . 
+Ancora una volta torniamo al carattere non ottimale della zona monetaria dei Dodici . 
+Terza divergenza , sul voto in seno al Consiglio dei governatori : il rapporto della BCE difende il principio " una persona , un voto " , in quanto i governatori delle banche centrali nazionali deliberano " in piena indipendenza secondo la propria responsabilità personale " e non in quanto rappresentanti del proprio paese ( pagina 181 ) . 
+Da parte sua , la relazione del Parlamento europeo prende atto della riforma che il Trattato di Nizza apporta all ' articolo 10 dello statuto della BCE che potrebbe permettere , in futuro , di ponderare i voti in base alle dimensioni del paese ( paragrafo 17 della risoluzione ) . 
+Una riforma simile corrisponderebbe al desiderio dei grandi paesi , specialmente della Germania , che si lamenta dell ' " immobilismo " della BCE , implicitamente accusata del peso sproporzionato che i piccoli paesi hanno nell ' ambito del Consiglio dei governatori . 
+Nondimeno , l ' operazione è lungi dall ' essere realizzata , poiché pare contraria allo spirito di Maastricht , alla posizione della BCE ed agli interessi dei piccoli paesi , che avranno qualcosa da dire . 
+Ancora una volta , la moneta unica , comune a molte nazioni , si dibatte nelle proprie contraddizioni . 
+La Banca centrale europea ( BCE ) persegue il suo obiettivo fondamentale , ossia garantire la stabilità dei prezzi , il che significa , in pratica , mantenere moderata la crescita dei salari nella zona euro . 
+Un obiettivo cieco , basato sul controllo dell ' inflazione e dimentico del contributo fornito dalla politica monetaria alla crescita economica e all ' occupazione . 
+Una preoccupazione che , se portata alle estreme conseguenze , può provocare deflazione e disoccupazione . 
+E ' sulla base di tale obiettivo che , perfino di fronte a un rallentamento dell ' economia , la BCE non abbassa i tassi d ' interesse al fine di stimolare gli investimenti e ridurre i costi dell ' eccessivo indebitamento delle famiglie e degli altri attori economici , dimenticando che la zona euro non è uno spazio omogeneo e che esistono problemi strutturali specifici , soprattutto nei paesi della coesione , come il Portogallo . 
+E ' di tale politica di stabilità monetaria , imposta dal Patto di stabilità , che la relatrice si compiace , il che non ci trova d ' accordo , sebbene tenti di inquadrare le politiche della BCE attraverso un maggiore coordinamento economico e un ulteriore sviluppo del dialogo trimestrale con il Parlamento europeo . 
+Ma la BCE ha bisogno di un effettivo controllo politico e non di un semplice coordinamento economico sempre più legato agli obiettivi del Patto di stabilità e agli orientamenti neoliberali dell ' Unione . 
+In vista del cambiamento coatto delle banconote e delle monete di undici Stati membri in euro , tutta l ' attenzione viene rivolta ai problemi che ciò causerà subito dopo il 1 º gennaio prossimo . 
+Le proposte dell ' onorevole Maaten cercano di far sì che tale processo avvenga in maniera un po ' più rapida ed efficiente . 
+Tuttavia il problema fondamentale è legato alla relazione annuale della BCE . 
+A differenza della relatrice , la onorevole Randzio - Plath , non ritengo che vi sia alcun motivo per felicitarsi . 
+Si è dovuto mantenere ad un certo livello il valore dell ' euro attraverso un Patto di stabilità che impone alle autorità nazionali di abbassare il livello delle loro spese e a rinunciare ai prestiti . 
+Tale politica è fallita miseramente ora che l ' euro non è sceso per un breve periodo , ma per lungo tempo , al di sotto del valore del dollaro . 
+Nel frattempo in alcuni Stati membri , fra cui i Paesi Bassi , l ' inflazione annuale è più alta degli interessi . 
+E ' probabile che la stabilità dei prezzi non sopravviva fino all ' inizio del prossimo anno . 
+Non sembra più che l ' euro possa conquistare una posizione in qualità di strumento di pagamento internazionale , come il dollaro . 
+Perciò non è possibile scaricare , seguendo l ' esempio statunitense , parte del deficit statale annuo sul resto del mondo , che non intende entrare in possesso di una moneta di scambio il cui valore è in continuo calo . 
+In sintesi , la BCE è fonte di una delusione tale da imporci di respingere la relazione annuale . 
+Il rapporto della Banca centrale europea , oggetto di discussione , concerne il secondo anno di funzionamento dopo l ' avvio della terza fase dell ' UEM . 
+Proprio per questo motivo , l ' approccio critico del Parlamento europeo all ' operato della BCE dovrebbe essere più rigoroso ed esigente perché taluni suoi effetti vanno a scapito dei lavoratori e perché il rapporto sostiene un più stretto legame tra gli orientamenti generali della politica economica e i programmi di stabilità e convergenza . 
+Nel nome della lotta all ' inflazione e di un rigoroso rispetto del Patto di stabilit. vero e proprio flagello per i lavorator. la BCE gestisce il meccanismo sanzionatorio in modo da conseguire la famosa stabilità dei prezzi , infischiandosene delle conseguenze economiche e sociali causate dalle sue decisioni . 
+Nella relazione si sancisce l ' ammodernamento della politica salariale , cioè della flessibilità e dell ' incertezza del lavoro , e si preme a favore di un ' estensione delle privatizzazioni volta a promuovere la competitività e la redditività del capitale . 
+Non si dice nulla delle speculazioni e delle combine nelle borse europee in quanto la politica della BCE , mediante la riduzione dei tassi d ' interesse , fa tutto il possibile per incrementarle . 
+Perché la BCE ha sinora aumentato o ridotto i tassi d ' interesse seguendo la politica americana dei tassi volta a finanziare i progetti speculativi ? 
+Il Presidente Duisenberg ci dirà forse se sposa o no le tesi del suo omologo Greenspan , secondo il quale " il nuovo ciclo di sviluppo deve essere sostenuto da una maggiore redditività dei grandi capitali a disposizione delle imprese , la cui remunerabilità è essenziale per sostenere i titoli di borsa e per segnare l ' avvio di un nuovo ciclo di investimenti ? 
+Indubbiamente sarà d ' accordo , visto che afferma che " il consiglio direttivo della BCE segue continuamente l ' andamento dei salari e le tendenze della domanda interna ed esterna " ; malgrado la crisi petrolifera , gli aumenti salariali sono stati moderati , fatto questo da lui considerato " molto positivo " , tenuto conto che nel 2002 l ' inflazione rimarrà sul 2 percento " in ragione del freno alle retribuzioni " , mentre invece i profitti dei monopoli saranno in continua ascesa . 
+Che altro c ' è da aggiungere a quanto ci dicono il rapporto e il governatore della BCE ? 
+Mi riferisco alla politica liberale fortemente negativa , che porta le economie alla recessione e che riserva ai lavoratori più disoccupazione , soppressione dei diritti lavorativi acquisiti e un livello garantito di povertà , visto che il benessere è destinato al grande capitale , che diventerà sempre più potente . 
+Siamo perciò contrari al sostegno alla politica della BCE da parte del Parlamento europeo , in quanto si tratta di una politica che crea maggiore povertà per i più , cioè i lavoratori , e maggiori profitti e privilegi per i pochi , ovvero i monopoli europei . 
+E ' una politica fondata sulla disparità e sul maggiore sfruttamento dei lavoratori . 
+Pertanto noi eurodeputati iscritti al partito greco KKE votiamo contro la relazione , convinti che il movimento popolare di massa , con le sue lotte , rovescerà questa politica antipopolare , barbara e disumana . 
+
+Il mio gruppo ha votato contro il paragrafo 20, e per il seguente motivo : in tale paragrafo si parla dell ' inasprimento delle condizioni cui devono sottostare i paesi candidati che intendono aderire all ' UEM . 
+Noi non siamo contrari ad un dibattito sull ' adesione all ' Unione monetaria da parte dei nuovi Stati membri , ma al momento ci sembra che sia prematuro parlarne . 
+Ci vorranno certo due anni prima che si registrino le prime adesioni e dopo ci vorranno altri due anni in cui questi paesi dovranno funzionare nell ' ambito del meccanismo del corso di cambio . 
+Non dobbiamo decidere in maniera frettolosa : possono accadere ancora molte cose . 
+Tra uno o due anni la situazione sarà più chiara . 
+Accolgo con favore la terza relazione annuale del Presidente della Banca centrale europea , signor Duisenberg . 
+Mi rammarico , tuttavia , del fatto che la BCE non segua gli elevati criteri di trasparenza , responsabilità democratica e apertura stabiliti dalla Banca d ' Inghilterra . 
+La Banca d ' Inghilterra ha ottenuto l ' indipendenza operativa nel maggio 1997 con uno dei primi atti legislativi del nuovo governo laburista . 
+I verbali delle riunioni del comitato per la politica monetaria , compresi i risultati delle votazioni e le relative motivazioni , vengono ora pubblicati dopo circa sei settimane . 
+Ciò rafforza la fiducia dei mercati nelle decisioni della Banca e costituisce un ottimo esempio di gestione trasparente . 
+Di sicuro non è una coincidenza che , in seguito alla coraggiosa decisione del governo laburista del maggio 1997, il Regno Unito abbia goduto di un periodo di stabilità economica senza precedenti . 
+Né può essere una coincidenza il fatto che la decisione del governo laburista sia stata all ' epoca criticata dai conservatori , avvezzi a fasi di estrema espansione seguite da gravi depressioni , che vantano una lunga esperienza di instabilità e incompetenza economica . 
+La BCE non otterrà la piena fiducia del mercato finché non diventerà più aperta . 
+Il Presidente Duisenberg senza dubbio dovrà affrontare una sfida senza pari con l ' introduzione dell ' euro il 1 º gennaio 2002 . 
+Accolgo con favore la decisione della BCE di distribuire in anticipo monete in euro ai consumatori e banconote di grosso taglio alle imprese . 
+Tuttavia , mi preoccupa il fatto che consumatori e piccole e medie imprese non disporranno di banconote di piccolo taglio fino al cosiddetto " e - day " . 
+Ciò ha buone probabilità di creare caos e confusione senza fine , che andrebbero invece evitati a ogni costo . 
+Il passaggio fisico all ' euro il 1 º gennaio 2002 sarà chiaramente una prova decisiva per la BCE e mi auguro vivamente che si dimostrerà all ' altezza della sfida . 
+Sarei molto rassicurato se vedessi la BCE seguire una politica di apertura e trasparenza , analoga a quella della Banca d ' Inghilterra . 
+Sarebbe assurdo per il Regno Unito passare da una situazione di trasparenza ad una di relativa segretezza . 
+Pertanto , se il mio paese dovesse mai adottare l ' euro , la BCE dovrà dimostrare una maggiore apertura . 
+Relazione Maaten ( A5 - 0222 / 2001 ) 
+La mia ultima dichiarazione di voto , signora Presidente , è quella relativa agli attori economici nel passaggio all ' euro . 
+Il 1 º gennaio 2002 avremo finalmente l ' euro in Europa . 
+Ma , signora Presidente , la settimana scorsa ero al bar del comune in cui abito , a Curno , in provincia di Bergamo , in Italia , e mentre pagavo il mio caffè la proprietaria , parlando con altri clienti , diceva : " Come faremo a gennaio del 2002 ? 
+Se mi pagheranno in lire dovrò dargli il resto in euro ? 
+E se mi pagheranno in euro , dovrò dargli il resto in lire " ? 
+Io non ho trovato risposta in questo documento e neanche negli altri , per cui chiedo , con questa dichiarazione di voto , che si proceda direttamente all ' euro il 1 º gennaio 2002, senza il periodo di transizione . 
+Quando si scoprono nella relazione Maaten gli strumenti previsti per favorire il cambio fisico delle monete e delle banconote a partire dal 1o gennaio 2002, si rimane sconcertati dalla sproporzione tra queste astuzie ridicole e la portata del problema . 
+In apparenza , tutta l ' operazione è stata concepita sin dall ' inizio senza tener assolutamente conto delle difficoltà che incontra la gente nella vita quotidiana . 
+E si persevera sulla stessa strada . 
+A che scopo emettere banconote in euro con qualche giorno di anticipo affinché i cittadini possano abituarvisi ( cosa , del resto , che non è nemmeno ancora stata confermata ) , quando parallelamente non verrà dato alcun aiuto finanziario ai piccoli commercianti cui saranno imposti sforzi smisurati , non verrà assicurata alcuna garanzia di rimborso per gli euro falsi e la proposta di far coesistere le monete nazionali per agevolare la vita dei nostri concittadini è stata respinta con sufficienza ? 
+Si scopre ogg. ma è una sorpresa. che il pubblico non mostra alcun entusiasmo . 
+La relazione Maaten rileva anche , a proposito delle campagne d ' informazione , che " non si può non constatare che i risultati finora conseguiti sono deludenti " ( motivazione , pagina 15 ) . 
+Tuttavia la reazione del relatore è inquietante : secondo lui bisognerebbe , per motivare le piccole imprese , brandire una minaccia di illegalità in caso di non adozione dell ' euro dal 1o gennaio 2002 : " Dal momento che le campagne " soft " hanno avuto sinora scarsa influenza sulle piccole e medie imprese , bisogna essere più espliciti " ( ibidem ) . 
+Dal 1o gennaio 2002 l ' Europa interverrà quindi massicciamente nella vita quotidiana dei nostri concittadini , ma lo farà nel peggiore dei modi , poiché essi si renderanno conto in modo immediato e tangibile che tutta quest ' imponente operazione di cambio poteva nascere solo da una mente del tutto indifferent. ossia estrane. ai problemi pratici delle persone più modeste e che poteva aver fortuna solo in un sistema istituzionale isolato dai popoli . 
+Ci auguriamo solamente che non tutto il male venga per nuocere e che quest ' esperienza , domani , serva a dare un nuovo orientamento all ' Europa . 
+Indipendentemente dalla posizione negativa assunta al momento della creazione della moneta unica , non solo per questioni legate alla sovranità , ma anche per le ripercussioni economiche che si hanno quando uno Stato perde il controllo della politica monetaria e dei cambi , con le conseguenze che ne derivano a livello di occupazione , compresi la filosofia che è alla base del Patto di stabilità e il contenimento dei salari , riteniamo fondamentale prestare la massima attenzione all ' attuale fase di preparazione all ' entrata in circolazione dell ' euro . 
+Ritengo fondamentale creare meccanismi macroeconomici in grado di minimizzare i costi : durante il periodo di transizione non possono essere i lavoratori e le piccole e microimprese a pagare i costi del passaggio all ' euro , sia attraverso l ' aumento artificiale dei prezzi , sia attraverso i costi dell ' intero processo e i tentativi di abuso e frode che potranno verificarsi in tale periodo . 
+E ' particolarmente importante sostenere in maniera efficace il ruolo fondamentale del commercio tradizionale nel fornire chiarimenti alla popolazione , poiché i commercianti sono coloro che sono più vicini alla gente . 
+I commercianti sono un elemento centrale di tutto il processo di sostituzione delle monete nazionali con la moneta unica , il che impone uno sforzo ulteriore , oltre a tutti gli enormi cambiamenti , in particolare in termini di contabilità , documentazione interna ed esterna , informatica , eccetera . 
+Ho votato a favore della relazione dell ' onorevole Maaten e tengo a sottolineare la buona qualità del lavoro svolto dal nostro relatore . 
+Mi rallegro che l ' Assemblea si esprima infine su un argomento così importante , nonostante ciò avvenga solo 181 giorni prima dell ' introduzione dell ' euro . 
+Era ormai tempo che ci pronunciassimo su quella che è una priorità economica e che rimane una fonte d ' interrogativi venata d ' inquietudine per i cittadini . 
+La relazione Maaten attira l ' attenzione sui problemi principali e suggerisce soluzioni pratiche che potrebbero agevolare il passaggio all ' euro . 
+E ' fondamentale che tali considerazioni siano tenute in debito conto a tutti i livelli decisionali ed in tutti i settori . 
+Non scordiamoci che , così come le imprese e gli ambienti finanziari , anche i cittadini europei svolgono un ruolo chiave e che le loro reazioni dipendono dall ' efficacia delle campagne d ' informazione condotte finora . 
+Ancora una volta , i risultati poco incoraggianti di queste campagne sottolineano la necessità di proposte pratiche che tocchino direttamente la vita quotidiana . 
+Se tali proposte diventano concrete , dovranno far sì che la comprensibile apprensione si trasformi in aspettativa legittima . 
+In qualità di membro della commissione per i problemi economici e monetari avevo presentato un certo numero di emendamenti al progetto di relazione del collega Maaten sui mezzi per aiutare gli attori economici nel passaggio all ' euro . 
+Ho constatato con soddisfazione che sono stati tutti approvati . 
+Nell ' ambito della discussione odierna , tengo a sottolineare ancora una volta la necessità di lasciare la porta aperta ai tre Stati membri che hanno scelto di non entrare nella zona euro dall ' inizio . 
+Per questa ragione vorrei evidenziare l ' importanza di una campagna d ' informazione rivolta non solo agli Stati membri che partecipano al progetto della moneta comune , ma anche agli altri , assicurando loro un posto speciale rispetto ai paesi terzi . 
+La nostra relazione costituisce un segnale politico in tal senso . 
+La convertibilità in euro senza spese delle monete di altri paesi della zona euro è oggetto di un altro emendamento che in gran parte è stato recepito nella relazione finale . 
+Tutti i cittadini dell ' Unione europea possiedono un certo numero di monete residuo di loro viaggi all ' estero per affari o turismo . 
+Sono molti coloro che non avranno più occasione di spenderle prima dell ' introduzione delle monete e delle banconote in euro che avverrà il 1o gennaio del prossimo anno . 
+A questo proposito avevo sottoposto alla Commissione , a fine novembre dello scorso anno , un ' interrogazione scritta sull ' argomento . 
+Mi è stato risposto in modo evasivo che ciò avrebbe procurato spese di cambio spropositate . 
+Mi chiedo tuttavia se sia giusto che i cittadini facciano ancora una volta le spese dell ' impossibilità di cambiare le monete di altri Stati membri in loro possesso . 
+Con soddisfazione noto perciò che il Parlamento " giudica pertanto necessario che alle banche siano trasmesse raccomandazioni per assicurare che il cambio delle monete metalliche dei dodici Stati membri che aderiscono all ' euro possa avvenire nelle stesse condizioni del cambio delle banconote " . 
+Mi auguro che i responsabili dei governi non facciano orecchie da mercante , come ha fatto la Commissione . 
+Mi congratulo con l ' onorevole Maaten per l ' ottima relazione riguardante i mezzi per aiutare gli attori economici nel passaggio all ' euro . 
+Sei mesi prima dell ' entrata in vigore della moneta unica è bene che il Parlamento s ' interessi agli operatori economici e a come preparano quest ' ultima tappa . 
+Oggi , in questa fase finale , gli Stati membri ricoprono un ruolo fondamentale . 
+Alcuni operatori economici , ad esempio , saranno tentati di aumentare i prezzi con arrotondamenti ingiustificati . 
+In qualità di presidente dell ' ufficio del turismo di Marsiglia , mi è giunta voce di pratiche di questo genere e dell ' inquietudine di alcuni professionisti . 
+L ' introduzione della moneta unica richiederà un periodo di adeguamento durante il quale sarà necessario rassicurare i consumatori e non approfittare di loro . 
+Occorre che gli attori interessati si rendano conto del fatto che non si deve anteporre il piccolo profitto immediato alla fiducia dei consumatori e al buon svolgimento del passaggio alla moneta unica . 
+Desidero inoltre sottolineare l ' importanza di misure di accompagnamento per tutte le piccole e medie imprese . 
+Ad esempio , nel settore turistico , noto che molte di esse non sono preparate a sufficienza . 
+Me ne rammarico , ma suppongo che gli operatori economici di altri settori si trovino impreparati nella stessa misura . 
+La soluzione degli incentivi fiscali previsti nella relazione dell ' onorevole Maaten è da considerarsi una buona proposta . 
+Bisogna che gli Stati membri si impegnino , sul rettilineo d ' arrivo , a trovare stimoli per incoraggiare gli operatori economici ad adeguarsi rapidamente all ' euro , onde evitare costi che implicherebbero per loro ulteriori ritardi . 
+( Dichiarazione abbreviata in applicazione dell ' articolo 137 del Regolamento ) 
+( La seduta , sospesa alle 13.25, riprende alle 15 ) 
+Signor Presidente , faccio riferimento all ' articolo 135, paragrafo 2, secondo il quale : " In caso di votazione mediante sistema elettronico , viene registrato soltanto il risultato numerico della votazione " . 
+Se , tuttavia , è stata richiesta una votazione per appello nominale , ai sensi dell ' articolo 134, paragrafo 2 : " Il risultato della votazione è iscritto nel processo verbale della seduta secondo l ' ordine alfabetico nominativo dei deputati elencati secondo il rispettivo gruppo politico " . 
+Può gentilmente comunicarci se il processo verbale di domani fornirà il risultato accurato della votazione , come pubblicato finora ? 
+Sembra ci sia un ' incongruenza tra il risultato apparso sul tabellone e quello pubblicato ; quest ' ultimo risulta essere 273 voti favorevoli e 272 contrari . 
+L ' Assemblea , e tutta la stampa al piano di sotto .. . 
+( Reazioni diverse ) ... con tutta l ' agitazione in corso gradirebbe avere chiarimenti riguardo alla posizione del Parlamento . 
+Signor Presidente , il mio richiamo al regolamento è identico a quello dell ' onorevole Provan . 
+Come molti deputati presenti in Aula , ho esaminato la registrazione ufficiale all ' ora di pranzo , da cui risultano 273 voti favorevoli e 272 contrari . 
+Se questo è il risultato ufficial. e questo è il risultato pubblicat. in tal caso vorrei segnalare che il risultato comunicato dal Presidente in mattinata è errato . 
+Signor Presidente , come sapete non mi chiamo Al Gore e questa non è la Florida . 
+Non intendo discutere la questione delle schede preforate o di cos ' altro si trattasse in Florida , ma come altri onorevoli colleghi ho esaminato la lista stampata , da cui risultano 273 voti favorevoli e 272 contrari , in contrasto con la proclamazione del risultato e con i dati statistici presentati stamane . 
+E ' tanto più importante per noi sollevare la questione , in quanto , per una volta e con notevole sforzo , il gruppo dei liberali democratici è riuscito ad esprimere un voto unitario , ma ci troviamo dalla parte che ha perso la votazione . 
+Possono esistere diverse spiegazioni di ordine tecnico e , in tal caso , mi interesserebbe sentirle . 
+Tuttavia , si tratta di una questione di natura fondamentalmente politica , e semplici risposte tecniche riguardo ad una lista che rivela un ' incongruenza tra i risultati potrebbero non essere sufficienti . 
+Conosco la norma secondo cui la proclamazione del risultato della votazione da parte del Presidente è definitiva . 
+Per ora non insisto su un determinato risultato , pur riservandomi il diritto di continuare a mettere in discussione gli aspetti tecnici e politici . 
+Ciò che chiedo , signor Presidente , è se lei possa , a nome della Presidenza e in conformità dell ' articolo 138, fare una dichiarazione in questa sede in merito alla posizione del Parlamento e al risultato della votazione . 
+La Presidenza farà le sue osservazioni quando sarà terminata la lista degli oratori per le mozioni di procedura . 
+Ha la parola l ' onorevole Poettering per una mozione di procedura . 
+Signor Presidente , avrei preferito se , giunti a questo punto , la mia richiesta di intervento fosse risultata superflua . 
+Infatti davo per scontato che all ' inizio della seduta avrebbe rilasciato una dichiarazione con un suo giudizio sulla difficile situazione . 
+Mi sono iscritto a parlare perché altri lo hanno fatto e quindi mi sono sentito , a mia volta , in dovere di intervenire . 
+Innanzitutto ritengo indispensabile che lei rilasci una dichiarazione su come vede le cose . 
+Mi riservo di fare un intervento in seguito . 
+Sono disposto ad interrompere qui le mie considerazioni solo nel caso in cui lei voglia fare subito una comunicazione all ' Assemblea . 
+Signor Presidente , non sono il presidente della Corte Federale degli Stati Uniti , ma forse posso aiutarla . 
+Innanzitutto , conformemente alla tradizione parlamentare e al Regolamento , va considerato valido l ' esito della votazione proclamato dalla Presidenza . 
+Si tratta di una norma che è stata applicata in questo e in altri casi ambigui , e mi riferisco all ' interpretazione della Presidenza riguardo al caso Ruiz Mateos , recentemente discusso in Parlamento . 
+Fa fede la proclamazione della Presidenza . 
+In secondo luogo , vorrei richiamare l ' attenzione dei colleghi su un documento che tutti i deputati hanno o hanno avuto sul tavolo oggi : ieri , martedì , il Presidente di seduta , onorevole Provan , ha annunciato la designazione di un nuovo membro del Parlamento in sostituzione dell ' onorevole Casini , l ' onorevole Mario Brienza . 
+Dovremmo pertanto scoprire se l ' onorevole Brienza , nel suo pieno diritto , ha votato oggi , prima che i servizi dell ' Assemblea , con la diligenza abituale , avessero avuto modo di inserirlo nel registro . 
+Se così fosse , si spiegherebbe tutto . Ripeto ciò che ho detto all ' inizio : fa fede la proclamazione dei risultati da parte della Presidenza ; altrimenti , ci addentriamo in interpretazioni assolutamente azzardate , che non portano da nessuna parte . 
+Signor Presidente , la prego di verificare se l ' onorevole Brianza ha votato . 
+Signor Presidente , prendo atto della sua dichiarazione e la ritengo corretta sia dal punto di vista della procedura che del Regolamento . 
+Riconosco che il Presidente del Parlamento ha tutto il diritto di convocare la Conferenza dei presidenti dei gruppi politici . 
+Ma detta Conferenz. ed è questo il motivo per cui ho chiesto nuovamente la parol. può soltanto ricevere informazioni dal Presidente del Parlamento , non ha alcuna facoltà di modificare le decisioni rese note stamattina dalla Presidenza . 
+Onorevole Poettering , la convocazione della Conferenza dei presidenti è solo un atto di cortesia della Presidenza nei confronti dei capigruppo , al fine di informarli adeguatamente riguardo a questo contrattempo . 
+Ha la parola l ' onorevole Cox per una mozione di procedura . 
+Signor Presidente , quando sono intervenuto poc ' anzi ho affermato che volevo riservarmi il diritto di intervenire di nuovo . 
+Personalmente , conoscevo la spiegazione che lei ora ha reso pubblica . 
+Si tratta di un infelice errore tecnico , ma accetto che sia stato commesso in buona fede . 
+Accetto anche la dichiarazione , seppure con una certa riluttanza . 
+Tuttavia , se si tratta di una semplice svista tecnica , è un errore politico convocare la Conferenza dei presidenti al fine di affrontare , in seno a un organo politico dell ' Assemblea , una questione per la quale esiste una spiegazione tecnica del tutto ragionevole . 
+Non parteciperò a tale riunione , perché a mio parere lei dovrebbe prendere una decisione qui in Aula e chiudere la questione . 
+Non si tratta di una questione banale . 
+Accettiamo la spiegazione ragionevole che lei ci ha fornito , ma devo porle un ' altra domanda . 
+Il deputato che ha sostituito l ' onorevole Casini era veramente autorizzato a partecipare alla votazione , dal momento che le dimissioni dell ' onorevole Casini sono state annunciate solo lunedì sera ? 
+Ai sensi dell ' articolo 8 del Regolamento , è necessario uno scambio di lettere tra il Parlamento europeo e il governo italiano per poter effettivamente autorizzare il nuovo deputato a partecipare alla votazione ; naturalmente , se così è stato , il voto è valido . 
+Onorevole McCarthy , sono lieto di informare il Parlamento che tutti i deputati presenti questa mattina avevano pieno diritto di esprimere il loro voto . 
+Signor Presidente , mi permetta ancora un ' ultima osservazione : tutta questa agitazione si sarebbe potuta evitare se i servizi del Parlamento , dopo la redazione della lista e dopo aver constatato che , diversamente dal risultato annunciato , erano stati stampati solo 272 voti contrari , avesse reso noto l ' errore prima che la lista venisse pubblicata . 
+Era il minimo che ci si potesse aspettare ! 
+Benvenuto 
+Onorevoli deputati , ho l ' onore di porgere il benvenuto a una delegazione del Parlamento dello Yemen , guidata dal suo Vicepresidente , Abdelwahab Mahmoud , presente in tribuna d ' onore , in occasione della seconda riunione interparlamentare con la Delegazione per le relazioni con i paesi del Mashrak e gli Stati del Golfo . 
+Per il Parlamento è fonte di grande soddisfazione constatare la volontà dello Yemen di avvicinarsi all ' Europa , e ci auguriamo che questo secondo incontro rappresenti l ' avvio di una tappa importante verso una cooperazione rafforzata con l ' Unione europea che permetta allo Yemen di ritrovare la via del benessere e del consolidamento della democrazia . 
+Auguriamo alla delegazione dello Yemen riunioni proficue e un buon soggiorno a Strasburgo . 
+Diritti umani nel mondo / Diritti fondamentali nell ' Unione 
+L ' ordine del giorno reca , in discussione congiunta , le seguenti relazioni : 
+( A5 - 0193 / 2001 ) , presentata dall ' onorevole Wuori a nome della commissione per gli affari esteri , i diritti dell ' uomo , la sicurezza comune e la politica di difesa , sui diritti umani nel mondo nel 2000 e la politica dell ' Unione europea sui diritti dell ' uomo ; 
+( A5 - 0223 / 2001 ) , presentata dall ' onorevole Cornillet a nome della commissione per le libertà e i diritti dei cittadini , la giustizia e gli affari interni , sulla situazione dei diritti fondamentali nell ' Unione europea . 
+Signor Presidente , la discussione e l ' elaborazione di questa relazione hanno dimostrato lo scarso peso che i diritti umani hanno rispetto alle esigenze della politica . 
+Tuttavia i diritti umani , che vengono definiti addirittura l ' ultima fede laica dei nostri tempi , oggi sono più importanti della politica che è solo un modo di camuffare la verità storica . 
+Forse , però , ci sfugge il fatto che i diritti umani non sono solo un valido strumento per il raggiungimento di determinati obiettivi politici ; nel peggiore dei casi essi sono anche un alibi per strategie di realpolitik o di inerzia . 
+I diritti umani sono tematici , sistematici e soprattutto normativi , essi sono il risultato della nostra evoluzione culturale e rappresentano quei valori sui quali si basa lo sviluppo dell ' Unione europea e l ' evoluzione della storia . 
+I diritti umani non possono essere sacrificati sull ' altare della convenienza politica o su quello degli impegni retorici . 
+Se vogliamo che l ' Unione europea abbia un giorno una vera e propria politica estera e di sicurezza comune , è necessario elaborare anche una strategia comune per i diritti umani che le funga da complemento . 
+A mio parere ora stiamo andando nella direzione giusta : sia la Carta dei diritti fondamentali che la relazione annuale sui diritti dell ' uomo che la comunicazione appena pubblicata dalla Commissione contengono valide indicazioni per rendere più efficace la tutela dei diritti umani . La Presidenza belga , noto con soddisfazione che il Ministro degli esteri belga è presente per partecipare alla discussione , ha sottolineato la necessità di rendere più coerente e logica la politica dei diritti umani , e io mi auguro che questo intento vada al di là delle richieste generali di correttezza politica . 
+Il programma della Presidenza belga prevede altresì di esortare gli Stati a diffondere una cultura del rispetto dei diritti umani e di trasparenza nonché l ' esigenza di porre delle chiare priorità . Questi propositi vengono integrati dalle conclusioni del Consiglio " Affari generali " del 25 giugno 2001 . 
+Nella relazione si è dato molto rilievo al dialogo tra società civile e governo e si è enfatizzata l ' importanza della cooperazione . 
+Come il Commissario Chris Patten ha affermato nel corso del primo forum europeo sui diritti umani che si è tenuto nel 1999, nel corso della Presidenza finlandese , sarebbe veramente sciocco non tenere in considerazione le opinioni delle organizzazioni non governative in quanto l ' esperienza e la competenza delle organizzazioni per i diritti umani europee non hanno pari nel mondo . 
+Innanzitutto , però , noi dobbiamo cercare di migliorare il nostro modo di agire . 
+Se non esiste una strategia , è la tattica a fornirne una e ciò significa che le iniziative politiche ad hoc emarginano il principio fondamentale dello Stato di diritto e quello della tutela dei diritti umani . 
+Ci piace predicare sull ' importanza di questi principi , ma poi sappiamo metterli da parte per ragioni politiche impellenti e ciò è stato dimostrato dalla frettolosa estradizione di Milosevic la settimana scorsa . 
+E ' pur vero che la consegna di Milosevic costituisce una svolta giudiziaria e politica che segnala lo sviluppo di una nuova dottrina secondo la quale la sovranità di uno Stato passa in secondo piano in caso di violazioni di diritti umani alla cui tutela viene data la priorità assoluta . 
+Dobbiamo sforzarci di essere logici anche quando valutiamo paesi terzi e soprattutto alcuni paesi candidati , persino la Turchia . 
+La critica severa per essere giustificata deve essere basata sulla lealtà e su un trattamento equo , altrimenti l ' ampliamento dell ' Unione potrebbe cominciare a ricordare sempre di più il dialogo di Potemkin : gli Stati candidati fanno solo dei cambiamenti cosmetici per poter soddisfare i requisiti stabiliti dall ' Unione , requisiti che sono espressione di una politica di facciata , ingannevole e persino un po ' ipocrita . 
+La relazione sui diritti dell ' uomo di quest ' anno , approvata all ' unanimità dalla commissione per gli affari esteri , I diritti dell ' uomo , la sicurezza comune e la politica di difesa , contiene numerose proposte il cui scopo è quello di rendere più efficace la politica comunitaria relativa ai diritti umani nei confronti dei paesi terzi . 
+A mio parere sono le strategie tematiche e mirate a garantire il raggiungimento di questo risultato , come è stato dimostrato dal successo di iniziative come le linee guida e le posizioni comuni relative alla tortura e alla pena di morte . 
+E ' di fondamentale importanza cercare di garantire una maggiore trasparenza e un dialogo più ampio ed articolato tra gli esperti comunitari ; è altresì necessario , a mio avviso , utilizzare più risolutamente alcuni strumenti già esistenti come le clausole relative ai diritti umani contenute negli accordi con i paesi terzi , in casi come quello della Russia per esempio . Il ricorso a questi meccanismi è indispensabile per la prevenzione dei conflitti e per promuovere la tutela dei diritti umani . 
+Il tema principale della relazione è la libertà di espressione , non solo perché essa è minacciata da pericoli vecchi e nuovi ma anche perché la libertà di espressione svolge un ruolo strategico nella difesa dei diritti umani della prima , della seconda e della terza generazione nonchè nella denuncia delle violazioni . 
+Sarebbe ingenuo ridurre l ' importanza dei diritti umani . 
+E ' arrivato il momento di attuare gli intenti formulati e di avviare con determinazione un processo per l ' elaborazione di una strategia comunitaria per i diritti umani . 
+Signor Presidente , per prima cosa devo dire che non mi riconosco nel parere da me stessa firmato in merito a questa relazione . 
+Dico questo per un motivo fondamentale : al momento della votazione , soprattutto grazie al voto dei colleghi della destra , sono stati soppressi due paragrafi di questo parere della commissione per le petizioni che a me sembravano essenziali . 
+Tengo a citare i due paragrafi in questione , che , essendo scomparsi dal testo , mi hanno obbligata ad astenermi sul mio stesso parere . 
+In uno di essi si dicev. in realtà , si trattava della fine di un paragraf. che " i diritti economici , sociali e culturali sono indispensabili per l ' esercizio dei diritti civili e politici " . 
+Una persona che ha fame , che non ha un lavoro , che non ha una casa , non è in condizioni di beneficiare dei diritti civili . 
+Questa frase mi sembrava importante ed è stata soppressa . 
+L ' altr. forse un po ' più discutibil. diceva : " nella Carta dei diritti fondamentali dell ' Unione europea dovrebbero essere integrati diritti vincolanti imprescindibili , quali il diritto al lavoro , alla casa , ad un reddito minimo e ad un ambiente sano o il diritto di voto dei cittadini di paesi terzi che abbiano risieduto per cinque anni nell ' Unione , nonché l ' estensione dei diritti civili agli immigranti che arrivano in Europa in cerca di una vita decorosa " . 
+Anche questo paragrafo è stato soppresso . 
+Per questa ragione , signor Presidente , ho dovuto astenermi sul mio stesso parere . 
+Ritengo tuttavia che la commissione per le petizioni contribuisca in modo evidente alla difesa dei diritti dei cittadini europei . 
+Prova ne è che oltre 1400 cittadini , in Europa , mandano ogni anno a questa commissione petizioni relative al riconoscimento di titoli , alla libera circolazione , ai diritti degli immigranti e al diritto ad un ambiente integro e sano . 
+Signor Presidente , purtroppo devo ricordare che in Europa abbiamo una piaga , il terrorismo , che lede molto gravemente la libertà di espressione ed il diritto fondamentale , il diritto alla vita . 
+Ci piacerebbe moltissim. nella mia modesta condizione lo ripeto da tempo e continuerò a farl. che oggi l ' Europa si distinguesse nella difesa dei diritti umani sia al proprio interno che all ' esterno . 
+Credo che abbiamo questo ruolo da svolgere . 
+Ritengo che , purtroppo , attualmente non lo stiamo svolgendo , ma spero che , in futuro , saremo in grado di farlo . 
+Signor Presidente , mi sia consentito innanzitutto di congratularmi con l ' onorevole Wuori per la sua relazione stimolante e ben strutturata , che ha ottenuto il sostegno della stragrande maggioranza del Parlamento . 
+Ho anche ascoltato con piacere il discorso del Ministro : il Parlamento conosce il suo impegno personale nei confronti del rafforzamento e della tutela dei diritti umani . 
+L ' anno che è seguito all ' adozione dell ' ultima relazione del Parlamento sui diritti umani è stato caratterizzato da importanti sviluppi istituzionali e strategici . 
+La riforma dell ' assistenza esterna ha messo radici e Europe Aid sta esaminando la valanga di risposte ai due recenti inviti a presentare proposte in materia di diritti umani : circa 1400 proposte per un totale di 1,6 miliardi di euro . 
+E ' stata ufficialmente proclamata la Carta dei diritti fondamentali , che costituisce un importante elemento delle iniziative dell ' Unione europea volte a garantire la coerenza tra politica interna ed esterna in materia di diritti umani . 
+Gli orientamenti concernenti la tortura adottati dal Consiglio hanno fornito un quadro preciso per la politica e le azioni in tale settore e la comunicazione sulla promozione dei diritti dell ' uomo e della democratizzazione , la cui lunga gestazione ha però prodotto un testo efficace , adottato l ' 8 maggio , definisce una chiara strategia a breve e medio termine . 
+Dobbiamo ora concentrarci sulla realizzazione delle proposte . 
+Emerge chiaramente dalla relazione dell ' onorevole Wuori che Parlamento e Commissione seguono la stessa linea di pensiero in materia di diritti umani . 
+Questa è la prima occasione che ho di presentare la comunicazione al Parlamento in seduta plenaria . 
+Ridotta all ' essenziale , la comunicazione intende promuovere politiche coerenti e uniformi in materia di diritti umani nelle relazioni dell ' Unione europea con i paesi terzi , valorizzare al massimo l ' influenza che si può esercitare attraverso il dialogo politico , gli scambi commerciali e l ' assistenza esterna , nonché definire un ' impostazione più strategica e mirata per l ' Iniziativa europea per la democrazia e i diritti umani . 
+Diverse questioni trattate nella relazione dell ' onorevole Wuori collimano con i punti della nostra comunicazione . 
+Per esempio , dichiariamo esplicitamente che il Parlamento sarà consultato sulla programmazione dell ' Iniziativa europea per la democrazia e i diritti umani per il 2002 e gli anni successivi . 
+Per quanto riguarda le relazioni e le valutazioni , la Commissione si è impegnata a pubblicare relazioni regolari sulle attività che finanziamo . 
+L ' ultima relazione è stata pubblicata il 22 maggio e contiene un ' analisi esauriente dei progetti finanziati nel quadro del bilancio per il 2000 . 
+Come afferma chiaramente la relazione dell ' onorevole Wuori , la promozione dei diritti umani è un elemento indispensabile nella prevenzione dei conflitti . 
+La comunicazione sulla prevenzione dei conflitti pubblicata in aprile conferma l ' alta priorità attribuita dalla Commissione allo sviluppo delle capacità dell ' Unione . 
+Un uso più sistematico di documenti strategici per gli interventi a favore di un particolare paese contribuirà a garantire un impiego convincente degli strumenti comunitari per affrontare sia le cause fondamentali dei conflitti sia gli altri problemi attinenti ai diritti umani . 
+Per quanto riguarda il dispositivo di reazione rapida , la Commissione presenterà al Parlamento a tempo debito una valutazione delle attività intraprese . 
+Il tema centrale della relazione dell ' onorevole Wuori , la libertà di espressione , trova eco nella comunicazione , che afferma esplicitamente che questo aspetto rientra nel primo dei quattro settori prioritari per l ' Iniziativa europea per la democrazia e i diritti umani per il 2002 e gli anni successivi ; tale argomento è infatti di cruciale importanza . 
+Il diritto di esprimere la propria opinione senza timori o conseguenze è , per prendere a prestito una frase del grande giudice inglese Lord Devlin , " un faro che dimostra che la libertà esiste " . 
+Quando le autorità pubbliche iniziano a chiudere gli organi di informazione , a molestare o incarcerare i giornalisti , esse forniscono un segno sicuro del degrado della situazione dei diritti umani e delle libertà fondamentali in un paese . 
+L ' Unione europea esprime chiaramente la propria posizione in materia nelle relazioni con i paesi terzi e nei forum internazionali , quali la commissione delle Nazioni Unite per i diritti umani . 
+Ma la retorica è accompagnata da un sostegno concreto . 
+Solo nel quadro dell ' Iniziativa europea , nel 2000 sono stati stanziati oltre 5,4 milioni di euro per progetti a favore della libertà di espressione , dei mezzi di informazione indipendenti e per la tutela e la formazione dei giornalisti . 
+Un grosso progetto avviato in Africa e in Asia da Rapporteurs Sans Frontières costituisce un ottimo esempio . 
+Le inchieste sui giornalisti incarcerati e la prestazione di assistenza concreta ai giornalisti e alle loro famiglie sono accompagnate da campagne di sensibilizzazione e di informazione . 
+Vorrei ora esaminare un altro filo conduttore della relazione dell ' onorevole Wuori : la relazione tra le nostre due Istituzioni . 
+Il Parlamento ha sviluppato un alto profilo in materia di diritti umani . 
+Come ho rilevato presentando la comunicazione alla commissione per gli affari esteri , i diritti dell ' uomo , la sicurezza comune e la politica di difesa il 15 maggio scorso , le relazioni e le risoluzioni del Parlamento sulle precedenti attività dalla Commissione nel campo dei diritti umani sono state estremamente utili per la stesura della comunicazione . 
+La Commissione è incline a rafforzare il dialogo sui diritti umani con il Parlamento , e ciò si riflette nelle consultazioni che si terranno nel 2002 per la programmazione dell ' Iniziativa europea . 
+La Commissione intende inoltre garantire , in collaborazione con la Presidenza , che , nel definire le date e l ' ubicazione del forum di discussione sui diritti umani con le organizzazioni non governative e con altri organismi , si tenga pienamente conto della necessità di una partecipazione sistematica dei parlamentari europei . 
+Intendiamo inoltre rafforzare il potenziale del forum . 
+Cominceremo con la valutazione degli eventi organizzati finora , in consultazione con il Parlamento , il Consiglio e le ONG . 
+Per quanto riguarda le clausole sui diritti umani , prendo atto della preoccupazione espressa dal Parlamento per il fatto che numerosi accordi non contengano norme di attuazione del meccanismo di sospensione . 
+Come sappiamo , la versione più recente della clausola sugli elementi essenziali contenuta , per esempio , nell ' accordo di Cotonou , prevede una procedura di consultazione prima dell ' eventuale sospensione di un accordo . 
+E ' la più avanzata in materia , ma per introdurre modifiche negli accordi esistenti è necessario rinegoziare i singoli accordi con i partner , una procedura indubbiamente lunga . 
+Nondimeno , la Commissione è pronta a discutere la futura formulazione e applicazione della clausol. questione che ho sollevato il mese scorso in occasione della riunione informale dei Ministri degli ester. e continuerà ad attribuire la dovuta importanza al parere del Parlamento . 
+Un ' ultima parola sugli strumenti di polizia e di sicurezza , un punto della relazione che non è rivolto direttamente alla Commissione . 
+La Commissione intende presentare al Consiglio , entro la fine dell ' estate , una proposta per il controllo e , se necessario , il divieto delle esportazioni di strumenti che possano essere utilizzati a fini di tortura e per scopi crudeli o inumani . 
+La Commissione valuterà con gli Stati membri se vi sia o meno necessità di un ' azione comunitaria in materia di fabbricazione , promozione o uso di tali strumenti . 
+So che la questione sta a cuore sia ai parlamentari che alle ONG come Amnesty International , e sono lieto che siamo molto vicini all ' adozione di un provvedimento significativo . 
+Mi congratulo ancora una volta con l ' onorevole Wuori per l ' ottima relazione e attendo fiducioso di lavorare con lui e con l ' Assemblea per perseguire i nostri obiettivi comuni nel campo dei diritti umani . 
+Signor Presidente , onorevoli deputati , vorrei innanzitutto complimentarmi con il relatore , onorevole Cornillet , e con la commissione per le libertà e i diritti dei cittadini , la giustizia e gli affari interni , per la qualità della relazione sottoposta oggi all ' approvazione del Parlamento . 
+Vorrei , come ha già fatto il collega Patten , associarmi ai complimenti per gli impegni assunti dal Ministro Michel , in qualità di rappresentante del Consiglio , in materia di salvaguardia dei diritti fondamentali sia in politica estera che in politica interna dell ' Unione . 
+Richiamo la vostra attenzione e la vostra riflessione soprattutto su una frase particolarmente significativa : " l ' Unione deve dare l ' esempio prima di impartire lezioni " . 
+Quest ' anno la relazione presentata dalla commissione per le libertà , che comprende un gran numero di diritti fondamentali , era particolarmente ricca di ambizioni . 
+E ' giocoforza constatare che l ' obiettivo è stato raggiunto . 
+La relazione si fonda su una motivazione decisamente ampia e dettagliata . 
+E ' inoltre corredata da numerose raccomandazioni pertinenti che permetterebbero di migliorare davvero sensibilmente la tutela dei diritti fondamentali nell ' Unione . 
+Desidero anche esprimere il mio compiacimento per la struttura della relazione , che segue fedelmente quella della Carta dei diritti fondamentali . 
+La scelta di questo approccio mi sembra alquanto opportuna . 
+Senza alcun dubbio contribuirà a promuovere una cultura comunitaria volta a salvaguardare i diritti fondamentali dell ' Unione . 
+Sono personalmente convinto che nel corso degli anni l ' elaborazione di questa relazione parlamentare diventerà uno dei mezzi privilegiati per effettuare una valutazione costante ed obiettiva della situazione dei diritti fondamentali in seno all ' Unione . 
+Tale valutazione è particolarmente necessaria al fine di mantenere e sviluppare lo spazio di libertà , sicurezza e giustizia . 
+Tutti sappiamo , e ci piace ripeterlo , che la tutela effettiva dei diritti fondamentali è una condizione preliminare al fine di sviluppare uno spazio al cui interno sia realmente assicurata la libera circolazione delle persone . 
+Disponiamo inoltre di strumenti giuridici a tal fine : la Carta proclamata a Nizza , nonché l ' articolo 6 del Trattato dell ' Unione , che fa riferimento alla Convenzione europea dei diritti dell ' uomo e alla tradizione costituzionale comune degli Stati membri , ad anche l ' articolo 7 del Trattato , che risulterà ulteriormente rafforzato dal Trattato di Nizza quando entrerà in vigore . 
+Dobbiamo quindi utilizzare i mezzi che la nostra politica ci offre . 
+La Commissione non può che accogliere molto calorosamente le diverse proposte riprese nella relazione , in particolare quando mirano a mettere in piedi gli strumenti tecnici che permettano di approfondire la materia . 
+La Commissione ha preso buona nota delle raccomandazioni che le sono state più direttamente rivolte : designazione di un Commissario responsabile per i diritti fondamentali nell ' Unione e dell ' attuazione di politiche legate , da una parte , alla creazione di uno spazio di libertà , sicurezza e giustizia , dall ' altra , alla riorganizzazione dei servizi preposti a seguire la Carta . 
+Queste due raccomandazioni hanno una logica innegabile e meritano una riflessione approfondita . 
+Onorevole Cornillet , onorevoli deputati , posso assicurarvi che incoraggerò una discussione politica in seno al Collegio in merito a entrambe le questioni . 
+Esaminando la prima raccomandazione , ho già sottolineato il legame tra la tutela dei diritti fondamentali e lo spazio di libertà , sicurezza e giustizia . 
+Non posso quindi che sottoscrivere la necessità di intraprendere una riflessione sull ' argomento nell ' ambito della riorganizzazione della collegialità in fieri in seguito ai cambiamenti apportati dal Trattato di Amsterdam e in previsione dell ' entrata in vigore delle disposizioni di Nizza , segnatamente in vista del prossimo allargamento . 
+Credo di poter valutare appieno l ' importanza e la necessità di questi cambiamenti e del nuovo tipo di relazione che sta per instaurarsi in materia di diritti fondamentali tra gli organi e le Istituzioni dell ' Unione e gli Stati membri nel quadro dell ' applicazione dell ' articolo 7 . 
+Per quanto riguarda la seconda raccomandazione , richiamo l ' attenzione del Parlamento su una comunicazione interna approvata dal Collegio nello scorso mese di maggio , che richiede un rigoroso rispetto della Carta all ' interno delle attività della Commissione nel loro complesso . 
+In particolare è stato chiesto al servizio di vigilare affinché i testi proposti o approvati dalla Commissione vengano passati a priori al vaglio della Carta . 
+Questo esame dovrebbe essere certificato con l ' introduzione di un considerando standard , per le proposte che presentano un legame evidente con la tutela dei diritti fondamentali . 
+Del resto tale prassi è già stata adottata per diverse proposte recentemente sottoposte al Parlamento e al Consiglio . 
+Non mi è possibile prendere posizione nei confronti delle numerose raccomandazioni riprese nella proposta di risoluzione per quel che riguarda i differenti capitoli della Carta . 
+Tali raccomandazioni , rivolte per lo più agli Stati membri , personalmente mi sembrano di agevole attuazione e , come dicevo , suscettibili di migliorare alquanto sensibilmente la tutela dei diritti fondamentali in seno all ' Unione . 
+Sappiamo che la democrazia è un modello mai perfettamente realizzato , a cui tuttavia è soprattutto importante tendere . 
+A mio parere gli Stati membri dovrebbero recepire tali raccomandazioni nella prospettiva di una graduale armonizzazione . 
+Non come critiche , ma come suggerimenti volti a migliorare il livello di salvaguardia dei diritti fondamentali in tutta l ' Unione europea . 
+La Commissione ha parimenti preso buona nota delle raccomandazioni rivoltele in merito alla cittadinanza europea , soprattutto per quanto riguarda i punti 122 e 123 della relazione . 
+Tengo a far notare che il rimaneggiamento dei testi in vigore per quel che riguarda la libera circolazione delle persone , a cui si fa riferimento al punto 123, è oggetto di una proposta della Commissione trasmessa a Parlamento e Consiglio alla fine della settimana scorsa . 
+Mi auguro che durante la Presidenza belga potrà tenersi , in conformità della procedura di codecisione , un rapido esame di queste importanti proposte al fine di assicurare il diritto effettivo di libera circolazione e di soggiorno negli Stati membri . 
+Signor Presidente , onorevoli deputati , i diritti fondamentali sono molto probabilmente , la carta d ' identità di un modello politico e sociale europeo di cui vogliamo preservare i valori , non in una prospettiva meramente difensiva , quanto soprattutto in una prospettiva proattiva , riconoscendo la necessità di adeguarli a un mondo in profonda evoluzione . 
+L ' avvenire dell ' Europa deve essere costruito mettendo i diritti fondamentali al centro del compromesso politico fondamentale e dimostrando il ruolo fondatore che rivestono la dignità della persona e la visione umanistica del progetto politico europeo . 
+Spero che il nuovo ruolo riconosciuto ai diritti fondamentali sia anche all ' origine di un rinnovato entusiasmo verso l ' Europa da parte degli europei . 
+Signor Presidente , onorevoli colleghi , rivolgo innanzitutto un cordiale ringraziamento al collega Wuori per la bella ed ampia relazione presentata . 
+Come relatore ombra del gruppo PPE ringrazio vivamente per l ' ottima collaborazione . 
+Il Parlamento si considera , a ragione , l ' Istituzione europea che si intromette con maggior decisione nelle questioni interne anche di paesi terzi in difesa degli esseri umani . 
+Sì , ci intromettiamo , in quanto riteniamo , per l ' appunto , che la tutela dei diritti umani non sia una questione interna . 
+E per la tutela dei diritti umani anche singoli eventi possono essere di grande rilevanza . 
+Il fatto che Milosevic si trovi al cospetto del tribunale dell ' Aia ha fatto perdere il sonno , da una settimana a questa parte , a molti dittatori e despoti . 
+Una simile procedura contro un ex Capo di governo rappresenta una classica misura preventiva in materia di politica dei diritti umani . 
+Posso solo consigliare a certi uomini di potere di stare in guardia in futuro . 
+Non riusciranno a cavarsela ! 
+La giustizia li raggiungerà già su questa terra . 
+Spesso ci si chiede se relazioni del genere servano a qualcosa . 
+Vi dirò francamente che , a giudicare dal modo in cui gli interessati o i governi che si sentono chiamati in causa si adoperano , già nella fase di stesura preliminare di una relazione , per evitare dichiarazioni dal loro punto di vista imbarazzanti , parrebbe che tali relazioni abbiano davvero ripercussioni significative , soprattutto all ' interno della società civile dei paesi in questione . 
+In alcuni casi simili critiche arrivano a proposito anche ai governi . 
+Ad esempio , rimanendo nell ' ambito dei paesi candidati all ' adesione , tali rilievi danno loro la possibilità di mettere in atto le misure necessarie in relazione ai deficit indicati dalle nostre relazioni . 
+Se osserviamo l ' esempio recente della Romania , rispetto alla quale la onorevole Nicholson ha denunciato , con un difficile lavoro da certosino , le tremende condizioni esistenti nell ' ambito degli orfanotrofi , della tratta dei bambini o delle adozioni illegali , dobbiamo rilevare come ciò possa davvero agitare un governo , ma in senso positivo , stimolandolo ad affrontare le carenze . 
+Tuttavia , per compiere passi avanti , dobbiamo continuare ad occuparcene e tale compito si pone anche per le delegazioni della Commissione che si trovano in loco e per le nostre 15 ambasciate , affinché possiamo accertarci che gli obiettivi siano davvero raggiunti . 
+Porto anche l ' esempio dell ' India . Sostengo espressamente le richieste del collega Haarder in relazione agli intoccabili e al sistema delle caste . 
+Anche il governo indiano in linea di principio è contrario , ma ho l ' impressione che dovrebbe fare di più . 
+Forse ha bisogno di un esplicito invito da parte nostra . 
+I diritti umani non sono una questione di opportunismo . 
+Dovremmo sempre farlo presente , in ogni circostanza , a tutti i nostri governi . 
+Chi per motivi di realpolitik adotta criteri diversi anche nei confronti della Cina , della Russia o delle parti coinvolte nel conflitto in Medio Oriente , alla fin fine non si rende utile . 
+Anche il Commissario Patten ha chiesto in Svezia , al cospetto dei Ministri degli esteri , di non applicare metri di giudizio diversi . 
+Spero che i governi facciano propria questa esortazione . 
+Non voglio più vedere sguardi tormentati nelle nostre file , se nel corso dei colloqui tra delegazioni si affronta con la Cina il tema della pena di morte , ad esempio , o il caso Falun Gong o quello del Tibet . 
+Sguardi tormentati perché forse temono che qualche buon affare possa andare in fumo . 
+Chi , per andare d ' accordo col Presidente Putin , non trovasse il coraggio di protestare contro il nuovo metodo di acquisizioni con cui si sta procedendo a controllare la stampa russa , non rende un buon servizio alle nostre relazioni con la Russia , né contribuisce al rafforzamento della società civile all ' interno del paese . 
+Facciamo sì che il tema dei diritti umani , ogniqualvolta è necessario , diventi parte attiva e integrante di qualsiasi schema di intervento ministeriale e della successiva conferenza stampa . 
+In tal modo acquisteremo , nel complesso , credibilità politica sia all ' interno che all ' esterno dell ' Unione . 
+Innanzitutto , vorrei anch ' io congratularmi con l ' onorevole Wuori per la sua relazione di ampio respiro e con l ' onorevole Cornillet per l ' audacia e la sagacia con cui ha cercato di definire un nuovo metodo per l ' elaborazione della relazione annuale sui diritti fondamentali nell ' Unione europea , collegata alla Carta . 
+In entrambe le relazioni , tuttavia , si rilevano ancora motivi di preoccupazione e allarme . 
+La realtà è che mentre discutiamo in quest ' Aula , gli abusi dei diritti umani proseguono e i difensori dei diritti umani spariscono . 
+In Vietnam , per esempio , continuano le persecuzioni per motivi religiosi e i monaci buddisti rimangono in carcere o sottoposti ad arresti domiciliari repressivi . 
+Flung San Suu Kyi è tuttora confinata nella sua abitazione in Birmania . 
+La pena di morte viene ancora eseguita in paesi democratici come gli Stati Uniti . 
+A Belgrado , la polizia resta a guardare mentre gruppi di teppisti attaccano lesbiche e omosessuali alla manifestazione dell ' orgoglio omosessuale a pochi giorni dallo stanziamento di milioni di dollari a favore della regione e dal deferimento di Milosevic al Tribunale dell ' Aia . 
+In Egitto vengono incarcerati 55 omosessuali , i quali non hanno tuttora diritto alla rappresentanza legale e rischiano otto anni di reclusione perché sono gay . 
+Le donne continuano a subire mutilazioni genitali , proseguono le lapidazioni e le mutilazioni nel nome della legge . 
+Gli omosessuali vengono uccisi a sassate , si praticano persecuzioni per motivi religiosi , i bambini vengono rapiti e poi mandati in guerra , per non parlare dell ' orrore degli stupri e del terrorismo , della tortura e delle sparizioni forzate : un intero catalogo di indicibili sofferenze che cresce di anno in anno . 
+Nell ' Unione europea , i risultati ottenuti nel campo dei diritti umani richiedono un attento esame : il trattamento riservato ai profughi e ai richiedenti asilo ; la discriminazione , talvolta indotta dallo Stato , contro gli omosessuali ; il razzismo e gli assassinii di matrice razzista ; l ' ineguaglianza di fronte alla legge . 
+Lo stesso vale per i paesi candidati . 
+Il messaggio che dobbiamo trasmettere è che i diritti umani non si possono negoziare . 
+Finché un individuo o un gruppo subisce discriminazioni , manchiamo tutti al nostro dovere e siamo tutti responsabili . 
+Un ' oppressione gerarchizzata viene perpetuata dall ' inazione a livello legislativo e democratico . 
+Difendiamo alcune minoranze , ma non altre . 
+Quando stigmatizziamo alcuni paesi , veniamo accusati di imporre i nostri criteri . 
+Ma i criteri cui ci ispiriamo e che applichiamo sono criteri internazionali , criteri in base ai quali dobbiamo tutti essere giudicati . 
+Questo è il motivo per cui dobbiamo garantire un ' attuazione coerente della politica dei diritti umani e vigilare in modo sistematico sugli abusi dei diritti umani . 
+Mi compiaccio dell ' accordo di Cotonou , menzionato dal Commissario Patten . 
+Dobbiamo instaurare una stretta collaborazione con le Nazioni Unite , con i relatori speciali e con le ONG . 
+Dobbiamo sviluppare le nostre competenze interne e garantire che a uomini , donne e bambini nati uguali siano riconosciuti i diritti umani naturali e le libertà civili . 
+La nostra arma più potente è l ' immaginazione . 
+Immaginate di essere voi a subire torture , mutilazioni , ad essere incarcerati , lapidati , perché siete diversi o esprimete una diversa opinione . 
+Immaginate che ciò accada a vostra figlia , vostro figlio , vostro padre , vostra madre , vostro fratello , vostra sorella . 
+Questa è la realtà e questo è il motivo per cui abbiamo bisogno di una nuova strategia . 
+Ne abbiamo bisogno adesso . 
+Non dobbiamo deludere coloro che confidano in noi . 
+Signor Presidente , signor Commissario , signor Presidente in carica del Consiglio , il fatto che l ' ex dittatore serbo Slobodan Milosevic sia oggi davanti al tribunale dell ' Aia rappresenta un ' enorme vittoria per chiunque creda nei diritti umani e nella giustizia nel mondo . 
+E dimostra che la comunità internazionale non accetta il genocidio e la pulizia etnica . 
+Per i dittatori , il mondo è divenuto meno ospitale . 
+Ma resta poco ospitale anche per i diritti umani in generale . 
+Ogni giorno la dignità umana viene calpestata , ogni minuto singoli e gruppi sono sottoposti ad aggressioni di varia natur. torture , maltrattamenti , oppressione . 
+Negli ultimi tempi l ' Unione ha sostanzialmente incrementato il proprio impegno a favore dei diritti umani ed è evidente che l ' UE rappresenta una comunità di valori . 
+Ciò trova espressione sia a livello interno , sia a livello esterno , tanto nella nuova Carta dei diritti fondamentali , quanto nei requisiti posti ai paesi candidati all ' adesione . 
+L ' Unione è compatta nella sua critica alla pena di morte , sia essa utilizzata da dittature come Cina , Iraq e Arabia Saudita , o da democrazie come gli Stati Uniti . 
+Il coordinamento fra Istituzioni dell ' Unione e fra l ' Unione e i suoi Stati membri resta però ancora perfettibile . 
+Nella relazione di quest ' anno sullo stato dei diritti umani nel mondo , il relatore Wuori ha scelto di porre in evidenza , in particolare , la questione della libertà di espressione . 
+Nessuna democrazia è in grado di funzionare se non vi è un dibattito libero e indipendente , se i giornalisti temono per la loro sicurezza e se i cittadini non possono esprimere le loro opinioni . 
+Purtroppo non è così . 
+I giornalisti vengono ammazzati , minacciati e perseguitati . 
+La situazione è particolarmente inquietante in Iran , Bielorussia , Cina , Colombia e Cuba , ma anche l ' evoluzione in atto in Russia è preoccupante . 
+In numerosi paesi il regime tenta di impedire o di limitare l ' accesso dei cittadini a Internet con la censura o con la chiusura di siti web . 
+Questi regimi si comportano in questo modo perché sanno benissimo che Internet rende più difficile tenere oppressa la popolazione . 
+Internet rappresenta infatti una potente arma nella lotta per un mondo migliore . 
+Signor Presidente , i liberali di tutto il mondo sono sempre saliti e salgono tuttora sulle barricate in difesa della libertà di espressione e dei diritti umani , ovunque e per chiunque . 
+E continueranno a farlo . 
+Il mio gruppo ringrazia l ' onorevole Wuori per l ' eccellente relazione e la Presidenza belga per l ' impegno già mostrato a favore dei diritti umani . 
+( Verts / ALE ) . ( FR ) Signor Presidente , in una questione come quella dei diritti della persona il Parlamento europeo ha tradizionalmente il ruolo , per così dire , di occhio della comunità internazionale e di pungolo per le Istituzioni dell ' Unione . 
+Molti pensano che si tratti di un ruolo completamente inutile , ma io penso che sbaglino . 
+Oggi si può fare più di ieri e sicuramente meno di quel che si potrà fare domani , e tale dato di fatto è già molto importante . 
+Un po ' come è avvenuto per lo sviluppo sostenibile , il rispetto dei diritti individuali deve diventare , in modo strutturato e seguendo una reale strategia , parte integrante della politica esterna dell ' Unione , tanto nelle sue relazioni economiche quanto in quelle politiche . 
+Non si è ancora giunti a questo punto , come sottolinea il relatore Wuori , ma si va avanti . 
+Accolgo inoltre con soddisfazione la felice cooperazione che l ' onorevole Wuori ha saputo instaurare con le ONG che si occupano di diritti dell ' uomo . 
+Affinché l ' Europa possa emergere in modo credibile , come Unione che fonda il suo operato sul rispetto dei diritti della persona e su uno sviluppo economico sostenibile e solidale , dobbiamo abbandonare ogni ipocrisia e ambiguità . 
+Nelle relazioni politiche ed economiche con paesi come Cina , Russia , nonché Arabia Saudita , Stati Uniti e molti altri , dobbiamo davvero essere chiari : non si può ignorare che in questi paesi si giustiziano detenuti , si massacrano civili colpevoli solo di appartenere a minoranze etniche e politiche , si impedisce alle donne di vivere libere e viene praticata la tortura in modo indiscriminato . 
+Il Commissario Patten ha parlato di tali aspetti e spero che le sue parole saranno ben presto seguite da fatti . 
+Il discorso del Ministro Michel ci rassicura su quel che accadrà nei prossimi sei mesi e spero anche oltre . 
+Mi piacerebbe proprio rivolgergli una domanda molto diretta : il Belgio lancerà , nell ' ambito dell ' Assemblea generale delle Nazioni Unite , un ' iniziativa europea volta ad approvare una risoluzione per la moratoria delle esecuzioni capitali ? 
+Come sapete , la Presidenza finlandese aveva già compiuto un primo tentativo nel 1999, ma l ' iniziativa era fallita . 
+Che cosa intende fare in merito il Ministro Michel ? 
+Grazie mille , signor Presidente . 
+Vorrei innanzitutto segnalare la posizione favorevole del gruppo GUE / NGL nei confronti delle due relazioni , quella dell ' onorevole Wuori e quella dell ' onorevole Cornillet . 
+Entrambe sono state ben elaborate . 
+Sono stato testimone di un viaggio in Spagna dell ' onorevole Cornillet , che desiderava acquisire informazioni sulla situazione degli immigranti , proprio ad un anno dagli incidenti di El Ejido , e rendo atto della sua preoccupazione a questo proposito . 
+L ' onorevole Wuori , d ' altro canto , si è distinto per aver realizzato una relazione molto completa alla quale abbiamo partecipato tutti , fatto che credo sia stato motivo d ' orgoglio per la commissione per gli affari esteri . 
+Vorrei inoltre ringraziare per i loro interventi i due Commissari Patten e Vitorino , nonché il Presidente in carica del Consiglio Michel , perché lavorano nella prospettiva di fare dell ' Europa il punto di riferimento obbligato per assicurare il rispetto dei diritti umani nel mondo . 
+E ' importante segnalare questo fatto perché , ad oggi , sembra che solo gli Stati Uniti rappresentino questa garanzia mentre penso che sia vero proprio il contrario . 
+Il patrimonio culturale , storico e sociale dell ' Europa , le quattro generazioni di diritti umani che , a partire dalla Rivoluzione Francese , sono andate accumulandosi nella storia europea , ed anche il successo che abbiamo ottenuto con la costruzione dell ' Unione sono una garanzia del ruolo privilegiato e unico che l ' Unione europea può svolgere nel resto del mondo . 
+Tuttavia questo non ci solleva dalla nostra responsabilità storica rispetto alla triste situazione dei diritti umani esistente nei tre continenti . 
+Proprio la nostra presenza , infatti , è stata una delle cause delle difficoltà che questi popoli incontrano in materia di rispetto dei diritti umani . 
+Penso che varrebbe la pena istituire osservatori di diritti umani dell ' Unione europea in ciascuno dei tre continenti , che mantengano rapporti con le ONG e con gli stessi organi delle Nazioni Unite , affinché le relazioni annuali elaborate dal Parlamento e destinate alla Commissione e al Consiglio , possano tradursi in un miglioramento dei nostri interventi . 
+Non dobbiamo sorprenderci se talvolta imprese multinazionali europee ( come ho potuto notare in Colombia , o come succede in Africa e in Asia ) finanziano gruppi paramilitari che attentano direttamente ai diritti umani . 
+E ' nostra responsabilità chiarire questi fatti e contribuire ad un rafforzamento della tutela di tali diritti . 
+Infine vorrei segnalare che all ' interno dell ' Unione europea stessa , come molto giustamente ha fatto notare l ' onorevole Cornillet , occorre dare l ' esempio prima ancora di impartire lezioni : a questo proposito , abbiamo l ' opportunità di cominciare dagli immigranti , che costituiscono una materia in cui l ' Europa deve riparare . 
+Non possiamo affermare che abbiamo bisogno di 70 milioni di immigranti per portare avanti la nostra economia e poi riservare loro un trattamento discriminante . 
+Per tutti i motivi che ho esposto , è importante sostenere le relazioni in esame . 
+Signor Presidente , voglio innanzitutto ringraziare l ' onorevole Cornillet per il lavoro svolto sulla situazione dei diritti fondamentali nell ' Unione . 
+E ' una relazione dettagliata ed equilibrata , che può davvero rappresentare uno stimolo costruttivo per ciascuno Stato membro per dare una sostanza sempre più reale e concreta al principio di giustizia e di tutela di quelli che sono i diritti principali ed inalienabili dei cittadini europei . 
+Questa relazione può diventare un momento di riflessione , l ' occasione per fare un primo bilancio rispetto alla neonata Carta dei diritti , che rappresenta una tappa solo iniziale e pure così importante rispetto ad un ' unificazione europea che non sia fatta solo di finanze ed economia ma che sia anche la patria dei diritti e delle opportunità per tutti i cittadini europei , con una particolare attenzione per chi ha più difficoltà a vedere rispettati questi diritti : parlo ad esempio dei bambini , degli emarginati , delle persone più povere . 
+Pur condividendo l ' impostazione della relazione , vorrei però esprimere alcune considerazioni critiche . 
+Per quanto riguarda il capitolo sulle relazioni non matrimoniali , ritengo che sia inaccettabile auspicare un ' equiparazione giuridica tra i matrimoni costituiti da persone di sesso opposto e unioni di fatto costituite da conviventi dello stesso sesso . 
+Fermo restando il diritto per chiunque di non essere discriminato per le sue tendenze sessuali , rimane la necessità giuridica e sociale di tutelare l ' unione matrimoniale tradizionale come cellula fondamentale della società , con particolare attenzione alla possibilità di ricorrere alla fecondazione assistita e all ' adozione di minori , che devono rimanere facoltà esclusive delle famiglie naturali . 
+Tutto ciò proprio a tutela dei minori , dal momento che troppo spesso si dimentica che i diritti fondamentali non sono una prerogativa dei soli adulti ma anche e innanzitutto dei minori . 
+Vorrei comunque rammentare a questo Parlamento il caso che riguarda gli eredi maschi della Casa Savoia che , in un ' Europa come spazio di giustizia , libertà e libera circolazione , non possono recarsi in Italia da oltre cinquant ' anni . 
+Sarebbe opportuno contribuire a risolvere questo caso . 
+Signor Presidente , colleghi , nella proposta di risoluzione sui diritti dell ' uomo nel mondo c ' è un grande assente : il principio di autodeterminazione dei popoli . 
+Noi padani riteniamo che sia un ' omissione grave perché non si può non vedere che la negazione o comunque il voler trascurare la sottolineatura di questo diritto costituisce una delle maggiori violazioni possibili dei diritti dell ' uomo . 
+Pensiamo solo a ciò che succede in queste settimane , in questi mesi , nella realtà palestinese : una vera e propria tragedia quotidiana del principio di autodeterminazione , che sarebbe dovere dell ' Europa ricordare con maggior forza nei suoi documenti sui diritti dell ' uomo . 
+Peraltro , alcuni degli Stati che bussano alle porte dell ' Unione europea erano , fino a poco tempo fa , nazioni senza Stato . 
+Dobbiamo ricordarcelo ora , soprattutto dopo la dissoluzione dell ' Unione Sovietica , che sono Stati liberi e indipendenti . 
+Come può allora l ' Unione europea sottoporre adesso ad esame questi paesi , sub specie del rispetto dei diritti umani , quando nei suoi documenti omette di proclamare fortemente la tutela di quel principi. il diritto all ' autoderminazion. che i popoli di questi Stati si sono visti negare per decenni ? 
+Del tutto insufficiente , poi , se non inesistente è la parte dedicata alla tutela dei diritti culturali . 
+Non si può ritenere pienamente efficace la garanzia del diritto , ad esempio , di vedere tutelata la propria lingua o religione se essa è semplicemente offerta sotto forma di tutela della libertà individuale di adottare tale lingua e di praticare tale religione . 
+Perché sia possibile la vera libertà di parlare la propria lingua , occorre assicurare che le nuove generazioni siano educate in quel contesto culturale , che le tradizioni e la storia di quella minoranza abbiano un riconoscimento nei programmi di insegnamento scolastico . 
+Per esempio da noi , in Padania , chi ha come lingua materna il piemontese , come nel mio caso , o il veneto , non ha diritto a vederlo insegnato nelle proprie scuole perché queste lingu. il piemontese e il venet. sono state escluse . 
+Voglio infine ricordare , al punto 93, l ' omissione di un problema fondamentale che è quello del traffico degli organi umani , che fa vergogna .. . 
+( Il Presidente interrompe l ' oratore ) 
+Signor Presidente , al centro di questa discussione congiunta vi è il rispetto dei diritti dell ' uomo all ' interno e al di fuori dell ' Unione europea . Ciò mi ha nuovamente indotto a riflettere sul concetto di diritti dell ' uomo . 
+Più che mai questo argomento occupa una posizione di primo piano all ' ordine del giorno : giustamente , perché si parla di violazioni clamorose . 
+Tuttavia , in considerazione della mia concezione cristiana di vita , vorrei sottolineare che anche i diritti dell ' uomo non si pongono al di sopra di qualsiasi norma di legge . 
+Per quanto riguarda la difesa dei diritti dell ' uomo , si tratta di norme di tutela della vita umana , seguendo quelle che erano le intenzioni del Creatore . 
+Nella relazione Wuori si affronta tale concetto in maniera realistica . 
+Essa si limita ai diritti fondamentali dell ' uomo . 
+Mi domando però come l ' Unione europea , con i suoi ristretti mezzi finanziari e diplomatici , possa vigilare sul loro rispetto . 
+La politica dell ' Unione dev ' essere complementare alle capacità degli Stati membri . 
+La sola pressione che l ' Unione può esercitare inserendo in trattati e accordi clausole in materia di diritti dell ' uomo viene minata nella relazione in esame chiedendone un ' applicazione flessibile . 
+Noi siamo favorevoli a portare avanti un dialogo critico , ma la flessibilità non deve diventare la regola su cui si fonda la nostra politica . 
+Signor Presidente , vorrei formulare alcune osservazioni sulla relazione Cornillet . 
+Come ho appena detto , sono un fautore del rispetto dei diritti dell ' uomo . 
+Tuttavia non credo che l ' Unione europea abbia la competenza per occuparsi in maniera così dettagliata della loro applicazione negli Stati membri . 
+Inoltre noto la mancanza di una differenziazione tra diritti dell ' uomo e obiettivi politici dell ' autorità statale . 
+Un appello troppo accorato a favore dell ' intervento statale nelle questioni legate ai diritti dell ' uomo può portare ad una limitazione delle libertà civili . 
+Desidero esaminare separatamente i paragrafi 82 - 84 della relazione Cornillet . 
+Considero il matrimonio come un dono unico del Creatore . 
+L ' emarginazione di questa istituzione in seguito all ' introduzione di forme alternative di convivenza comporterà gravi ripercussioni negative sull ' intera società . 
+Anche nel mio paese appartengo ormai ad una minoranza ; ciononostante rimango fedele all ' istituto biblico del matrimonio , visto quale legame duraturo tra uomo e donna . 
+Mi auguro che il governo olandese ritorni sulle decisioni adottate . 
+Esorto gli Stati membri a non prestare ascolto all ' invito a seguire l ' esempio dei Paesi Bassi . 
+Il tentativo compiuto all ' emendamento n . 24 di attirare l ' attenzione sulla condizione dei pazienti terminali è lodevole , ma viene attuato in maniera sbagliata . 
+Per questo motivo ho chiesto una votazione separata sull ' emendamento . 
+Signor Presidente , signori Commissari , vorrei innanzitutto congratularmi vivamente col relatore , onorevole Cornillet , in quanto la sua relazione rappresenta un progresso , almeno dal punto di vista della struttura , offrendoci la possibilità di esaminare annualmente fino a che punto i requisiti della Carta dei diritti fondamentali vengono soddisfatti all ' interno dell ' Unione europea . 
+Questo progresso , come tutti gli anni , è stato ostacolato con varie votazioni e numerosi emendamenti , con cui si continua a cercare di infilare nella relazione rivendicazioni ideologiche che non c ' entrano affatto , rivendicazioni ideologiche che magari non si riesce a realizzare a casa propria e che inoltre violano il principio di sussidiarietà . 
+Tali rivendicazioni sono fuori luogo in questa sede . 
+Sono contrario ad ogni discriminazione e vorrei dimostrarlo con alcuni esempi : sono contro la discriminazione nei confronti dell ' omosessualità , ma sono anche contrario ai tentativi di carattere politico , cui si è nuovamente fatto ricorso , di definire il matrimonio omosessuale come assolutamente normale , rivendicando per quest ' ultimo gli stessi diritti attribuiti dal matrimonio tra partner di sesso diverso che ancora oggi costituisce la norma . 
+E ' giusto così , cari compagni e compagne , si direbbe oggigiorno a Berlino , è giusto che il matrimonio tra persone di sesso diverso , che rappresenta il fulcro della società , sia la norma . 
+Sono anche contrario ai tentativi di riconoscere a tutti i cittadini extracomunitari lo stesso diritto dei cittadini dell ' Unione di far parte dell ' elettorato , attivo o passivo . 
+Sarebbe un caso unico su tutta la faccia della terra e costituirebbe anche una discriminazione nei confronti dei cittadini dell ' Unione . 
+Sono contrario ai tentativi di trasformare il ricongiungimento familiare in uno strumento per l ' immigrazione , allargando la nozione di famiglia ad un grande gruppo non meglio definito . 
+Lo trovo inaccettabile , in quanto sottrae agli Stati membri il diritto di decidere quanta forza lavoro vogliono e possono accogliere . 
+Sì al nucleo familiare , no all ' intero parentado . 
+Gli esempi che ho citato ed altre rivendicazioni di carattere politico non avranno il nostro appoggio , che accordiamo invece alla relazione dello stimato onorevole Cornillet . 
+Signor Presidente , in veste di relatore ombra del mio gruppo sulla relazione Cornillet , con il quale mi congratulo per il risultato cui è pervenuto con il suo lavoro , affronto la questione del rispetto dei diritti dell ' uomo negli Stati membri dell ' Unione europea . 
+Se esaminiamo i dati disponibili , emergono due tipi di problematiche . 
+Primo : anche questa volta vi sono numerose notizie di comportamento indebito da parte di funzionari statali , fra cui funzionari di polizia , guardie penitenziarie , addetti a servizi di sicurezza e operatori che hanno a che fare con i richiedenti asilo . 
+Secondo : colpisce il gran numero di notizie in merito a forme di mancato rispetto della parità di trattamento e a casi di discriminazione , soprattutto a danno di persone che appartengono alle cosiddette categorie " deboli " della società . 
+La violenza razzista contro gli stranieri è la manifestazione più evidente di questo fenomeno , ma esso abbraccia anche la tratta di donne , la discriminazione sul posto di lavoro ; non parliamo poi della discriminazione degli omosessuali , perché ne ho abbastanza . 
+Purtroppo durante la fase di preparazione in seno alla commissione per le libertà e i diritti dei cittadini non si è affatto discuss. o si è soltanto accennato superficialment. a questi aspetti della problematica legata ai diritti dell ' uomo nell ' Unione europea . 
+Tutta l ' attenzione è stata rivolta al modo in cui si dovranno elaborare in futuro nell ' ambito del Parlamento europeo le relazioni su tale argomento . 
+Apprezzo l ' impegno e la capacità di resistenza del relatore Cornillet , ma credo che i mezzi rischino di non raggiungere il fine . La discussione sull ' obiettivo e sull ' organizzazione di questo lavoro in futuro è costata molto tempo ed energia ed è stata oggetto di forti pressioni . 
+Sembrava che si fosse quasi giunti ad un compromesso , ma in tal modo sono andati persi alcuni elementi ; adesso non ci resta che sperare che gli emendamenti pongano rimedio a tale situazione . 
+Alcuni aspetti del dibattito non sono ancora stati discussi in maniera esaustiva e pertanto vorrei toccarli . 
+Primo : la decisione di scegliere la Carta dei diritti fondamentali dell ' Unione europea quale pretesto per la relazione . 
+Tale scelta , di per sé ovvia , non deve diventare un limite . 
+La discussione circa la portata dei diritti dell ' uomo e del concetto di diritti dell ' uomo è in continuo movimento . 
+Anche i diritti dell ' uomo sono una questione di diritto vivo . 
+Inoltre non dobbiamo dimenticare che anche gli Stati membri sono vincolati alle convenzioni in materia di diritti dell ' uomo del Consiglio d ' Europa , dell ' ONU e degli organismi che operano in questo campo . 
+Quanto accertato da parte degli organi di vigilanza in merito alle predette convenzioni dovrebbe svolgere un ruolo molto più rilevante nell ' ambito delle consultazioni del Parlamento europeo . 
+Secondo : chi fa cosa ? 
+All ' interno del Parlamento , tale problema viene esaminato da due commissioni , come è avvenuto anche in questo caso : la commissione per gli affari esteri e la commissione per le libertà e i diritti dei cittadini . 
+Si verificano molte sovrapposizioni a livello sia delle conclusioni sia dei temi affrontati ; viene quindi svolto un lavoro doppio e superfluo che dà adito ad una concorrenza squallida per aggiudicarsi uomini e mezzi . 
+E ' necessario che gli organi competenti del Parlamento intervengano in modo da armonizzare meglio tale attività . 
+Terzo : dove vanno menzionati gli Stati membri circa i quali si nutrono timori in materia di rispetto dei diritti fondamentali ? 
+In base al tipo di meccanismo di vigilanza previsto mi sembra che l ' unica risposta possibile sia : nella risoluzione e non , in maniera meno esplicita , nella motivazione , come voleva inizialmente il relatore . 
+Ritengo che ciò sia in contrasto con il fatto che mensilmente il Parlamento riprende i paesi terzi per le violazioni commesse nel campo dei diritti dell ' uomo . 
+Signor Presidente , siamo stati la onorevole Malström ed io a redigere le relazioni sui diritti umani lo scorso anno . 
+Siamo soddisfatti che la linea in esse contenuta sia ripresa e portata avanti nelle relazioni di cui discutiamo oggi . 
+Noi liberali appoggiamo l ' auspicio dell ' onorevole Cornillet affinché la nuova Carta dei diritti fondamentali sia un modello e un criterio di riferimento per il lavoro di questo Parlamento nel campo dei diritti umani . 
+Potremo in tal modo fungere da guardiani ed utilizzare la Carta ancor prima che essa abbia ottenuto uno status formale ; contemporaneamente possiamo disporre di uno strumento di cui c ' è davvero bisogno per contrastare lo svuotamento di contenuto del concetto di diritti umani che minaccia di rendere tali diritti estremamente vaghi e poco definiti . 
+C ' è stata una tendenza in questo Parlamento a trasformare qualsiasi tema dei programmi dei partiti in questioni relative ai diritti umani . 
+Ciò avviene con la migliore delle intenzioni , ma danneggia i diritti umani perché conduce i cittadini che non sono d ' accordo su qualche punto a dire : " Se questo riguarda i diritti umani , allora siamo contrari ai diritti umani " . 
+Tutta la questione austriaca ha provocato gravi danni poiché verteva su opinioni e supposizioni . 
+Se invece si fosse trattato di violazioni concrete della Carta dei diritti fondamentali , allora l ' azione avrebbe incontrato ampie simpatie . 
+Per questo motivo , il Parlamento deve porre la Carta al centro della propria attenzione . 
+Dobbiamo essere i suoi custodi . 
+Dobbiamo utilizzarla contro lo svuotamento del suo contenuto da parte di apostoli della bontà animati da buone intenzioni . 
+Per tale motivo noi liberali votiamo contro quasi tutti gli emendamenti . Non perché non siamo d ' accordo con l ' intento degli stessi , ma perché attribuiamo ai diritti umani un ' importanza troppo grande per poter contribuire ad utilizzarli per abbellire qualsiasi possibile punto di vista che non rientra nel criterio dei diritti umani stabilito dalla Carta . 
+Come già detto , però , appoggiamo con convinzione le due relazioni , nella loro formulazione attuale , a parte qualche punto specifico ; esprimiamo inoltre il nostro compiacimento per il fatto che si sia potuto organizzare la discussione sui diritti umani in modo migliore rispetto ad una prospettiva futura . 
+Stiamo davvero esaminando due relazioni imponenti ed autorevoli , per le quali siamo grati ai due autori . 
+L ' onorevole Wuori ha affermato , nell ' aprire la discussione , che la questione riguarda il principio fondamentale del rispetto della personalità umana in tutte le sue espressioni . 
+Carte , convenzioni e diritti mirano a quantificare e formulare termini precisi per le forme inammissibili di mancanza di rispetto , per poi scoraggiarle ovunque siano praticate . 
+Il toccante capitolo sull ' allargamento nella relazione dell ' onorevole Wuori ci rammenta che una condizione nonché conseguenza dell ' allargamento dell ' Unione sarà l ' estensione del riconoscimento , dell ' applicazione e della promozione dei diritti umani all ' intero continente . 
+Quale risultato sarebbe più auspicabile di questo ? 
+Secondo l ' onorevole Cornillet , non dovremmo esaminare insieme i due documenti . 
+A mio parere è invece opportuno farlo . 
+Dobbiamo sempre ricordarci , quando invitiamo altri paesi al di fuori dell ' Unione a raggiungere i livelli di rispetto degli individui che consideriamo fondamentali , che noi stessi rischiamo continuamente di scendere al di sotto di tali livelli . 
+Ieri sera , quando la commissione Echelon ha adottato la sua relazione , ha precisato che l ' uso di sistemi di intercettazione casuale costituisce una violazione del diritto fondamentale alla riservatezza nella vita privata e nelle comunicazioni dei singoli individui . 
+Ciò dev ' essere impedito . 
+Coloro che usano tali sistemi nel Regno Unito e altrove devono essere esortati a porre fine a questa pratica . 
+In altri ambiti , per esempio il diritto a un processo rapido , altri Stati presentano risultati insoddisfacenti . 
+Dobbiamo insistere affinché i diritti siano riconosciuti nei nostri paesi oltre che all ' estero . 
+L ' annuale panoramica sulla situazione dei diritti umani nell ' Unione europea , da una parte , e nel mondo , dall ' altra , è un ' impresa lodevole ed utile per fare il punto sulla politica dell ' Unione in materia , ed è tanto più necessaria alla luce delle violazioni dei diritti umani perpetrate ancora in troppi paesi del mondo contro milioni di uomini e donne . 
+In questo dibattito mi limiterò semplicemente a due questioni precise . 
+Innanzitutto , mentre stiamo parlando , penso all ' inquietante deterioramento della situazione in Tunisia . 
+Soltanto nei prossimi cinque giorni , almeno tre processi politici assilleranno ancora i militanti democratici : ne saranno coinvolti la giornalista Sihem Ben Sedrine , brutalmente arrestata mentre scendeva dall ' aereo , il dottor Moncef Marzouki e la presidente di ATTAC Tunisie Fathi Chamkhi . 
+Il Parlamento europeo si è chiaramente espresso , e ormai a più riprese , denunciando questa inammissibile repressione . 
+Tuttavia bisogna ancora dotarsi di strumenti efficaci e della volontà politica di fare rispettare le clausole degli accordi di associazione che riguardano i diritti umani , al fine di esercitare pressioni oltre che fare discorsi . 
+Il problema è tanto più all ' ordine del giorno in quanto , in occasione della visita del Commissario Patten a Tunisi , è stato riaffermato " ...il forte interesse dell ' Europa verso un ' azione a stretto contatto con la Tunisia per rilanciare il partenariato " ; certo un partenariato reale e proficuo per i popoli delle due sponde del Mediterraneo che deve però fondarsi sul riconoscimento delle libertà di espressione , di movimento e di opinione . 
+A quando dunque un Consiglio di associazione speciale con la Tunisia su tali aspetti ? 
+Sì , la situazione in materia di diritti umani si è deteriorata : arresti , violenze , torture sono il destino comune per uomini e donne che militano per i diritti dell ' uomo cercando semplicemente di vivere e di far vivere una società libera . 
+Questo deterioramento tuttavia colpisce anche l ' insieme dei diritti che riguardano quotidianamente l ' esistenza di ciascuno persino nell ' Unione europea : il diritto a un posto di lavoro , a una retribuzione dignitosa , a disporre di un tetto sono essenziali per tutti , cittadini europei o residenti stranieri . 
+Lo stesso discorso vale per i diritti politici , il diritto ad essere considerato come cittadino a pieno titolo e non di seconda categoria nel luogo in cui si risiede . 
+Così il diritto di voto per i cittadini dei paesi terzi che risiedono nell ' Unione almeno da cinque anni dovrebbe finalmente diventare una norma esplicita , come raccomanda il Consiglio d ' Europa dal 1992 . 
+Tale esigenza , e concludo , diventa tanto più urgente e necessaria per l ' avvenire stesso di un ' Unione solidale in quanto la prospettiva della partecipazione di numerosi paesi candidati alle elezioni.. . 
+( Il Presidente interrompe l ' oratore ) 
+Signor Presidente , voglio richiamare l ' attenzione dell ' Assemblea e della Commissione su un aspetto , trattato anche brillantemente nella relazione , che certo è meno drammatico dei problemi di violazione fisica dei diritti umani , che purtroppo abbiamo di fronte , ma che attiene a un punto nevralgico , vorrei dire centrale della vita democratica di ogni paese e soprattutt. ne sono convint. della vita democratica del futuro delle società europee e mondiali : alludo al problema dell ' informazione , a una questione che io ritengo centrale , quella cioè del pluralism. ripeto questa parola , pluralism. dell ' informazione . 
+In un momento in cui questo diventa un tema sempre più importante , in una fase storica in cui la televisione in particolare diventa un mass media di potenza e di effetti incredibili nella storia dell ' umanità , garantire in Europa il pluralismo dell ' informazione significa garantire la base di un futuro democratico . 
+Non garantire questo significa esporre i nostri paesi e la nostra area ad avventure pericolose . 
+Credo che il problema sia più importante proprio in vista dell ' allargamento , perché entrano paesi che hanno esperienze nuove , entrano paesi che hanno più che mai bisogno di regole concrete . 
+Bene , queste regole concrete in Europa non ci sono . 
+La Commissione aveva , fin dagli anni ' 90, iniziato e formulato delle prime proposte di direttive , il Parlamento europeo ha più volte ripreso queste idee , ma sembra che tutto si sia fermato . 
+Sembra anzi che ci sia un ' idea che circola e che io ritengo pericolosa : che la concorrenza mondiale , in particolare americana , debba favorire le concentrazioni piuttosto che garantire il pluralismo . 
+Se è così , vi dico che è un grande errore . 
+Il bene maggiore , il bene massimo è la democrazia . 
+Io chiedo che questo Parlamento e la Commissione riprendano questo tema e che si arrivi rapidamente a una direttiva su questo punto . 
+Signor Presidente , avevo preparato un intervento che ho preferito lasciare da parte dopo aver sentito il discorso del Ministro Michel . 
+Adesso non è più presente , ma sono sicuro che il Sottosegretario di Stato , signora Neyts , gli riferirà le mie parole . 
+Ecco cosa volevo dirgli . 
+Non si sente un po ' imbarazzato , Ministro Michel , a venire a parlarci di diritti dell ' uomo nel mondo ? 
+Rappresenta un governo che esce da uno scacco giudiziario in seguito alla messa fuori legge di una delle più importanti formazioni politiche del paese , " il blocco fiammingo " , i cui dirigenti non hanno fatto nient ' altro che presentarsi legalmente alle elezioni . 
+In Belgio , il preteso antirazzism. guidato da un domenicano spretat. è direttamente finanziato dal gabinetto del Primo ministro , e i suoi sforzi mirano unicamente a imbavagliare l ' opposizione . 
+In Belgio , come altrove , si assimila fraudolentemente il nazionalismo alla xenofobia e la xenofobia al razzismo . 
+Si parla della persecuzione delle minoranze , ma si lascia che alcune minoranze etniche , pubbliche o di altro tipo , perseguitino la maggioranza della popolazione . 
+In Belgio , lobby occult. segnatamente massoniche e omosessual. si accaparrano da alcuni lustri il potere effettivo . 
+Un feudalesimo politico e sindacale si è spartito lo Stato , la finanza , i media , l ' università , la magistratura . 
+Un partito ha diritto a un procuratore quell ' altro a un proprio giudice . 
+Una formazione politica nuova può presentarsi alle elezioni solo se raccoglie firme e comunque incorre nell ' intimidazione della gendarmeria . 
+Il Ministro Michel si presenta a noi come il Tartufo di Molière : rosa e grasso , la carnagione fresca e la bocca vermiglia . 
+Dovrebbe arrossire di vergogna o ridere come gli áuguri dell ' antica Roma che non osavano più credere nella loro propria religione .. . 
+( Il Presidente interrompe l ' oratore ) 
+Signor Presidente , il mese scorso abbiamo osservato con meraviglia la Bulgaria , un ex paese comunista , eleggere il partito guidato dall ' ex sovrano del paese , Simeone II , dopo aver eliminato tutti gli ostacoli giuridici al suo ingresso nel paese , per ironia della sorte in preparazione dell ' adesione all ' Unione europea . 
+Ho sempre creduto che il maggior vantaggio dell ' allargamento ad est dell ' Unione fosse quello di ancorare tali paesi ad un clima di pace e prosperità nonché al rispetto istituzionale della democrazia e dei diritti umani fondamentali . 
+Tuttavia , vi invito a pensare allo sfortunato cugino italiano di Simeone , il principe Vittorio Emanuele di Savoia e a suo figlio Filiberto , i quali non solo non possono ricoprire uffici pubblici nel loro paese , uno Stato membro fondatore dell ' Unione europea diversamente dalla Bulgaria , ma fin dall ' infanzia coltivano il sogno di poter entrare nel territorio del paese di cui sono cittadini per nascita e per discendenza . 
+In passato , sono intervenuto in quest ' Aula sulla Carta dei diritti fondamentali e ho espresso la mia perplessità riguardo al tentativo di rendere vincolanti i nuovi e controversi diritti sociali ed economici , rispetto ai diritti civili e politici enunciati nella pregevole Convenzione europea dei diritti umani del 1950 . 
+Anche il diritto alla libertà di circolazione e di stabilimento sancito dal Trattato sull ' Unione europea gode di un sostegno universale , eppure è chiaramente violato dal cosiddetto tredicesimo articolo provvisorio della c.0ostituzione italiana , che esilia a perpetuità i discendenti maschi di casa Savoia dal loro paese . 
+Non sono previste deroghe che consentano all ' Italia di compiere discriminazioni basate sul sesso o sulla nascita per quanto riguarda la libertà di circolazione di tutti i suoi cittadini , salvo quelle dovute a pericoli per la sicurezza o la salute pubblica . 
+E ' francamente ridicolo che la Repubblica italiana si senta minacciata da un uomo anziano e da suo figlio che vogliono tornare a casa . 
+Invito quindi l ' Assemblea a mostrare compassione e rispetto indiscriminato per i diritti umani e a sostenere il mio emendamento n . 7, che invita il Parlamento italiano ad onorare l ' impegno assunto dal governo precedente di porre rapidamente fine a questa situazione anomala e crudele e a riconoscere nella propria costituzione il diritto di tutti i cittadini dell ' Unione europea di spostarsi liberamente all ' interno dell ' Unione . 
+Al riguardo , mi congratulo con l ' onorevole Cornillet per la sua relazione su un argomento molto complesso . 
+Signor Presidente , vorrei innanzitutto rivolgere i miei complimenti all ' onorevole Wuori non solo per la sua relazione e le relative raccomandazioni , ma anche perché in essa ci ricorda tutte le atrocità che si continuano a commettere nel mondo . 
+Di regola concediamo il nostro aiuto a paesi terzi a patto che essi rispettino i diritti umani e , naturalmente , dobbiamo continuare a spronarli in questa direzione e ad insistere fino a raggiungere tale obiettivo ; tuttavia , finché non ci mostreremo altrettanto esigenti anche nei confronti dei grandi , non meriteremo di considerarci il referente mondiale nell ' ambito della difesa dei diritti umani . 
+Talvolta minacciamo gli Stati Uniti quando giustiziano una persona , quando , legge alla mano , assassinano un essere umano . 
+Ma finisce tutto lì , a parole più o meno contundenti , ma sempre a parole . 
+Condannano a morte minori , oligofrenici , neri , ispanici ; in sintesi , i più poveri . 
+Nella dichiarazione sul Vertice di Göteborg , abbiamo nuovamente preteso l ' istituzione della moratoria della pena di morte da parte degli Stati Uniti , abbiamo di nuovo deplorato il fatto che tale pena compaia nella loro legge federale e che in 38 delle loro giurisdizioni si giustizino cittadini in nome della legge . 
+E ' necessario continuare ad insistere . 
+Casi come quello di Joaquín José Martínez ci fanno sentire più ottimisti riguardo all ' influenza delle Istituzioni europee e , più concretamente , del nostro Parlamento . 
+Dobbiamo continuare a lottare per difendere e diffondere i valori della civiltà europea . 
+Senza libertà , senza tolleranza , senza rispetto per i diritti umani , non rimane nulla . 
+Un paese può essere una grande potenza economica , può addirittura essere invidiato da molti altri paesi per i missili , la forza , il diritto di veto , ma , se non rispetta e non fa rispettare i diritti umani , è una società senza valori , una società sottosviluppata . 
+Proprio questa mattina il Presidente Verhofstadt sosteneva che , quando l ' Europa parla e parla all ' unisono , viene ascoltata . 
+Per questo , onorevoli colleghi , dobbiamo continuare ad insistere . 
+E anche ieri , di fronte alla commissione per gli affari esteri , i diritti dell ' uomo , la sicurezza comune e la politica di difesa , il Presidente del Perù , Alejandro Toledo , ci ricordava che la democrazia non ha frontiere e i diritti umani non hanno colore . 
+Aggiungerei , onorevoli colleghi , che non hanno prezzo . 
+Signor Presidente , vorrei ringraziare i due relatori delle due eccellenti relazioni . 
+E ' vero , come ha detto uno degli oratori , la onorevole Swiebel , che si sovrappongono , ma non credo che la cosa sia così grave . 
+Credo si possa dire che si integrano a vicenda , ma soprattutto costituiscono un ' ottima base per il prosieguo della discussione in Europa . 
+L ' onorevole Michel ha sottolineato che c ' è un grande divario tra l ' Unione europea e i cittadini , e ha citato l ' esempio irlandese . 
+Io vengo dalla Danimarca e in Danimarca si può capire benissimo che cosa esprime il referendum in Irlanda , ma la situazione è uguale in altri paesi dove non si tengono referendum . 
+Non credo che sarebbe stato assolutamente possibile realizzare per esempio l ' unione monetaria europea se ci fosse stato un referendum in Germania . 
+Avrebbe mostrato chiaramente che i tedeschi erano contrari . 
+Quindi abbiamo sostanzialmente tutti lo stesso problema e questo viene naturalmente sottolineato anche dal fatto che in questa Assemblea e in tutte le altre assemblee continuiamo a dire che ci sono molte cose che devono essere cambiate , che la democrazia non gode di buona salute , eccetera . Potremmo però utilizzare queste due relazioni per dire che c ' è in realtà qualcosa di molto positivo in Europa . 
+C ' è davvero qualche cosa che funziona benissimo in Europa . 
+Siamo riusciti a formulare un insieme di valori , che trovano provvisoriamente l ' accordo di 15 paesi . Forse di 27 dopo l ' ampliamento . 
+In quali altre parti del mondo si è riusciti a fare una cosa simile ? 
+In nessun ' altra parte . 
+Credo che sia un ' ottima idea che l ' onorevole Cornillet abbia preso come punto di partenza la Carta , infatti fornisce effettivamente un ottimo parametro che ci permette di misurare lo stato d ' evoluzione dei nostri diritti in Europa . 
+Credo che la Carta possa essere utilizzata come un indicatore dell ' evoluzione e se la rivediamo regolarmente , una volta all ' anno , potremmo avere un ' idea dell ' evoluzione . 
+Signor Presidente , dalla relazione del collega Wuori emerge che la lotta politica contro la censura effettuata con mezzi violenti deve diventare azione comune della politica estera europea . 
+Libertà d ' opinione e giornalismo indipendente sono la spina dorsale della democrazia . 
+Pertanto è importante che l ' informazione venga riconosciuta , alla pari della libertà d ' opinione , presupposto fondamentale dei diritti individuali e dei diritti sociali collettivi . 
+Possiamo far valere tutto ciò soltanto eliminando la censura effettuata con mezzi violenti . 
+Molti giornalisti rischiano davvero la loro vita e la loro libertà per mettere in pratica il diritto all ' informazione della popolazione . 
+Cosa fa l ' Unione ? 
+Porta avanti strette relazioni con paesi nei quali si continua a praticare la censura . 
+E ' estremamente importante che , nell ' ambito dei vertici che hanno per oggetto accordi di partenariato e cooperazione , si colga l ' occasione affinché in Russia , in Ucraina , in Armenia e in Azerbaigian la censura diventi un tema politico centrale e non solo una nota a piè di pagina . 
+Chiedo a Consiglio e Commissione se sono disposti a garantire a livello politico europeo maggior centralità alla questione della censura della stampa , al fine di dare ai diritti fondamentali , ai diritti umani e ai diritti sociali individuali e collettivi una reale possibilità di diffusione . 
+Signor Presidente , la presentazione è stata ottima e altrettanto si può affermare degli interventi del Ministro belga e dei Commissari Patten e Vitorino . 
+Peccato ci sia un problema . 
+La politica dell ' UE sui diritti dell ' uomo è affetta da schizofrenia : pur superando a pieni voti la prova teoric. buone intenzioni e proclam. nella pratica non prendiamo la sufficienza . 
+Al contrario , ci dimostriamo molto vili . 
+Come possiamo rivendicare e pretendere il rispetto dei diritti dell ' uomo in Moldavia , Lettonia , Lituania , in vari Stati africani e in talune ex colonie dell ' America centrale , mentre il Presidente Bush si esprime a favore della pena di morte ? 
+
+Schroeder , Blair , Chirac , Jospin e compagnia non sono intervenuti ! 
+Questo bisogno di realismo pervade tutte le nostre posizioni e persino questa relazione . 
+Malgrado la sua relazione sia eccellente , vorrei sapere dall ' onorevole Wuori i motivi dell ' emendamento n . 10 . 
+Perché , parlando di Turchia , si vuole togliere dal testo il riferimento alla necessità del ritorno dei curdi o all ' applicazione della sentenza della Corte di giustizia relativa a Cipro ? 
+Che cosa è cambiato ? 
+Signor Presidente , i radicali italiani della Lista Bonino appoggiano la proposta del relatore Cornillet di rafforzare il valore , anche giuridico , della relazione del Parlamento sui diritti dell ' uomo , anche perché noi vorremmo finalmente avere una sede dove denunciare , raccontare e documentare delle cose incredibili sulle quali quasi nessuno di voi sa nulla . 
+Vorremmo potere raccontare di referendum che in Italia sono stati negati illegalmente , che riguardavano temi fondamentali per i cittadini italiani ; vorremmo potere raccontare di referendum , votati e vinti da decine di milioni di elettori , che sono stati traditi qualche mese dopo dal parlamento italiano ; vorremmo potere raccontare di liste elettorali presentate illegalmente alle elezioni del nostro paese e illegalmente ammesse ; vorremmo potere raccontare di una campagna elettorale che illegalmente ha escluso temi , partiti , movimenti , politiche e proposte dalla possibilità di scelta dell ' elettore italiano ; vorremmo potere raccontare tutto questo . 
+Una sede vera di tutela dei diritti dell ' uomo e dei diritti civili e politici dei cittadini europei non esiste . 
+Crediamo che la democrazia sia in pericolo , non solo all ' esterno dell ' Unione , non solo in Italia ma nell ' Unione nel suo complesso ; crediamo anche che l ' Unione europea stessa , per i suoi meccanismi istituzionali , per la non corretta divisione dei poteri , sia un ' istituzione sempre più ademocratica , se non non - democratica . 
+Chiediamo una sede dove si possa parlare di tutto questo . 
+Esiste un comitato .. . 
+( Il Presidente interrompe l ' oratore ) 
+Signor Presidente , ci troviamo di fronte ad una relazione innovativa dell ' onorevole Cornillet che , come il relatore stesso ha ammesso , è limitata ed incompleta per una mancanza di mezzi alla quale egli ha cercato di supplire con il proprio sforzo personale che è davvero degno di riconoscimento . 
+E ' difficile analizzare ciò che succede in ogni Stato membro e , soprattutto , conoscere fatti e circostanze che riguardano ogni paese alla luce della nostra recente Carta dei diritti fondamentali . Pertanto , bisogna continuare ad approfondire tale processo . 
+Ringrazio espressamente il relatore per la sensibilità dimostrata di fronte alla flagrante violazione di uno dei diritti più fondamentali dell ' essere umano , il diritto alla vita , che , assieme alle libertà d ' espressione e di circolazione , l ' ETA continua persistentemente a violare in una parte del territorio europeo , i Paesi baschi , e , in generale , in tutta la Spagna . 
+Sfortunatamente , il terrorismo ha meritato una menzione specifica in un nuovo paragrafo che cita il diritto alla vita e l ' intensificazione della lotta contro il terrorismo , con ampio riferimento agli strumenti giuridici decisi dal Vertice di Tampere per combatterlo , quali , ad esempio , il mandato di ricerca e cattura , attualmente in fase di elaborazione . 
+Un altro aspetto , che dovrebbe far riflettere soprattutto il gruppo socialista , giacché non si impegna in tal senso neanche nei paesi i cui governi condividono la sua stessa ideologia , è quello menzionato ai paragrafi 119 e 120, in cui si riconosce il diritto di voto ai cittadini di paesi terzi , non solo alle elezioni comunali , ma anche a quelle europee . 
+Onorevoli colleghi , non cominciamo la casa dal tetto . 
+Quando ancora non siamo stati capaci di porre le fondamenta di una vera integrazione , che passa dall ' istruzione , dal diritto alla casa , dall ' assistenza sanitaria e dal rispetto reciproco delle nostre culture , resta molto da fare nell ' ambito dell ' immigrazione e dell ' asilo . 
+E le false demagogie ostacolano soltanto la soluzione di un problema serio come questo . 
+Signor Presidente , desidero innanzitutto far notare che mi sembra uno sproposito tenere in quest ' Assemblea una discussione congiunta sulla situazione dei diritti umani nel mondo e nell ' Unione europea . 
+Il mio gruppo lo ha detto alla Conferenza dei presidenti , ma ha ottenuto solo l ' appoggio del gruppo GUE / NGL . 
+Inoltre , signor Presidente , vorrei farle presente e chiederle di prendere nota del fatto che mi sembra incredibile che il dibattito si stia svolgendo in questi termini , perché si direbbe che per noi siano più importanti i diritti umani nel mondo che nell ' Unione europea . 
+I paragoni sono odiosi e non mi riferisco alle vittime del mancato rispetto dei diritti umani , ma dovremmo preoccuparci di più della realizzazione di ciò che è esclusivamente nelle nostre mani . 
+Vorrei dire all ' onorevole Cornillet che lo ringrazio molto sinceramente per lo sforzo e il lavoro compiuti , e gli chiedo di considerare la possibilità che , nei prossimi mesi , e sulla base della sua esperienza , cerchiamo tra tutti , con calma e serenità , un metodo che ci permetta di lavorare in prospettiva , tenendo conto della sua preziosissima esperienza . 
+La sua esperienza è stata preziosa perché questo è il primo anno in cui elaboriamo tale relazione , dopo la proclamazione della Carta dei diritti fondamentali . 
+Mi piacerebbe , onorevole Cornillet , che ne tenesse conto . 
+Utilizzerò gli ultimi secondi a mia disposizione per parlare non più di metodi , ma di contenuti . 
+Onorevole Pirker , onorevole Hernández Mollar , non vogliamo proporre una politica d ' immigrazione comune . 
+Vogliamo , semplicemente , che si tenga presente che , dalla relazione dell ' onorevole Cornillet , si nota chiaramente che i più colpiti dalle violazioni dei diritti umani sono le minoranze e , soprattutto , i richiedenti asilo e gli immigranti . 
+Se il deterioramento dei diritti umani prosegue su questa strada , le soluzioni e le conclusioni che dobbiamo avanzare dovranno andare nella stessa direzione . 
+Questo è il nostro orientamento . 
+Onorevoli colleghi , anche se l ' approvazione della Carta dei diritti fondamentali , avvenuta l ' anno scorso a Nizza , rappresenta un progresso per i diritti umani nell ' Unione europea , costituisce solo una norma minima di tutela a cui ha diritto ogni cittadino . 
+Purtroppo è ancora insufficiente di fronte alla situazione di emergenza in cui versano milioni di individui , rifugiati , immigrati o anche clandestini e , in particolare , donne e bambini . 
+In nessuna circostanza gli Stati , europei o meno , sono richiamati all ' ordine o condannati per le violazioni commesse . 
+Ne sono prova le relazioni che oggi ci vengono sottoposte : per quanto esatte siano , e di questo possiamo ringraziare i nostri relatori , si accontentano di enumerare i numerosi casi in cui i diritti fondamentali destano preoccupazioni . 
+I diritti umani e le libertà fondamentali sono universali e indivisibili . 
+Non devono conoscere alcun confine né nazionalità o genere . 
+Dobbiamo riaffermarlo con forza e vigore . Tali diritti diventeranno reali solo se tutti i cittadini saranno coscienti della loro esistenza , e se avranno fiducia in chi ne garantisce l ' applicazione e il rispetto . 
+Di conseguenza è indispensabile farli valere , nonché renderli visibili ed accessibili a tutti . 
+Per essere costruttivi , è necessario instaurare un dialogo con tutti gli attori coinvolti nel riconoscimento , la promozione e la difesa dei diritti fondamentali , in particolare con chi è più vicino ai cittadini meno favoriti , vittime delle discriminazioni . 
+Un altro fattore chiave risiede nella ratifica degli strumenti internazionali e nella loro declinazione nel quotidiano : il diritto di circolare liberamente , di vivere con la propria famiglia , di essere cittadino . 
+Qualsivoglia società può svilupparsi solo nella pace e non ci può essere pace senza giustizia . 
+Al di là dei discorsi generali in favore dei diritti dell ' uomo , non si combinerà niente senza la volontà politica di attuare un ' autentica uguaglianza di diritti per tutti quegli uomini e quelle donne che hanno contribuito a costruire l ' Europa e sono parte della ricchezza e della cittadinanza europea . 
+Piuttosto che fare osservazioni sulle strutture di cui il Parlamento europeo potrebbe dotarsi per l ' avvenire , dobbiamo procurarci i mezzi volti ad assicurare il rispetto dei diritti umani e delle libertà fondamentali , tra cui rientrano i diritti sociali e politici , senza i quali i principi dello Stato di diritto e della democrazia non avrebbero più alcun senso . 
+Signor Presidente , non posso fare a meno di sottolineare gli aspetti positivi delle relazioni Wuori e Cornillet sui diritti dell ' uomo nel mondo , e ciò per diversi motivi : primo tra tutti il richiamo alla clausola dei diritti umani nella stipulazione di accordi commerciali o di altro genere , e poi la richiesta , più volte avanzata anche in passato , di un più forte controllo di questo Parlamento nel controllo coordinato e coerente sugli interventi comunitari in materia di violazione dei diritti . 
+Devo però anche sottolineare una notevole vaghezza e nebulosità per quanto riguarda , soprattutto nella relazione dell ' onorevole Cornillet , le violazioni dei diritti in diversi paesi , soprattutto quando la materia è controversa e quando non viene accompagnata dall ' identificazione dei governi colpevoli . 
+Non vorrei che in quest ' Aula venisse riproposto l ' interrogativo angoscioso secondo cui , per agire con vigore morale , basta che i nostri valori o le nostre affiliazioni politiche non vengano mai messi alla prova . 
+Signor Presidente , è giusto che esordisca congratulandomi con l ' onorevole Cornillet per l ' eccellente relazione presentataci . 
+Sono testimone , nell ' ambito della commissione per le libertà e i diritti dei cittadini , dell ' impegno , del lavoro e della qualità da lui profusi nella presente relazione , tanto dal punto di vista formale quanto da quello del contenuto . 
+Il rispetto dei diritti umani rappresenta per la nostra civiltà un ' esigenza che dobbiamo valorizzare e trasmettere alle generazioni future , senza alcun tipo di distinzione per motivi di razza , colore , sesso , lingua , religione , opinione pubblica o altre convinzioni , origine nazionale o sociale . 
+L ' adozione della Carta dei diritti fondamentali da parte del Parlamento europeo e la sua proclamazione a Nizza presentano un carattere innovativo e ne fanno un testo di riferimento in materia di diritti umani . 
+Spetta ora al Parlamento europeo , in collaborazione con i parlamenti nazionali , vigilare affinché viga il rispetto dei diritti fondamentali da parte degli Stati membri e delle stesse Istituzioni europee . 
+La relazione Cornillet segue la struttura della Carta , dividendo i diritti fondamentali in sei capitoli distinti , come del resto è stato opportunamente sottolineato dal Commissario Vitorino . 
+In primo luogo , il rispetto della dignità umana attraverso l ' affermazione del diritto alla vita , in particolare intensificando la lotta contro il terrorismo , il divieto della tortura e dei trattamenti disumani , il divieto della schiavitù e dei lavori forzati . 
+In secondo luogo , le libertà , in particolare attraverso la protezione della privacy e dei dati personal. auspico che sia la Comunità che gli Stati membri adottino i provvedimenti necessari al fine di proteggere i cittadini dalle intrusioni ad opera di sistemi di intercettazione delle comunicazioni che sono al di fuori della legalità , quali il sistema Echelon - ; il rispetto della libertà di pensiero , di coscienza e di religione , il rispetto della libertà fra i cittadini , la solidarietà con le persone in stato di povertà , il rafforzamento della cittadinanza europea e la giustizia , che passa attraverso lo snellimento dei processi giudiziari . 
+La lentezza della giustizia costituisce di per sé un fattore di ingiustizia : se non si risolvono in tempo i problemi ad essa connessi , si rischia di generalizzare una sensazione di impunità . 
+Il mio paese , il Portogallo , in ciò non fa eccezione , accusando ritardi insopportabili nell ' amministrazione della giustizia . 
+La nostra Europa deve rappresentare un modello e costituire un esempio anche sotto quest ' aspetto . 
+Il Parlamento europeo ha un ruolo essenziale nel concepire e concretizzare la politica dell ' Unione in materia di diritti umani . 
+L ' influenza che esercita sulla modifica dei Trattati in tal senso è sempre più manifesta . 
+Dobbiamo quindi concentrarci in modo approfondito sulla situazione dei diritti dell ' uomo negli Stati membri , quando vengono alla luce del sole le lacune dei nostri sistemi . 
+Per esempio , nella mia città , a Lione , devo affrontare ogni giorno , assai concretamente , il problema del disagio dei rifugiati e la tratta degli esseri umani , in particolare delle donne . 
+Dobbiamo quindi armonizzare le nostre legislazioni e adottare uno strumento giuridicamente vincolante al fine di garantire una reale tutela alle vittime del traffico di esseri umani . 
+Dovremmo poter estradare senza difficoltà i trafficanti di esseri umani e procedere a confiscare il frutto delle loro attività criminali , al fine di sovvenzionare un fondo europeo di risarcimento per le vittime . 
+Dovremmo poter rilasciare un permesso di soggiorno umanitario alle vittime della tratta di esseri umani e della schiavitù domestica , e dovremmo poter garantire alle persone arrestate e trattenute in stato di fermo dalla polizia la possibilità di fruire subito di assistenza giuridica e medica e all ' occorrenza , di un interprete . 
+Dovremmo poter riuscire a migliorare rapidamente la protezione dei minori non accompagnati , in particolare fornendo loro quanto prima l ' assistenza di un tutore o di un consulente giuridico . 
+Richiamo inoltre il Parlamento a un po ' di coerenza . 
+Se la politica comunitaria in materia di immigrazione , che è oggetto di una relazione attualmente all ' esame della Commissione , dovesse fondarsi esclusivamente sugli egoistici interessi economici dei paesi europei , non garantirebbe realmente tutti i diritti fondamentali che oggi stiamo perorando . 
+Signor Presidente , la Carta europea dei diritti fondamentali ha acquisito rilevanza grazie alla proposta del relatore di verificare sulla sua scorta la situazione in materia di diritti dell ' uomo nell ' Unione . 
+Anche se la Carta dovrebbe far riferimento soltanto all ' azione dell ' Unione , vale a dire delle Istituzioni europee , adesso s ' intende vagliare in base ad essa anche l ' operato degli Stati membri . 
+Ciò è positivo , ma un esame critico è più di un elenco di desiderata . 
+Per denunciare le violazioni , è necessario fare chiaramente i nomi di chi le commette . 
+Riteniamo che questa sia una prassi efficace quando si tratta della situazione dei diritti dell ' uomo nel resto del mondo , ma consideriamo che to name and shame gli Stati membri sia inopportuno . 
+Applichiamo quindi due pesi e due misure : dobbiamo cambiare atteggiamento ! 
+Un gruppo di autorevoli esperti deve svolgere un ' indagine sull ' effettivo rispetto dei diritti fondamentali negli Stati membri e il Parlamento deve trarne le conclusioni politiche . 
+Questo è quanto auspico sotto il profilo amministrativo . 
+Il mio gruppo voterà a favore della relazione Cornillet , che contiene alcune affermazioni interessanti . 
+Ad esempio , al paragrafo 58 si sostiene che si deve abolire il protocollo Aznar , che limita il diritto individuale di chiedere asilo . 
+Al paragrafo 109 si esige la garanzia che chiunque si trovi sul territorio dell ' Unione abbia accesso all ' assistenza sanitaria , a prescindere dal titolo a cui vi soggiorna . 
+Ciò vale anche per il diritto dei bambini all ' istruzione . 
+Diamo il nostro appoggio alla lotta contro le dicotomie ! 
+Signor Presidente , il relatore Cornillet ha passato in rassegna molteplici ambiti in cui , persino sul territorio dell ' Unione Europea , i diritti dell ' uomo sono in toto o parzialmente violati . 
+Voteremo numerose proposte che potrebbero rappresentare un progresso . 
+Tuttavia , anche se ciò avvenisse , desideriamo comunque esprimere le nostre riserve , in quanto si tratta di raccomandazioni che gli Stati interessati potranno rispettare o meno . 
+Il legislatore sa essere assai più vincolante in materia di diritto commerciale . 
+Nella motivazione la relazione fa riferimento alla Carta dei diritti fondamentali proclamata a Nizza , lodandone la peculiarità di associare diritti civili e politici e diritti economici e sociali come parti di un tutto coerente . 
+Tuttavia a che cosa servono le proclamazioni sul diritto al lavoro quando gli imprenditori dispongono del diritto assoluto di assumere o licenziare ? 
+Che significato può avere il diritto alla casa quando , secondo quanto ammette il testo stesso , il 18 per cento della popolazione europea vive al di sotto della soglia di povertà e , di conseguenza , è priva di mezzi per permettersi un ' abitazione dignitosa ? 
+Ci asterremo sull ' insieme di questa relazione , perché le dichiarazioni di buone intenzioni non sono sufficienti a dar luogo a una politica in favore degli strati più poveri e più oppressi della popolazione . 
+Signor Presidente , innanzitutto mi congratulo con il collega Wuori per l ' esauriente relazione che va dal commercio di armi , all ' omosessualità e ai diritti delle minoranze , all ' asilo , al lavoro minorile e alla pena di morte . 
+Forse essa è addirittura fin troppo esaustiva . 
+Forse in futuro dovremo fissare più priorità e conciliare meglio i tempi di una simile relazione in funzione della riunione annuale della Conferenza sui diritti dell ' uomo di Ginevra . 
+Ad ogni modo è positivo che si rivolga grande attenzione alla libertà di stampa e di opinione . 
+In tutte le parti del mondo i giornalisti vengono tuttora perseguitati e uccisi ; particolare preoccupazione al riguardo destano i recenti sviluppi verificatisi in Russia . 
+Giornalisti indipendenti vengono aggrediti , licenziati e persino eliminati fisicamente . 
+La stazione televisiva indipendente NTV è stata rilevata dall ' azienda statale Gazprom , che ha costretto alla chiusura anche un autorevole quotidiano . 
+Accolgo con particolare favore l ' idea formulata dal collega Wuori di nominare un rappresentante speciale del Parlamento che segua l ' evolversi delle violazioni dei diritti dell ' uomo in merito alle quali discutiamo e votiamo ogni mese , perché segnalare le violazioni è una cosa , ma vigilare , fare qualcosa e , soprattutto , esortare Consiglio e Commissione a intraprendere un ' azione è ben altra cosa . 
+Consentitemi di dire che la Presidenza svedese ci ha piuttosto deluso a questo proposito . 
+L ' atteggiamento concreto del governo belga nel caso Pinochet , ma anche in Africa centrale , desta grandi aspettative nei fautori di una politica più attiva a favore dei diritti dell ' uomo da parte dell ' Unione europea . 
+Soprattutto adesso che gli Stati Uniti non sono stati riconfermati tra i membri della commissione dell ' ONU per i diritti dell ' uomo , l ' Europa deve svolgere un ruolo di leader . 
+Se Consiglio e Commissione compiranno effettivamente dei passi in direzione di una politica più coerente e conseguente in materia di diritti dell ' uomo , troveranno certamente un fedele alleato nel Parlamento europeo . 
+Signor Presidente , per prima cosa vorrei fare i miei complimenti all ' onorevole Wuori per questa magnifica relazione . 
+Credo si tratti di un documento in grado di rispondere alla globalizzazione economica con una proposta di globalizzazione dei diritti umani politici e sociali , indivisibili come sono , e dei principi democratici . 
+La cosa fondamentale è accertare se l ' Unione europea dispone degli strumenti necessari per avviare questa risposta di globalizzazione di diritti e , soprattutto , se è disposta ad utilizzarla . 
+Per esempio , rientra in quest ' ambito il ruolo dell ' Unione europea all ' interno delle Nazioni Unite e della Commissione di Ginevra , spesso debole e perfino contraddittorio . 
+Mi riferisco inoltre a ciò che si può fare in seno all ' Organizzazione mondiale del commercio che , tra l ' altro , presto si riunirà nel Qatar , un paese leader nel campo dei diritti umani , come tutti sanno . 
+Rientra altresì in tale ambito il ruolo dell ' Unione nel ricorso alla clausola democratica con paesi terzi , rispetto al quale il Parlamento europeo dovrebbe svolgere un ruolo chiaro , disciplinato dal Trattato , e , ovviamente , nel dialogo bilaterale e nell ' utilizzo del codice di condotta sull ' esportazione di armi , un codice che continua a fungere semplicemente da proposta e da suggerimento e che non impedisce agli Stati membri di perseverare in un comportamento aberrante con la vendita di armi a paesi che violano sistematicamente i diritti umani . 
+I diritti dei popoli sono anch ' essi diritti umani . 
+Credo che , in questo senso , anche i diritti collettivi non possano essere dimenticati , a partire dal diritto all ' autodeterminazione . 
+A tale proposito vorrei chiedere formalmente al governo del Marocco di rispettare pienamente i diritti dei saharawi che vivono nei territori occupati del loro paese . 
+Signor Presidente , vorrei innanzi tutto complimentarmi con gli onorevoli Wuori e Cornillet per le relazioni e l ' eccellente lavoro che hanno realizzato . 
+Tuttavia , mi rammarico del fatto che l ' onorevole Wuori , nella sua relazione , non faccia alcun riferimento alla situazione di uno dei diritti fondamentali più violati e , allo stesso tempo , più dimenticati : il diritto all ' istruzione , ad acquisire la formazione di base indispensabile per uscire dal sottosviluppo e dalla povertà in cui tanti bambini e tanti adulti si vedono condannati a vivere perché l ' esercizio di questo diritto fondamentale non viene loro garantito . 
+Infatti , secondo dati UNICEF , 130 milioni di bambini non hanno mai frequentato la scuola ed altri 150 milioni hanno cominciato la scuola elementare , ma l ' hanno lasciata prima di portare a termine il processo di alfabetizzazione . 
+Nell ' Africa subsahariana , inoltre , il numero di bambini non scolarizzati sta aumentando , invece di diminuire . 
+Questo nonostante gli obiettivi fissati dalla Conferenza mondiale " Istruzione per tutti " di Jomtien , del 1990, o dal Foro mondiale sull ' istruzione tenutosi a Dakar nel 2000 . 
+Di fronte a questa realtà , non possiamo restare insensibili , né passare sotto silenzio la mancanza di volontà politica dell ' Unione europea e dei suoi Stati membri quando si tratta di tradurre in stanziamenti di bilancio la retorica delle grandi dichiarazioni . 
+Se diciamo di difendere i diritti umani , dobbiamo anche difendere , con tutte le conseguenze che questo comporta , il diritto all ' istruzione . 
+Con lo stesso impegno con cui difendiamo il diritto alla vita o il diritto alla non discriminazione o il diritto alla libertà d ' espressione . 
+Perché , non dimentichiamolo , i diritti umani sono indivisibili , inalienabili e universali . 
+Signor Presidente , un contadino povero affetto da AIDS ha il diritto di accedere a medicinali e cure che non si può permettere ? 
+Un bambino nato in condizioni di indigenza ha il diritto di ricevere un ' istruzione elementare e vaccini adeguati che lo proteggano da malattie mortali ? 
+Un contadino povero rovinato da calamità naturali come la siccità , gli insetti nocivi e l ' erosione dei terreni ha diritto alla nostra assistenza ? 
+Milioni di persone che vivono in condizioni di indigenza per motivi politici in paesi isolati come la Palestina e l ' Iraq hanno qualche diritto ? 
+Che cosa intendiamo quando parliamo di diritti umani ? 
+Invito tutti i colleghi cui stanno a cuore i diritti umani ad andare a trovare , non annunciati e in modo informale , qualsiasi contadino in qualsiasi paese povero e chiedergli cosa ne pensa dei nostri pareri sui diritti umani , la libertà politica , la libertà economica , la libertà religiosa , il libero accesso all ' istruzione e ai servizi sanitari . 
+Quel contadino vi guarderà sconcertato e risponderà : " Tutto ciò di cui ho bisogno è l ' acqua corrente in casa . 
+Tutto ciò di cui ho bisogno è una fonte di energia che mi consenta di illuminare la stanza e cucinare " . 
+I conflitti interni e le guerre civili con le conseguenti violazioni dei diritti umani continueranno a impoverire i poveri finché non li aiuteremo a fare quanto segue : in primo luogo , ad essere compartecipi nelle proprie economie rurali . 
+Hanno bisogno della propria terra , della propria casa e del proprio podere . 
+In secondo luogo , ad acquisire la tecnologia necessaria per interrompere il loro ciclo di dipendenza da noi e cogliere l ' occasione per rendersi autosufficienti e poter contare sulle proprie iniziative locali . 
+Quando i poveri partecipano alla vita economica , la società civile e la democrazia mettono radici . 
+Queste persone comprenderanno la necessità della legge e dell ' ordine e della rappresentanza politica . 
+Allora vedremo i tribunali sostituire le pallottole , e solo allora appariranno i diritti umani . 
+Signor Presidente , purtroppo non mi trovavo in Aula quando è stata affrontata , anche sul piano dei contenuti , la questione dei diritti umani . 
+Stavo discutendo , fuori , con un gruppetto di persone che non è d ' accordo su quanto accade nelle carceri turche . 
+Per questo motivo non ero presente . 
+Tuttavia vorrei in primo luogo ringraziare il relatore , onorevole Cornillet , per il suo documento e per il buon approccio in esso contenuto . 
+Sono favorevolmente colpito dalla sua struttura . 
+Non sono il primo a parlarne . 
+E ' assolutamente giusto assumere come modello per la relazione la Carta dei diritti fondamentali . 
+Si è trattato senza dubbio di una decisione appropriata e di una grande sfida . Occorreranno comunque ancora molte integrazioni , anche su questo concordiamo . 
+Vorrei però aggiungere qualcosa in relazione al contenuto , anche alla luce di quanto è successo oggi fuori dal Parlamento . 
+L ' onorevole Cornillet ha inserito fra gli argomenti della sua relazione la situazione delle carceri nell ' Unione europea . 
+A tal proposito volevo solo rammentare brevemente che spesso ci rechiamo all ' estero e critichiamo i paesi candidati , soprattutto in fatto di prigioni . 
+La situazione delle carceri nei paesi candidati per noi è inaccettabile . 
+Eppure , leggendo la relazione dell ' onorevole Cornillet , constatiamo che abbiamo moltissimi problemi anche al nostro interno , nelle nostre stesse carceri . 
+Per questo motivo non è solo suo compito segnalarlo , è anche compito dei governi dell ' Unione europea cambiare alcune cose . 
+Ad ogni modo anche questo è un tema su cui riflettere ! 
+Signor Presidente , ringrazio il collega Matti Wuori per l ' ottimo lavoro svolto . 
+La schiavitù è stata abolita nel diciannovesimo secolo , ma attualmente si calcola che ogni anno vengono vendute dai loro paesi d ' origine circa quattro milioni di persone e questa cifra cresce di anno in anno . 
+Il mercato globale è così libero che anche il corpo umano ha ora un valore commerciale . 
+Lo spietato traffico clandestino degli organi ha come vittime i più poveri . 
+Di alcuni di essi si può dire che siano soggetti ad una vera e propria resurrezione in quanto i loro organi vengono trapiantati nei corpi di persone vive . 
+Il problema è che la violazione sistematica dei diritti umani diventa sempre più redditizia . In questa società così avida di profitti la tutela dei diritti umani non trova spazio , essa richiede troppe risorse . 
+Ed è proprio l ' avidità a causare i problemi di cui vorrei parlare ora . 
+Il cervello umano è ormai intorpidito , esso è diventato uno strumento al servizio del consumismo . 
+L ' intrattenimento di massa offerto dai canali televisivi crea un mondo falso , virtuale nel quale prosperano il commercio e lo svilimento della democrazia . 
+La prostituzione a livello internazionale ha trovato in Internet uno strumento ideale per la sua diffusione ; la legislazione non riesce a tenere il passo anche perché molti pensano che la libertà che regna in Internet non debba subire limitazioni . 
+Propongo l ' istituzione di un organo europeo che possa elaborare delle regole che , nell ' era della società dell ' informazione , disciplinino la tutela della privacy . 
+I diritti non possono tutelare chi li possiede se essi vengono violati sia a livello fisico che morale . 
+Signor Presidente , la relazione annuale sui diritti dell ' uomo nel mondo delinea bene le sfide attuali . 
+Tuttavia l ' Unione europea deve affermare con maggiore chiarezza come intende procedere su tre punti . 
+In primo luogo , la storia ricorda la difficoltà di fare rispettare i diritti umani nei paesi in cui lo sviluppo economico è inesistente o alquanto scarso . 
+Tale ovvietà deve essere messa maggiormente in rilievo . 
+A tal fine è necessario introdurre una metodologia di sviluppo globale che raggruppi i criteri convergenti attorno a un principio che chiamerò " principio di evoluzione " . 
+Quindi la relazione punta il dito su un certo numero di paesi che non rispettano i diritti umani . 
+Per non cadere nella trappola del " due pesi , due misure " e dare credibilità all ' operato dell ' Europa , dobbiamo insistere di più sull ' indivisibilità dei diritti dell ' uomo all ' interno e all ' esterno dei confini degli Stati . 
+Infine dobbiamo prendere coscienza della particolare responsabilità dei paesi con un alto livello di democrazia e di sviluppo che , invece di essere d ' esempio , continuano cinicamente a violare i diritti umani . 
+I paesi sviluppati devono diventare un esempio per i paesi in via di sviluppo e non il contrario . 
+La nostra azione è a lungo termine . 
+Dobbiamo affermare chiaro e forte che i diritti dell ' uomo sono un valore universale e non un valore di circostanza . 
+Partendo da questo presupposto l ' Europa deve assolutamente riflettere sulla creazione di un ' architettura dei diritti umani che tenga conto della nostra volontà politica . 
+La credibilità dell ' Europa ha questo prezzo . 
+Signor Presidente , visto il poco tempo di cui dispongo , non sprecherò neanche un secondo in retorica o in demagogia e mi concentrerò invece su questioni che , dal mio punto di vista , sono più interessanti . 
+Innanzitutto , vorrei dire che condivido pienamente l ' opinione del Commissario Vitorino riguardo al fatto che l ' Unione europea dovrebbe preoccuparsi innanzitutto di dare l ' esempio e solo dopo di dare lezioni . 
+Vorrei poi complimentarmi con l ' onorevole Cornillet per l ' eccellente lavoro svolto , seppur con la scarsezza di mezzi che aveva a disposizione . 
+Il suo lavoro riflette chiaramente come ci siano ancora , in seno all ' Unione europea , gruppi di persone e singoli individui soggetti a discriminazione , i cui diritti fondamentali non sono debitamente rispettati . 
+Ritengo quindi che sarebbe necessario dedicare maggiori sforzi a promuovere l ' applicazione degli articoli 6 e 13 del Trattato , dopo Amsterdam , visto che i gruppi menzionati in quest ' ultimo articolo continuano a soffrire discriminazioni e spesso non vengono rispettati i loro diritti fondamentali . 
+Mi riferisco a questioni deplorevoli come il razzismo , che ancora esiste negli Stati membri ; a discriminazioni dovute alle tendenze sessuali di alcuni , per la precisione gli omosessuali , che subiscono tuttora una normativa discriminatoria in alcuni Stati membri ; alla protezione dei disabili ; alle donne , il grande gruppo soggetto a discriminazione ; e agli immigranti , che in questa relazione appaiono come il gruppo oggi più discriminato . 
+Contrariamente a quanto ha affermato qualche oratore , vorrei dire che io sono invece favorevole al fatto che venga riconosciuto il diritto di voto agli immigranti , che solo allora vedranno sufficientemente rispettati i loro diritti . 
+Signor Presidente , innanzitutto ringrazio il collega Wuori per la sua relazione ottima e critica . 
+Ottima e critica , perché non si tira indietro e punta il dito verso gli eventuali punti deboli della politica comunitaria . 
+Uno di questi punti è rappresentato dal fatto che in una serie di accordi internazionali stipulati dall ' Unione non sono ancora state incluse clausole in merito alla sospensione dell ' accordo in caso di gravi violazioni dei diritti dell ' uomo . 
+A titolo esemplificativo cito la Cina , paese candidato per ospitare le Olimpiadi del 2008 . 
+Il Commissario Lamy è stato molto sollecito nel concludere l ' accordo con la Cina , soprattutto nel quadro dell ' OMC . 
+Ma il prossimo giovedì verrà esaminata in questa sede una mozione , che può contare su un ampio sostegno , in cui si chiede al CIO di non assegnare le Olimpiadi del 2008 alla Cina , proprio a causa delle violazioni dei diritti dell ' uomo commesse , tra l ' altro , in Tibet e a causa della maniera assai dubbia in cui il paese tratta la propria flora e fauna . 
+Condivido il parere del collega Wuori , secondo cui il Parlamento dev ' essere coinvolto nell ' eventuale sospensione delle relazioni con paesi terzi legate al mancato rispetto dei diritti dell ' uomo . 
+Del resto , il Parlamento ha spesso preso l ' iniziativa in questo campo ; mi riferisco alle misure adottate in passato dall ' Unione europea nei confronti della Nigeria e adesso nei confronti del Sudan e della Birmania . 
+Colgo l ' occasione per richiamare l ' attenzione su un altro punto che , a mio giudizio , non è sufficientemente evidenziato nella relazione : la libertà religiosa . 
+Citerò tre esempi . 
+Uno prossimo all ' Europa , ossia la Turchia , dove i cristiani siriani vengono imprigionati se professano attivamente la loro fede . 
+Nei Paesi Bassi vive una comunità di 12.000 cristiani siriani provenienti dalla Turchia e fuggiti nel corso degli anni in Europa occidentale . 
+Si tratta di una situazione alquanto preoccupante per un paese che intende diventare uno Stato membro dell ' Unione europea . 
+Poi il Vietnam , dove negli ultimi mesi i monaci buddisti vengono sempre più spesso arrestati a causa della loro fede . 
+Giovedì esamineremo una risoluzione al riguardo . 
+Ma qual è la situazione relativa agli accordi commerciali con il Vietnam ? 
+Passiamo quindi alle continue minacce nei confronti dei cristiani in Indonesia , in particolare nelle Molucche . 
+Anche questo è un problema che abbiamo sollevato più volte . Ma qual è la situazione relativa agli accordi commerciali e quella dei diritti dell ' uomo nel predetto paese ? 
+Mi auguro che la prossima volta rivolgeremo particolare attenzione a tale aspetto ; è questo il messaggio che intendo lanciare . 
+Signor Presidente , è davvero increscioso che nell ' Europa del XXI secolo il problema della violazione dei diritti dell ' uomo sia assai grave , come descritto nell ' ottima relazione Cornillet . 
+Il presupposto fondamentale per il rispetto dei diritti dell ' uom. nei fatti e non solo a parol. è la loro tenace difesa rispetto alle forze reazionarie e oscurantiste che detestano e ostacolano il dialogo e la libertà di pensiero e di coscienza . 
+L ' Unione europea deve finalmente trovare le giuste misure e politiche per metter fine ad ogni forma di discriminazione dovuta al genere , l ' origine etnica , il colore , la religione o l ' orientamento sessuale . 
+Nessuna tradizione culturale sarà mai legittimata a porsi al di sopra dei diritti umani fondamentali e della parità tra i sessi . 
+E ' urgente metter fine alla xenofobia , al fondamentalismo e alla violenza razzista , nonché debellare i fenomeni di schiavitù , tratta di esseri umani e sfruttamento sessuale di donne e bambini , che flagellano la nostra civiltà . 
+Occorre inoltre creare opportuni sistemi di seguito e applicazione della Carta dei diritti fondamentali , nonché assistere , dal punto di vista morale ed economico , le organizzazioni che si battono per i diritti dell ' uomo , come l ' Alto Commissariato delle Nazioni Unite per i rifugiati e il Consiglio internazionale per la riabilitazione delle vittime della tortura . 
+Signor Presidente , quando i governanti europei vanno in visita di Stato portano con sé un bagaglio pesante : rapporti economici , accordi commerciali , aiuti finanziari . 
+Raramente si tratta di questioni ecologiche , e perlopiù soltanto a margine di diritti umani . 
+Eppure i diritti umani e lo Stato di diritto sono il fondamento del nostro ordinamento civile . 
+Le esperienze da me fatte in Asia , dall ' India al Nepal , alla Corea , mostrano che il nostro impegno per i diritti umani rappresenta una grande speranza anche per i cittadini di quei paesi , le persone socialmente deboli , gli emarginati , i perseguitati , le famiglie e i bambini . 
+Ripongono molte speranze nel nostro impegno in loco , nella nostra risolutezza , fermo restando che dobbiamo coinvolgere con largo anticipo le ONG , i nostri partner competenti in materia di dialogo . 
+La speranza nasce anche grazie alle clausole sui diritti umani contenute negli accordi di partenariato . 
+Gli accordi vengono sospesi se si verificano violazioni sistematiche e massicce dei diritti umani . 
+In tal modo si esercita una pressione costruttiva . 
+Con quanta maggior decisione affrontiamo i problemi concreti , tanto più risulta chiaro che le questioni riguardanti i diritti umani non sono solo patrimonio del pensiero occidentale bensì di quello universale . 
+La nostra azione non rappresenta un ' intromissione illecita negli affari interni di un paese , bensì un intervento contro razzismo , tortura , sfruttamento e pena di morte . 
+Signor Commissario , l ' Unione europea deve assumere un ruolo guida molto più attivo , a livello internazionale , nelle questioni riguardanti i diritti umani . 
+Si è fatto qualcosa in occasione della 57a Conferenza della commissione per i diritti umani di Ginevra ? 
+Gli Stati membri dell ' Unione europea avevano sostenuto uniti l ' iniziativa degli Stati Uniti di porre all ' ordine del giorno la continua violazione dei diritti umani in Cina . 
+Tuttavia in sede di votazione sono venuti a mancare i voti dei paesi africani e dell ' America del sud . Tra questi ci sono sicuramente alcuni nostri tradizionali alleati . 
+All ' Unione europea occorre quindi , nelle fasi preliminari che precedono decisioni importanti , una strategia molto più coordinata , affinché il nostro impegno per i diritti umani ottenga maggiori risultati . 
+Accolgo con favore la discussione odierna e la tanto attesa comunicazione della Commissione sui diritti umani . 
+Mi compiaccio , in particolare , dell ' impegno a dare sostanza concreta alle clausole sui diritti umani nei nostri accordi commerciali e di partenariato con i paesi terzi , cosa che sfortunatamente non siamo riusciti a fare con il Messico . 
+Accolgo con favore anche diverse dichiarazioni nel progetto di risoluzione riguardanti paesi specifici , tra cui la risoluta richiesta di smantellare i gruppi paramilitari in Colombia . 
+Condivido l ' energica dichiarazione di sostegno e solidarietà nei confronti delle organizzazioni e dei difensori dei diritti umani , che rischiano ogni giorno la vita in situazioni di conflitto in tutto il mondo per difendere principi a noi cari . 
+Vi sono tre questioni specifiche che vorrei esaminare nel contesto della discussione . 
+In primo luogo , sebbene accolga con favore l ' impegno espresso nella comunicazione di invitare le imprese europee a fare di più in materia di rispetto dei diritti umani , che si riflette nei punti 55 e 92 della risoluzione , devo esprimere il mio rammarico alla Commissione per il fatto che le DG Relex sembrano essersi dissociate dal progetto di Libro verde sulle responsabilità sociali corporative . 
+Le invito a riesaminare la questione prima che sia troppo tardi . 
+Le parole dovrebbero essere seguite dall ' azione . 
+In secondo luogo , mi compiaccio e richiamo maggiore attenzione sul punto 108, riguardante gli abusi dei diritti umani nei confronti dei disabili . 
+L ' organizzazione Disability Awareness in Action ha registrato oltre 2000 abusi del genere in Europa , che dovrebbero essere sottoposti all ' attenzione delle organizzazioni che vigilano sul rispetto dei diritti umani e della Commissione . 
+Infine , accolgo con favore il punto 16, che prevede una riflessione sulle modalità con cui affrontiamo il tema dei diritti umani in seno al Parlamento . 
+Signor Presidente , ringrazio i due relatori per questo lavoro solido e ben fatto . 
+Al contempo , desidero dichiararmi d ' accordo con la onorevole Maij - Weggen sul fatto che la libertà di culto sia stata trattata in modo troppo limitato . 
+Eppure essa riguarda i valori più profondi e i fondamenti stessi dell ' esistenza di milioni di persone . 
+In Egitto , paese vicino all ' Unione europea , la conversione dall ' Islam al cristianesimo è punita con la pena di morte . 
+I copti si sentono cittadini di serie B . 
+In Turchia , la minoranza cristiana diviene sempre più esigua . 
+Perché sono sempre più numerosi i cittadini di religione cristiana che emigrano dal paese ? 
+Il Parlamento europeo ha contribuito allo scagionamento del prete cristiano di etnia siriana Yusuf Acbulut dalle accuse a suo carico , in occasione della settimana santa , presso il tribunale di sicurezza di Diyarbakir . 
+In questo ambito c ' è ancora molto da fare . 
+Trecentomila esseri umani sono scappati dalle Molucch. quasi tutti di religione cristiana . 
+Sono perseguitati dai guerriglieri della Jihad islamica . 
+Ci sono state oltre 1000 conversioni forzate ; esseri umani costretti ad abbracciare un credo e una visione della vita diversi dai propri . 
+Desidero inoltre ricordare che persino la legislazione francese sulla libertà di culto lascia ampiamente a desiderare . 
+Molti cristiani protestanti ed evangelici , in tutta Europa , si domandano con preoccupazione che cosa essa implichi . 
+Che brutto esempi. volutamente brutto , a mio avvis. per tanti paesi dell ' Europa centrale e orientale , fra i quali la Repubblica Ceca , che proprio ora si accingono a varare nuove leggi . 
+Si presti attenzione a non creare un ' Europa intollerante , in cui il credo deve essere uno solo . 
+Signor Presidente , signor Commissario , onorevoli deputati , tenuto conto del fatto che abbiamo oltrepassato i limiti di tempo , sarò molto concisa ; mi dovete però permettere di affermare che per me questo è un momento molto importante . 
+In qualità di ex deputato di questo Parlamento dal 1994 al 1999, è per me un piacere poter essere nuovamente presente in questa Istituzione a me car. anche se in un nuovo emicicl. e di potermi rivolgere a voi . 
+A nome del Consiglio mi congratulo innanzitutto con i relatori Wuori e Cornillet per l ' eccellente lavoro svolto e ringrazio tutti gli oratori intervenuti nel dibattito . 
+A partire da questo momento mi limiterò a rispondere alle domande precise che sono state poste . 
+Alla onorevole Frassoni che non è più in Aula , ma a cui comunque qualcuno riferirà le mie parole , vorrei dire che naturalmente la Presidenza si sforzerà di rispettare tutte le condizioni richieste per presentare una risoluzione contro la pena di morte all ' Assemblea generale delle Nazioni Unite . 
+Alla onorevole Boudjenah vorrei dire brevemente , a proposito della Tunisia , che il Consiglio è davvero dispiaciuto per il fatto che un paese in cui le realizzazioni socio - economiche sono notevoli non ottenga la considerazione che merita a causa di una classe dirigente evidentemente incapace di capire che elementi quali la libertà di espressione e di stampa sono imprescindibili per l ' Europa e per la popolazione tunisina . E ' proprio questa situazione che impedisce all ' Unione europea di avere maggiore considerazione per il modello tunisino , come invece meriterebbe se la situazione in materia di diritti umani e i rapporti con la lega dei diritti dell ' uomo fossero migliori di quel che sono attualmente . 
+( NL ) All ' onorevole Schröder ricordo che per questa Presidenza i diritti dell ' uomo non rappresentano affatto un aspetto marginale . 
+Un deputato ha formulato un ' allusione in merito al fatto che il Ministro degli esteri Michel è scomparso . Posso tranquillizzare il deputato in questione . 
+Il Ministro Michel non è scomparso , bensì si è allontanato per prendere l ' aereo per Madrid , dove parteciperà ad importanti colloqui legati alla Presidenza . 
+Desidero inoltre assicurare il Parlamento che nei prossimi sei mesi la lotta contro la tratta di esseri umani , in generale , e la lotta contro la tratta di donne e bambini , in particolare , costituiranno una delle nostre massime priorità . 
+Ringrazio l ' onorevole Johann Van Ecke per le gentili parole rivolte all ' indirizzo della Presidenza e mi auguro che riusciremo a soddisfare le sue attese . 
+Egli si è prefisso degli obiettivi molto ambiziosi , ma faremo del nostro meglio per raggiungerli . 
+Ricordo agli onorevoli Maij - Weggen e Sacrédeus che , per noi , la libertà religiosa va senz ' altro annoverata tra i diritti e le libertà fondamentali . 
+Il tempo a disposizione sta per finire , quindi dirò solo che , a nome del mio collega , il Commissario Patten , che si è dovuto assentare per partecipare a un ' altra riunione parlamentare sull ' America latina , nonché a nome mio personale , desidero ringraziare tutti i parlamentari che hanno partecipato alla discussione . 
+La Commissione ha preso nota di tutte le osservazioni e attende fiduciosa le risoluzioni che concluderanno questa discussione come orientamenti per le nostre future riflessioni ed azioni . 
+Infine , vorrei congratularmi con il Parlamento per l ' ampio consenso manifestato nei riguardi della nuova metodologia adottata per la relazione sulla situazione dei diritti fondamentali nell ' Unione europea , nonché esprimere il desiderio che in futuro si mantenga l ' impostazione proposta dall ' onorevole Cornillet . 
+La ringrazio molto , signor Commissario , è stato fin troppo breve . 
+La discussione è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+Conferenza sui cambiamenti climatici 
+L ' ordine del giorno reca , in discussione congiunta , le interrogazioni orali B5 - 0327 / 2001 e B5 - 0328 / 2001, presentate dalla onorevole Jackson a nome della commissione per l ' ambiente , la sanità pubblica e la politica dei consumatori , al Consiglio e alla Commissione , sulle strategie del Consiglio e della Commissione in vista della Conferenza di Bonn sui cambiamenti climatici . 
+Signor Presidente , mi scuso per l ' ora tarda . 
+I diritti umani sembrano aver richiesto parecchio tempo , come del resto è giusto che sia . 
+Vorrei esprimere la preoccupazione del Parlamento per il fatto che il Protocollo di Kyoto possa vacillare e fallire , lasciando il mondo privo di una rete coerente di obblighi mirati a ridurre le emissioni di gas a effetto serra . 
+Il Parlamento europeo accorda il suo pieno sostegno alla Commissione e alla Presidenza nei loro tentativi di garantire la salvaguardia e l ' entrata in vigore del Protocollo . 
+Vorremmo approfittare di questa breve discussione per esaminare ciò che l ' Europa può fare per porsi alla guida del mondo in assenza della leadership americana e il modo in cui i parlamentari europei che parteciperanno alla Conferenza di Bonn potranno esprimersi a nome dei cittadini d ' Europa e intervenire attivamente in tale processo . 
+Apprezziamo molto il lavoro svolto dal Ministro olandese , signor Pronk , nel ricercare una soluzione per le questioni rimaste irrisolte all ' Aia , e saremo grati alla Commissione se vorrà comunicarci il suo parere sui risultati finora raggiunti dal Ministro e se il lavoro che ha svolto ha chiarito o meno il modo in cui procedere . 
+Tuttavia , la questione principale è se sarà possibile dimostrare che l ' Unione europea , e le altre principali parti firmatarie del Protocollo , siano disposte ad adottare decisioni senza gli Stati Uniti . 
+In questo contesto , la posizione del nuovo governo giapponese è cruciale . 
+Senza i voti del Giappone e del Canada il Protocollo non può entrare in vigore . 
+Ci risulta che i pronostici non siano buoni e che probabilmente il Giappone , e di sicuro il Canada , non abbiano la volontà politica di procedere senza gli Stati Uniti . 
+Se il Giappone è disposto a procedere , è possibile che intenda riscrivere le proposte cruciali contenute nel Protocollo , in particolare potrebbe voler utilizzare il 2000 anziché il 1990 come anno di riferimento per calcolare le riduzioni delle emissioni di gas a effetto serra . 
+Un mio collega , l ' onorevole Moreira Da Silva , che guiderà la delegazione del Parlamento a Bonn , desidera presentare un emendamento orale su questo punto della risoluzione da noi proposta , in quanto il problema del Giappone in realtà è emerso solo nel periodo successivo alla sua presentazione . 
+La risoluzione ribadisce , al paragrafo 3, le nostre aspettative essenziali in merito all ' azione che farà seguito alla ratifica del Protocollo . 
+Tuttavia , come europei dobbiamo effettuare una sobria valutazione di ciò che la ratifica significherà per noi se dovesse avvenire e a maggior ragione se dovesse avvenire senza gli Stati Uniti . 
+In primo luogo , un aspetto cruciale è quello dei fondi . 
+Il Protocollo , nella sua forma attuale , prevede che i contributi finanziari dei partner si basino sulla quota di emissioni di CO2 di ciascuno . 
+Non è difficile rilevare che gli Stati Uniti , responsabili per il 39 per cento delle emissioni totali nel 1990, dovrebbero fare la parte del leone . 
+La domanda che mi pongo , e che forse andava posta prima , è in che modo il governo Clinton abbia pensato di poter persuadere il Congresso a ratificare il Trattato . 
+Forse una maggiore onestà fin dall ' inizio avrebbe contribuito a creare un clima più realistico . 
+Senza gli Stati Uniti , l ' onere ricadrà su Giappone , Germania , Regno Unito , Francia , Canada e Australia . 
+Le risorse finanziarie disponibili per ridurre le emissioni di CO2 nei paesi più poveri si ridurranno enormemente senza la partecipazione degli Stati Uniti . 
+Lo sforzo degli europei sarà maggiore . 
+Siamo pronti a questo , mi chiedo ? 
+In secondo luogo , se ratifichiamo il Protocollo di Kyoto da soli o senza gli Stati Uniti , ciò comporterà l ' adozione di alcuni provvedimenti che saranno dolorosi . 
+Noi parlamentari europei che seguiamo la questione lo riconosciamo . 
+Ogni anno , ogni mese , fino a tarda notte , esaminiamo direttive volte a ridurre le emissioni , ma sappiamo anche che nella maggioranza dei casi , quando incontriamo il Consiglio o i suoi rappresentanti , è estremamente difficile ottenere il consenso degli Stati membri su queste proposte nella loro forma originaria , molto esigente . 
+Ci troviamo ora in una situazione in cui , secondo l ' Agenzia europea dell ' ambiente , tra il 1990 e il 1998 soltanto il Regno Unito , la Germania e il Lussemburgo hanno ridotto le loro emissioni di gas a effetto serra . 
+In tutti gli altri paesi d ' Europa le emissioni sono aumentate . 
+Come potranno quindi la Danimarca , i Paesi Bassi , il Belgio , l ' Austria , la Finlandia , l ' Italia e , in minore misura , la Svezia e la Francia rispettare gli obiettivi di Kyoto ? 
+Oppure è vero , come sospettano gli Stati Uniti , che non saremo disposti ad adottare i provvedimenti necessari per dare espressione concreta alle nostre ambizioni ? 
+Ci auguriamo che la Conferenza di Bonn e la Presidenza belga riescano a stimolare gli europei a passare dalle parole all ' azione . 
+Infine , vorrei soffermarmi brevemente sulla partecipazione della delegazione dell ' Unione europea alla Conferenza di Bonn . 
+Siamo stanchi di essere un coro greco in questa tragedia . 
+Siamo stanchi di entrare in scena quando l ' azione principale è già avvenuta per deplorare o plaudire a ciò che è successo e presentare riflessioni filosofiche sul triste stato dell ' umanità , " Ïßìïé ç ôÜëáéíá " davvero ! 
+Questo non ci basta perché noi stessi dobbiamo essere considerati come protagonisti , dal momento che sarà nostro compito adottare la legislazione che scaturirà da Kyoto e dovremo spiegarla ai cittadini europei . 
+Possiamo non voler essere noi stessi i negoziatori , ma abbiamo l ' ambizione di svolgere un ruolo attivo nelle riunioni con la delegazione dell ' Unione europea in cui si decidono le modalità di intervento dell ' Europa . 
+Non ci accontentiamo di rimanere nel coro . 
+Signor Presidente , onorevoli parlamentari , innanzitutto ringrazio la onorevole Jackson per la domanda posta e per le osservazioni formulate in merito a questo problema assai grave , che preoccupa tutti noi . 
+A nome del Consiglio posso soltanto ribadire che il nostro impegno , così come sancito nelle conclusioni del Consiglio dell ' 8 marzo e del 7 giugno 2001, prevede di giungere ad un accordo in occasione della ripresa della sesta Conferenza delle parti , che tra breve si svolgerà a Bonn . 
+Tale accordo deve assicurare l ' integrità ambientale del Protocollo di Kyoto , portare ad un ' effettiva riduzione delle emissioni di gas ad effetto serra ; ad esso deve aderire il maggior numero possibile di paesi industrializzati , così da creare le premesse per la ratifica e l ' entrata in vigore del protocollo entro il 2002 . 
+Pertanto ribadiamo il nostro impegno a cercare di raggiungere un simile accordo . 
+Tutti gli obiettivi rimangono immutati . L ' Unione europea è disposta a negoziare a Bonn in maniera costruttiva con tutti i partner in merito alle questioni non ancora risolte . 
+Sebbene il Consiglio riconosca che l ' Unione europea e gli USA sono di diverso parere in relazione al Protocollo di Kyoto e alla sua ratifica , il Consiglio è soddisfatto della promessa , formulata dal Presidente Bush in occasione di un recente incontro con i Capi di stato e di governo dell ' Unione europea , che gli Stati Uniti non bloccheranno il processo di Kyoto e forniranno una collaborazione costruttiva durante la prossima riunione della Conferenza delle parti di Bonn . 
+Il 27 - 28 giugno scorso , nell ' ambito della concertazione ad alto livello svoltasi a Scheveningen , l ' Unione europea ha potuto allacciare con diversi partner proficui contatti in merito ai negoziati sul clima . 
+Inoltre l ' Unione europea ha avuto modo di rilevare , con profonda soddisfazione , che la comunità internazionale continua a sostenere il Protocollo di Kyoto e la sua rapida entrata in vigore , malgrado il rifiuto da parte degli Stati Uniti di ratificarlo . 
+Come emerso a Scheveningen , si registra una notevole consapevolezza circa l ' urgenza della questione e del fatto che non può essere messo in gioco il risultato di oltre dieci anni di negoziati condotti a livello internazionale . 
+Poiché che il Consiglio ritiene che la presenza del Parlamento europeo in tale occasione sia importante , ha invitato otto deputati a partecipare alla Conferenza di Bonn . 
+Le condizioni specifiche per tale partecipazione , che probabilmente non incontreranno la vostra approvazione , sono esposte in una missiva inviata dal Consiglio al Parlamento europeo il 18 novembre 1998 . 
+Tuttavia , in considerazione del desiderio dei partecipanti di ricevere informazioni più precise e regolari , un auspicio sottolineato dalla onorevole Jackson , ma che certamente esprime i sentimenti di numerosi parlamentari , durante la Conferenza la Presidenza intende organizzare , ad intervalli regolari , riunioni informali con deputati del Parlamento europeo in modo da consentire uno scambio di opinioni sull ' evolversi della situazione . 
+Onorevole Jackson , sono consapevole che ciò non la soddisferà , ma d ' altro canto questo significa che potrete fare di più che lamentarvi ai margini della Conferenza o dietro le quinte . 
+Signor Presidente in carica del Consiglio , onorevoli parlamentari , a nome della Commissione vorrei ringraziare la onorevole Jackson per aver sollevato una questione di estrema importanza in seduta plenaria . 
+Come ha già affermato il Presidente in carica del Consiglio , a Göteborg i Capi di Stato e di governo hanno confermato che la Comunità europea e gli Stati membri sono determinati a rispettare gli impegni assunti nel quadro del Protocollo di Kyoto . 
+Il Vertice dell ' Unione europea ha ribadito l ' intenzione dell ' Unione europea di far entrare in vigore il Protocollo entro il 2002 e ha chiesto alla Commissione di preparare una proposta per la ratifica entro la fine del 2001 . 
+Purtroppo , l ' amministrazione Bush continua a respingere il Protocollo di Kyoto . 
+In occasione del Vertice tra Unione europea e Stati Uniti a Göteborg , il Presidente Bush ha riconosciuto gli aspetti scientifici del cambiamento climatico e l ' importanza globale della questione . 
+Gli Stati Uniti hanno affermato che , sebbene intendano partecipare attivamente alla COP6 a Bonn , la loro posizione di base , avversa al Protocollo , non è mutata . 
+Ci baseremo su questa indicazione secondo cui gli Stati Uniti non intendono ostacolare il processo di Kyoto . 
+Al fine di agevolarlo , abbiamo deciso di intrattenere ulteriori contatti ad alto livello con gli Stati Uniti sull ' argomento . 
+Con la ripresa della COP6 in luglio si tireranno le somme della Conferenza dell ' Aia e si cercherà di portare i negoziati ad una valida conclusione . 
+A tal fine , l ' Unione europea assumerà un atteggiamento positivo e al tempo stesso realistico in merito ai risultati che si possono conseguire . 
+I nuovi testi consolidati del Presidente della COP6, signor Pronk , sono chiari e concisi e costituiscono una buona base per i negoziati di Bonn . 
+Tuttavia , tali testi contengono ancora importanti punti d ' arresto per l ' Unione europea , segnatamente i finanziamenti per i paesi in via di sviluppo , la conformità e la supplementarità . 
+Questi problemi vanno risolti . 
+In definitiva , ci batteremo per un pacchetto generale in cui i compromessi da un lato siano controbilanciati dai vantaggi dall ' altro . 
+Dobbiamo anche tenere conto dell ' importanza specifica del Giappone e della Russia per l ' entrata in vigore del Protocollo . 
+La Commissione si compiace del profondo interesse manifestato dal Parlamento nei confronti del problema globale del cambiamento climatico e della partecipazione dei parlamentari europei alla delegazione della Comunità alla COP6 . 
+Il Presidente in carica del Consiglio ha spiegato che la Commissione e il Consiglio hanno proposto che , come all ' Aia , il Parlamento sia rappresentato da otto deputati . 
+In conformità delle norme istituzionali relative alla loro partecipazione , i deputati possono presenziare alle riunioni plenarie mentre la Commissione fornirà regolarmente a tutti i parlamentari presenti alla COP6 informazioni in merito ai negoziati ai quali non sono ammessi osservatori . 
+Signor Presidente , signor Commissario , signora Sottosegretario di Stato , onorevoli deputati , le mie prime parole riguardano proprio la questione della partecipazione o meno della delegazione del Parlamento europeo alle riunioni di coordinamento dell ' Unione europea . 
+Vorrei dire che non sono per nulla soddisfatto del modo in cui il Sottosegretario di Stato ha risposto alle legittime domande poste dalla onorevole Jackson . 
+La delegazione del Parlamento europeo non reclama privilegi , reclama il proprio legittimo diritto a partecipare attivamente alla Conferenza di Bonn e non a fare da comparsa , come è avvenuto durante la Conferenza dell ' Aia . 
+Signor Presidente , onorevoli deputati , più che un dossier ambientale , i cambiamenti climatici sono divenuti una questione davvero simbolica dell ' agenda politica internazionale . 
+Se il Protocollo di Kyoto dovesse fallire , la spiegazione sarebbe semplice : gli Stati e i politici hanno molta fretta quando si tratta di promuovere i vantaggi della globalizzazione , ma sono incapaci di mettersi d ' accordo quando si tratta di minimizzare gli inconvenienti del nostro modello di società . 
+Il contesto attuale non potrebbe essere peggiore . 
+Da un lato , agire non è mai stato così urgente come oggi : le previsioni recentemente annunciate dal gruppo intergovernativo sui cambiamenti climatici non lasciano ombra di dubbio . 
+Dall ' altro , mai come oggi agire è stato tanto difficile : la decisione degli Stati Uniti ha inferto un duro colpo ad un lavoro internazionale portato avanti da dieci anni . 
+Tali fattori , urgenza d ' agire , pressioni del pubblico e abbandono degli Stati Uniti , contribuiscono a rendere decisiva la Conferenza di Bonn . 
+Sarà dunque il momento della verità per il Protocollo di Kyoto . 
+La nostra posizione è chiara : è urgente arginare il fenomeno dei cambiamenti climatici e il Protocollo di Kyoto rappresenta proprio lo strumento politico più corretto per realizzare tale obiettivo . 
+Pertanto ci rechiamo a Bonn con l ' ambizione di giungere ad un accordo con il maggior numero di paesi possibile in merito ai leftover di Kyoto , in modo che il Protocollo possa essere ratificato e attuato già nel 2002 . 
+E ' ovvio che per condurre a buon fine i negoziati , in particolare con il Giappone e con la Russia , dobbiamo offrire alcuni segnali di apertura , che tuttavia devono rispettare l ' integrità e lo spirito del Protocollo . 
+Un ' ultima parola sull ' aspetto economico . 
+E ' vero che , a breve termine , l ' attuazione del Protocollo si tradurrà in costi economici per le imprese europee . 
+Tuttavia , tali costi , come ha dimostrato anche questa settimana la relazione della Commissione , saranno molto inferiori a quanto si ritenesse inizialmente . 
+Del resto , sono persuaso che , a medio termine , il Protocollo di Kyoto renderà l ' economia europea più competitiva , grazie alla trasformazione tecnologica che realizzeremo prima degli altri . 
+Signor Presidente , l ' applauso riservato da tutti i gruppi all ' intervento della onorevole Jackson denota il consenso di cui gode in Europa la politica in materia di clima . 
+A quanto pare , anche negli Stati Uniti esiste un certo consenso tra l ' opinione pubblica , ma l ' opinione pubblica degli Stati Uniti è diversa da quella europea . 
+Per questo motivo , credo non si debba solo parlare con questo o quel deputato , bensì che , come europei , si debba effettivamente riflettere su come influenzare l ' opinione pubblica statunitens. ed io aggiungo anche quella giapponese , nel caso dovesse risultare che anche il Giappone non intende aderire . 
+Il compito di far fronte al mutamento di clima è talmente vasto che un ' azione isolata si prospetta molto difficile . 
+E ' proprio questa la domanda a cui dobbiamo rispondere : siamo pronti ad imboccare la strada decisa a Göteborg , e che io appoggio , anche se gli altri non ci stanno ? 
+A dirsi è facile ! 
+E ' facile e non costa nulla dichiarare di voler assumere quest ' onere . 
+Ma , in seguito , la realizzazione sarà terribilmente gravosa . 
+Il mio timor. lo dico apertament. è che gli europei , o molti europei , si nascondano dietro gli Stati Uniti . 
+In realtà siamo ben lontani dall ' adempiere il Protocollo di Kyoto . 
+Lo sappiamo tutti . 
+La Commissione ci propina sempre nuove cifre . In altre parole , ci troviamo davvero di fronte ad un ' impresa erculea . 
+Era doveroso sottolinearlo in questa sede . 
+Nonostante tutte queste difficoltà , vorrei far presente che , per la prima volta dopo la seconda guerra mondiale , all ' Europa si offre la possibilità di diventare un leader politico a livello mondiale . 
+Dovremmo cogliere questa opportunità , ben sapendo che non sarà facile . 
+Del resto è un compito nobile , e non indegno , quello che l ' Europa dovrebbe assumersi , e se gli altri si unissero a noi solo in un momento successivo , sopravviveremmo ugualmente . 
+La mia terza osservazione si riferisce unicamente al testo . 
+Non posso fare a meno di osservare che la nostra pretesa di " arrestare " i cambiamenti climatici ovviamente è senza senso . 
+Non so come sia finita nel testo un ' espressione simile . 
+I cambiamenti climatici ci sono sempre stati , solo che stavolta anche noi facciamo la nostra parte , ed è proprio questo il tema in discussione . 
+Vorrei iniziare rendendo omaggio al Commissario responsabile per l ' ambiente , signora Wallström . 
+Credo che nessun parlamentare nutra dubbi in merito al suo profondo impegno personale volto a garantire l ' esito positivo dei negoziati di Bonn , e vorrei anche ringraziare il collega liberale , il Primo ministro Verhofstadt , per aver posto l ' accento questa mattina sul fatto che il problema del cambiamento climatico è la più grande sfida che il pianeta deve affrontare . 
+Ciò che è emerso dall ' intera question. se ancora ce ne fosse stato bisogno. è una grande consapevolezza del fatto che quello su cui viviamo è un pianeta molto piccolo e che l ' umanità è perfettamente in grado , con le sue pratiche industriali , di modificare l ' ambiente in cui viviamo . 
+Persino gli Stati Uniti lo riconoscono , sebbene non abbiano ancora proposto alcuna alternativa pratica al Protocollo di Kyoto . 
+Affrontare il problema utilizzando le tecnologie in corso di realizzazione o già messe a punto al fine di modificare le nostre pratiche e ridurre il riscaldamento globale è ampiamente possibile oltre che vantaggioso . 
+In tal modo si possono ottenere enormi benefici per la società nonché opportunità economiche per coloro che assumeranno un ruolo guida : perché dunque non siamo in grado di perseguire questo obiettivo con maggiore efficacia ? 
+Un problema riguarda gli interessi acquisiti ( l ' esempio classico è fornito dalle industrie dei combustibili fossili , un altro dalla fiacca leadership politica da parte di noi tutti ) , per i quali siamo tutti responsabili . 
+Rinunciamo a prendere decisioni che possano risultare impopolari a breve termine tra i nostri elettori . 
+Auspico l ' introduzione di un regime di imposte ambientali armonizzato a livello europeo , non per raccogliere fondi , ma per modificare le pratiche e le priorità e garantire nel contempo che l ' industria sia in grado di competere a parità di condizioni . 
+Conosciamo i problemi , ci siamo confrontati con la questione della tassa sul combustibile in Gran Bretagna e altrove , in ogni occasione in cui i politici tentano davvero di imporre oneri fiscali per tutelare l ' ambiente . 
+L ' aspetto curioso è che , nel caso della Gran Bretagna , l ' armonizzazione delle imposte energetiche in relazione alla tassa sul combustibile verosimilmente ridurrebbe il nostro carico fiscale . 
+Sono appena tornato da un viaggio a Cipro , uno dei paesi candidati all ' adesione , dove ho scoperto che non solo non si applica alcuna tassa sul combustibile per l ' uso della benzina , ma che la benzina è addirittura oggetto di sovvenzioni . 
+Quindi , la domanda che rivolgo alla Commissione è : in termini pratici , quando si tratterà di affrontare effettivamente quello che mi auguro sarà l ' esito positivo di Bonn , in che modo il Consiglio perseguirà l ' armonizzazione delle imposte energetiche ponendosi contemporaneamente il problema dell ' allargamento , che renderà ancora più remota la possibilità di raggiungere l ' unanimità nel caso in cui intendessimo effettivamente introdurre un tipo di imposte ambientali armonizzate che valga la pena applicare ? 
+Signor Presidente , negli ultimi due anni in tutto il mondo sono state installate più centrali per la produzione di energia eolica che nucleare . 
+Ciononostante , Bush e Blair cercano di infondere nuova linfa vitale all ' energia nucleare . 
+Il mio gruppo ed una netta maggioranza del Parlamento ritengono che l ' energia nucleare non possa e non debba svolgere alcun ruolo nella soluzione dei problemi climatici e neanche nel quadro del meccanismo di clean development . 
+Su tutti gli altri punti oggetto dei negoziat. ripeto su tutti gli altri punt. il gruppo Verts / ALE ritiene che a Bonn sia possibile giungere ad un compromesso . 
+Tale compromesso dev ' essere volto ad assicurare il coinvolgimento del Giappone . 
+Bisogna prendere in considerazione persino l ' obiettivo di una maggiore riduzione da parte dell ' Europa . 
+La Commissione ha appena pubblicato uno studio dal quale emerge che neppure l ' obiettivo di una riduzione di due volte maggiore rappresenta un problema economico per noi . 
+L ' Europa deve ora occuparsi seriamente del risparmio energetico e delle energie rinnovabili . 
+L ' ulteriore sviluppo dell ' energia solare è essenziale per poter assicurare l ' approvvigionamento elettrico anche agli ultimi due miliardi di persone che finora ne sono sprovvisti . 
+Fornire energia elettrica a due miliardi di persone facendo uso di combustibili fossili significa la morte sicura del nostro clima . 
+Un accord. sia pure debol. a Bonn sarà sempre meglio di un nuovo fallimento . 
+Anche la convenzione di Montreal del 1987 non era un accordo forte , ma negli ultimi 14 anni è stata man mano rafforzata . 
+Lo stesso può accadere anche con il Protocollo di Kyoto . 
+Signor Presidente , vi è grande consenso intorno alla nostra posizione sui problemi del clima , e ciò mi pare molto importante . 
+Dobbiamo sfruttare tale unitarietà per esercitare la massima pressione sui paesi che hanno ora nelle mani il futuro del Protocollo di Kyoto . 
+Si rischia in pratica una sorta di collasso dei negoziati sul clima , un collasso che rischierebbe di riportarci indietro di parecchi anni . 
+E ciò che è peggio è che chi causa tale collasso , soprattutto gli USA , non ha nessuna alternativa da controproporre . 
+Ecco perché occorre fare di tutto pur di salvare il salvabile . 
+Anche l ' Unione europea ha un problema di credibilità . Come ricordato da altri intervenuti , anche molti Stati membri non sono in grado di rispettare i termini del Protocollo di Kyoto . 
+Sappiamo che tali termini sono già in sé insufficienti a far fronte ai problemi connessi al cambiamento climatico . 
+In pratica , quando incontriamo il Consiglio , come nella conciliazione sugli impianti di combustione e sui tetti nazionali per le emissioni , ciò che emerge è l ' indisponibilità a dar seguito alle decisioni prese . 
+A Göteborg , al momento di decidere la strategia per lo sviluppo sostenibile , molti dei punti più rilevanti sono stati depennati . 
+Ovviamente anche la credibilità dell ' Unione ne uscirebbe rafforzata , se noi mostrassimo nei fatti di essere pronti a rispettare i nostri stessi obiettivi . 
+In vista degli incontri che terremo con gli altri paesi per decidere del futuro del Protocollo di Kyoto , ciò mi pare particolarmente importante . 
+Vorrei innanzitutto congratularmi con la onorevole Jackson per aver posto questa interrogazione orale . 
+E ' già stato ricordato che la Conferenza sul cambiamento climatico si terrà a Bonn dal 16 al 27 luglio 2001 . 
+Sappiamo che il governo statunitense e l ' Unione europea non sono riusciti a raggiungere un accordo nei Paesi Bassi prima di Natale riguardo alla definizione di un calendario per la riduzione delle emissioni dei gas a effetto serra . 
+Del pari , è evidente che il governo degli Stati Uniti si sta tirando indietro riguardo al Protocollo di Kyoto , il che è molto deludente . 
+Vi sono riscontri scientifici chiari e inequivocabili che dimostrano gli effetti del cambiamento climatico . 
+Di sicuro , i governi degli Stati Uniti e dell ' Unione europea possono essere d ' accordo su un aspetto , cioè che l ' uso di gas a effetto serra provoca il depauperamento dello strato di ozono , il che determina a sua volta un innalzamento del livello dei mari e una maggiore erosione costiera ed altera l ' ambiente in cui vivono le comunità insulari . 
+Invito i governi europei che saranno rappresentati a Bonn a cogliere l ' occasione offerta dalla Conferenza per dire agli Stati Uniti che questo non è affatto sufficiente e che è necessario applicare tutte le disposizioni dell ' accordo di Kyoto : solo nel quadro dell ' accordo , il governo statunitense dovrebbe ridurre le emissioni di circa un terzo entro il 2012 . 
+Signor Presidente , votare a favore del Protocollo di Kyoto in seno al Senato statunitense equivarrebbe ad un suicidio politico : è quanto emerso da una videoconferenza tenuta lo scorso anno con alcuni senatori americani . 
+Nel frattempo il nuovo Presidente Bush ha respinto il Protocollo di Kyoto . 
+Ciò può essere definito , giustamente , una vergogna . 
+D ' altro canto il Presidente esprime chiaramente quale sia il pensiero degli USA in merito al Protocollo di Kyoto . 
+Purtroppo la conseguenza di questo atto è che anche il Giappone si domanda se sia opportuno ratificare il Protocollo di Kyoto . 
+La scorsa settimana il Primo ministro nipponico Koizumi ha affermato che non intende proseguire senza la collaborazione degli Stati Uniti . 
+Dobbiamo però pensare che anche gli Stati membri dell ' Unione non hanno ratificato o dato attuazione al Protocollo di Kyoto . 
+E ' vero che le emissioni di CO2 in Lussemburgo , Germania e Gran Bretagna sono considerevolmente diminuite , ma in Spagna , Portogallo e Irlanda hanno fatto segnare un notevole incremento . 
+Stando alle previsioni del WWF , le emissioni di CO2 nell ' Unione europea aumenteranno complessivamente dell ' otto per cento , invece di far registrare un calo dell ' otto per cento , come previsto dal Protocollo di Kyoto . 
+Inoltre non è coerente che l ' Unione europea accusi gli Stati Uniti di non voler far nulla per combattere le emissioni di CO2, se non è disposta a proseguire con la riduzione delle emissioni di NOx . 
+Negli Stati Uniti le norme in materia di emissioni di NOx nel 2003 sono già più rigide di quelle che i ministri dell ' ambiente intendono imporre a partire dal 2018 nel quadro della direttiva sui grandi impianti di combustione . 
+Un pericolo è che il fallimento del Protocollo di Kyoto venga usato come pretesto per non agire . 
+La minaccia di un cambiamento climatico continua a sussistere , così come rimangono gli obiettivi di combatterlo , con o senza Protocollo di Kyoto . 
+Pertanto l ' Unione europea non deve seguire l ' esempio degli USA o del Giappone ; deve lottare contro il cambiamento climatico puntando sul risparmio energetico , sull ' efficienza energetica , tra l ' altro promuovendo la cogenerazione energetica , nonché la produzione di energia eolica e solare . 
+Su tali punti dev ' essere possibile concludere accordi con gli Stati Uniti e il Giappone . 
+Inoltre dobbiamo rimanere aperti ad ampliare la quota che può essere realizzata tramite il commercio di emissioni . 
+Se questo è il modo per riuscire a coinvolgere nuovamente gli Stati Uniti nei negoziati , non dobbiamo certo rinunciarvi . 
+Infine , non possiamo trascurare la quota dei paesi del Terzo mondo , in considerazione del fatto che anche in tali Stati il consumo energetico aumenterà notevolmente . 
+Signor Presidente , onorevoli colleghi , senza dubbio in questo momento di delusione e rifiuto da parte dell ' Unione europea nei confronti dell ' atteggiamento adottato dagli Stati Uniti in merito all ' adempimento degli impegni di Kyoto , il Parlamento europeo deve riaffermare e rafforzare in modo inequivocabile il proprio impegno di progredire nella riduzione delle emissioni di CO2 tramite la ratifica delle misure proposte nel Protocollo . 
+Dopo avere concordato nel 1997 una strategia internazionale per ridurre le emissioni inquinanti , non possiamo accettare una svolta così drastica ed importante nell ' approccio al problema , considerando validi argomenti che , sotto una parvenza scientifica , intendono ritardare nel tempo l ' intensità e la forza di azioni concrete . 
+Inoltre , ritengo che questa proposta di risoluzione costituisca un atto necessario del Parlamento europeo verso gli stessi Stati membri come espressione del rinnovamento di una volontà politica in ognuno di essi di lottare contro il cambiamento climatico e di intensificare la messa a punto dei meccanismi necessari per la ratifica del Protocollo . 
+Al prossimo vertice sul clima che si terrà a Bonn , gli Stati membri dovranno rispondere ai punti chiave rimasti insoluti all ' Aia . 
+Ritengo indispensabile che almeno il capo della delegazione parlamentare o il suo vice sia accettato nell ' équipe negoziatrice dell ' Unione europea . 
+Per questo motivo , e per poter compiere il passo successivo per negoziare con altri paesi una rapida ratifica del Protocollo , è tanto importante che il Parlamento in blocco appoggi la presente proposta , rinnovando , come ho detto , la volontà di leadership internazionale dell ' Unione europea in materia ambientale e come atto verso gli Stati membri , affinché non dimentichino né indugino nell ' attuare a livello nazionale le misure necessarie alla ratifica del Protocollo . 
+Signor Presidente , signora Presidente del Consiglio , signor Commissario , onorevoli colleghi , è già stato detto alcune volte e non è certo privo di importanza : da destra a sinistra , vi è grande unanimità in merito a questo dossier ; dovete quindi appoggiarlo in occasione dei prossimi negoziati di Bonn . 
+Ma c ' è di più : in molti dossier europei dobbiamo muoverci contro l ' opinione pubblica , ma in questo caso godiamo del sostegno della stragrande maggioranza dell ' opinione pubblica che sprona i governi a compiere ulteriori passi a favore del Protocollo di Kyoto . 
+Ciò significa che alla vigilia di Bonn dobbiamo proporre una serie di misure a livello di Conferenza , ma anche a livello comunitario e nazionale . 
+Come è già stato ribadito più volte : in questa discussione l ' Europa può e deve svolgere un ruolo a livello mondiale . 
+Ciò indubbiamente ci onora e scredita altri , tra cui il Presidente Bush e la sua amministrazione . 
+Dobbiamo senz ' altro cercare di trascinare dalla nostra parte gli altri , ma non mettendo a rischio accordi già conclusi . 
+Se il protocollo viene approvato con uno scambio illimitato di emissioni o un uso illimitato di fonti di carbonio , l ' effetto sul clima sarà limitato . 
+Aggiungerei al dibattito ancora un punto . 
+Ritengo che non dobbiamo essere soddisfatti di noi stessi . 
+Neanche noi abbiamo ratificato il protocollo e neanche noi abbiamo ancora pronto alcun programma d ' azione chiaro e concreto . 
+Esorto la Presidenza belga ad occuparsi con decisione di questo problema . 
+In che modo negozieremo le nostre emissioni ? 
+I negoziati riguarderanno soltanto gli Stati o anche le aziende ? 
+In che modo verranno disciplinati gli scambi tra settori ? 
+A che punto sono i programmi d ' azione nazionali ? 
+Che cosa faremo a tale riguardo ? I fondi di bilancio necessari sono già stati messi a riserva ? 
+Chiedo alla Presidenza belga di occuparsi concretamente di questi aspetti anche nei prossimi mesi . 
+Sebbene alcuni scettici nutrano ancora dubbi in merito al fenomeno del riscaldamento globale , nessuno può dubitare del raffreddamento delle relazioni tra l ' Unione europea e gli Stati Uniti in seguito al rifiuto di questi ultimi di raccomandare la ratifica del Protocollo di Kyoto . 
+Il gruppo di esperti intergovernativo sul cambiamento climatico non ha alcun dubbio sul fatto che si stia verificando un surriscaldamento globale e che i gas a effetto serra , in particolare le emissioni di CO2, ne siano i principali responsabili . 
+Persino la National Academy of Sciences degli Stati Uniti , che fornisce consulenze al Presidente Bush , concorda ampiamente su questi dati . 
+L ' Unione europea è determinata a procedere da sola , ma i maggiori responsabili , gli Stati Uniti , con il 4 per cento della popolazione mondiale e il 25 per cento delle emissioni globali , continuano a non voler cooperare . 
+Purtroppo , finora , soltanto la Romania ha ratificato il Protocollo . 
+Il Giappone e il Canada si stanno tirando indietro per l ' abbandono degli Stati Uniti . 
+Nel mio paese , il Regno Unito , sotto il governo conservatore abbiamo promosso l ' uso del gas , in quanto il gas naturale produce livelli di CO2 di gran lunga inferiori rispetto al carbone . 
+Siamo andati avanti e la situazione è stata rapidamente ribaltata dal nuovo governo laburista , ansioso di preservare posti di lavoro nel settore minerario . 
+Fortunatamente il Regno Unito è ancora in grado di rispettare gli impegni di Kyoto . 
+Nei luoghi di villeggiatura invernali sulle montagne europee stiamo già osservando gli effetti dell ' innalzamento del limite delle nevi perenni , ma le prospettive a lungo termine sono molto più allarmanti . 
+Ad un certo punto , si presenta il pericolo di instabilità termica , in quanto la calotta polare si scioglie , riflette meno raggi solari e provoca un rapido aumento della temperatura atmosferica . 
+Ciò minaccia inondazioni in tutto il mondo ed altri cambiamenti climatici di portata tale da sconvolgere l ' economia , con enormi pressioni migratorie sulle popolazioni , per non parlare delle potenziali guerre per l ' approvvigionamento idrico . 
+Qual è la soluzione ? 
+Ritengo che tutti i paesi debbano adottare politiche di sviluppo economico sostenibile ed investire nelle fonti energetiche rinnovabili . 
+Ciò significa anche riaprire il controverso dibattito sull ' energia nucleare , alla quale sono favorevole . 
+Dobbiamo inoltre esaminare la possibilità di utilizzare meccanismi basati sul mercato , come lo scambio dei diritti di emissione . 
+La riduzione del 5 per cento entro il 2010 rispetto ai livelli del 1990 stabilita a Kyoto potrebbe non essere sufficiente . 
+Potrebbe essere necessario riesaminare la questione dei pozzi di assorbimento del carbonio . 
+Ritengo che gli Stati Uniti debbano rivedere la propria posizione e tornare a Bonn con alcune proposte davvero valide . 
+Mi congratulo con la collega , onorevole Jackson , per l ' attenzione che continua a dedicare a questo tema cruciale per il futuro dell ' umanità . 
+Signor Presidente , il mondo ha bisogno di un forte segnale politico . 
+Kyoto non deve rimanere una promessa vuota . 
+E ' necessaria una leadership politica per convincere il mondo . 
+In tale contesto dobbiamo dar prova di flessibilità . 
+In primo luogo nei confronti degli Stati Uniti e del Giappone . 
+Dobbiamo smettere di porre grande enfasi sulla domestic action ; dobbiamo puntare su un cosiddetto approccio scientifico al problema dei sinks . 
+In secondo luogo nei confronti dei paesi in via di sviluppo . I cambiamenti climatici hanno gravi ripercussioni sui PVS . 
+Bangladesh , India , Indonesia e Stati insulari hanno avuto modo di sperimentarne gli effetti . 
+Sono estremamente necessari sia un atteggiamento comprensivo verso i paesi in via di sviluppo sia un fondo che renda possibili eventuali adeguamenti . 
+Dobbiamo tener conto del fatto che , se gli Stati Uniti non cooperano , verrà a mancare per i paesi in via di sviluppo lo stimolo a partecipare , perché proprio gli USA volevano realizzare gran parte dei loro impegni esteri . 
+Adesso l ' Unione europea deve assumere su di sé tale ruolo e fare di più per i PVS . 
+Come ovvio a lungo termine anche i paesi in via di sviluppo dovranno venir inquadrati in un sistema di riduzione delle emissioni di CO2, ma sulla base di pari diritti di emissione . 
+In terzo luogo dobbiamo promettere a noi stessi che ci impegneremo nella domestic action , che non promuoveremo l ' energia nucleare ; dobbiamo intervenire rapidamente con un sistema credibile ed affidabile per il commercio dei diritti di emissione ; inoltre dobbiamo fissare all ' interno dell ' Europa un ' agenda in materia di ricerca per rendere possibile il passaggio ad un ' economia che generi poche emissioni di CO2 . 
+Signor Presidente , all ' Aia la delegazione dell ' Unione europea non si è mostrata dal suo lato migliore . 
+Indecisione e mancanza d ' intesa hanno contribuito al fallimento dell ' Aia . 
+I parlamentari possono svolgere un ruolo se verranno ammessi , in qualità di osservatori , ai colloqui delle delegazioni . 
+Come ha ricordato la signora Presidente del Consiglio , all ' Aia abbiamo agito dietro le quinte e ci siamo lamentati , ma tutto ciò non è servito a nulla . 
+Per questo motivo adesso vogliamo essere associati alla delegazione in veste di osservatori ; riteniamo che ciò possa servire a rafforzare l ' intesa all ' interno dell ' Unione europea . 
+Signor Presidente , in politica si è tentati di credere che tutto si possa negoziare . 
+Per ricordarvi con chi abbiamo a che fare vorrei ribadire qualche dato sul surriscaldamento del pianeta . 
+Vorrei ricordare che il surriscaldamento è un fatto scientificamente provato , su cui sono già stati compiuti numerosi studi . 
+Purtroppo al tavolo dei negoziati ci troveremo a trattare con la natura che in genere non scende mai a compromessi . 
+Gli ultimi dati sulle variazioni di temperatura dell ' acqua del mare non rivelano nulla di nuovo . 
+I mari si sono scaldati , la temperatura è aumentata di 0,6 gradi negli ultimi cento anni e certamente essa subirà ulteriori incrementi : la variazione di temperatura media è pertanto piuttosto consistente . 
+I ghiacciai montani si stanno sciogliendo , l ' 85 percento dei ghiacciai si sta ritirando molto rapidamente , nel peggiore dei casi anche di diverse decine di metri all ' anno . 
+Anche i ghiacciai delle vette delle Ande rischiano di sparire del tutto . 
+La banchisa del Mare Artico si è ridotta del 25 percento negli ultimi tre anni . 
+Anche il permafrost delle aree continentali settentrionali si sta sciogliendo velocemente , soprattutto nella Siberia centrale e in Alaska , dove questo fenomeno ha anche un vasto impatto sullo sfruttamento delle risorse naturali . 
+Se non faremo nulla per risolvere il problema del surriscaldamento del pianeta , sarà proprio l ' Europa nordoccidentale a subire alcune tra le conseguenze più gravi . 
+Il surriscaldamento potrebbe causare l ' inversione delle correnti marine dell ' Atlantico settentrionale . Questo cambiamento nella direzione delle correnti causerebbe una variazione del clima nella zona della Fennoscandia , facendolo diventare ancora più freddo , quasi glaciale . 
+Lo scioglimento dei ghiacciai potrebbe anche far arrestare la cosiddetta " pompa dell ' Atlantico " e la corrente del Golfo che viene dai tropici e il suo prolungamento , la corrente dell ' Atlantico settentrionale potrebbero fermarsi . 
+La conseguenza di tutto ciò potrebbe essere un raffreddamento del clima dell ' Europa nordoccidentale ; tale cambiamento del clima , secondo gli studi compiuti nel campo paleo - oceanografico , potrebbe avere un impatto disastroso poiché si verificherebbe molto rapidamente . 
+Il surriscaldamento del pianeta è un problema tangibile , di cui molte associazioni e organizzazioni sono coscienti . 
+La Croce Rossa ha confermato quello che già molte altre organizzazioni umanitarie hanno ripetuto più volte : le sempre più numerose catastrofi naturali sono da attribuire al surriscaldamento del clima . 
+Se non cerchiamo una soluzione a questo problema , il numero di queste calamità naturali potrebbe aumentare in maniera esponenziale . 
+La conferenza di Bonn deve avere un esito positivo . 
+Signor Presidente , innanzi tutto un grazie alla onorevole Jackson per l ' iniziativa del dibattito odierno . 
+Credo che i cambiamenti climatici siano uno dei problemi ambientali meglio documentati che abbiamo e , contemporaneamente , la più grande minaccia contro l ' ambiente e contro le future generazioni che abiteranno la terra . 
+Per questo motivo il rifiuto da parte del governo americano del Protocollo di Kyoto è naturalmente assolutamente irresponsabile . 
+Credo che dobbiamo prendere atto del fatto che Bush e il suo governo hanno dimostrato di essere esattamente così primitivi e populisti come si era temuto . 
+La posizione degli Stati Uniti però non può che accrescere la responsabilità dell ' Europa nei confronti dello sviluppo ambientale mondiale , come ha ricordato anche l ' onorevole Da Silva . 
+Dobbiamo sostenere il Protocollo di Kyoto alla conferenza dell ' Aia . 
+Dobbiamo fare in modo che i paesi membri e l ' Unione europea si battano in prima linea per ottenere la ratifica del Protocollo affinché auspicabilemente esso possa entrare in vigore l ' anno prossimo ; a tale riguardo dobbiamo naturalmente cercare di coinvolgere anche il Giappone nel rispetto di questa soluzione . 
+Come la onorevole Van Brempt , vorrei anch ' io mettere in guardia contro il rischio di concludere un compromesso di cattiva qualità , un accordo di cattiva qualità con gli Stati Uniti . 
+L ' esperienza ha dimostrato ripetutamente che quando infine gli Stati Uniti ottengono un accordo qualitativamente molto scarso , dal nostro punto di vista , poi comunque vengono meno all ' accordo al momento della sua attuazione . 
+Al contrario noi in Europa dobbiamo fare in modo di attuare il nostro programma sui cambiamenti climatici in modo efficace . 
+Come ricordato da molti , anche noi in Europa abbiamo problemi , per esempio nel settore dei trasporti assistiamo attualmente ad un ' evoluzione chiaramente negativa . 
+Dobbiamo lavorare affinché gli Stati Uniti , con il futuro che ci aspetta , non ottengano un vantaggio competitivo da quell ' irresponsabilità alla quale finora abbiamo assistito . 
+Spero che la conferenza di Bonn possa costituire comunque un passo decisivo verso la soluzione di questa enorme sfida alla quale tutti siamo confrontati . 
+Signor Presidente , signor Commissario , onorevoli colleghi , la lotta alla catastrofe climatica è la sfida più importante della nostra epoca , a livello di politica ambientale , anzi oserei dire che è forse la sfida più importante in assoluto , anche a prescindere dalla politica in materia di ambiente . 
+Pertanto , a Bonn , sono in gioco molte cose . 
+E ' essenziale quindi che l ' Unione europea proceda unita ed io rivolgo un appello a Consiglio e Commissione , affinché coinvolgano nella loro azione la delegazione parlamentare e che perlomeno il capo della nostra delegazione partecipi al processo di coordinamento dell ' UE , in quanto è nostra intenzione sostenere la posizione di Consiglio e Commissione , ma possiamo farlo solo se veniamo informati nei dettagli . 
+Il problema principale ovviamente è costituito dall ' atteggiamento degli Stati Uniti . 
+E ' già stato ripetuto più volte . 
+Non basta essere d ' accordo sul fatto che tale atteggiamento è inaccettabile . 
+Adesso dobbiamo riflettere , visto che belle parole e appelli non sono serviti a molto , su come possiamo esercitare una pressione maggiore . 
+A tal proposito , l ' Unione europea dovrebbe dare la priorità , nelle relazioni con gli Stati Uniti , alla tutela del clima ed agli accordi di Kyoto . 
+Ci sono posizioni diverse nei confronti del governo americano e dei deputati del Congresso e ormai dovrebbe essere chiaro che proprio questo è il problema . 
+Perciò sono stato un po ' deluso che dopo il Vertice di Göteborg ci si sia limitati ad osservare : la pensiamo diversamente , e nulla più . 
+L ' Unione europea deve mettere bene in chiaro che , se su altri temi possiamo essere di parere diverso e ciononostante attenerci all ' ordine del giorno , questa invece è una priorità assoluta per l ' Unione . 
+Forse dovremmo addirittura fare concessioni in altri settori per riuscire davvero ad imporre tale priorità . 
+Se gli Stati Uniti , in questo modo , saranno disposti a ratificare gli accordi di Kyoto e a collaborare su un piano concreto a Bonn , dovremmo mostrarci flessibili e magari non sostenere unicamente , per esempio in materia di energia nucleare , le teorie dell ' UE , bensì accettare compromessi . 
+Il presupposto è comunque che gli americani si impegnino a ratificare gli accordi di Kyoto e a dar seguito in modo costruttivo al processo per la tutela del clima . 
+La ringrazio molto , onorevole Liese . 
+La Presidenza in carica di Consiglio e la Commissione mi comunicano , credo a ragione , che ritengono esaurientemente trattato l ' argomento con interventi dei deputati che hanno preso parola . 
+Per concludere la discussione , comunico di aver ricevuto una proposta di risoluzione ai sensi dell ' articolo 42, paragrafo 5, del Regolamento . 
+La discussione è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+Tempo delle interrogazioni ( Consiglio ) 
+L ' ordine del giorno reca il Tempo delle interrogazioni ( B5 - 0329 / 2001 ) . 
+Saranno trattate le interrogazioni rivolte al Consiglio . 
+Abbiamo a disposizione solo 40 minuti . 
+Dobbiamo trovare un accordo sul funzionamento di questo Tempo delle interrogazioni , perché altrimenti si verrà a creare una situazione insostenibile . 
+Se i primi della lista parleranno a lungo , gli altri si vedranno privati del loro diritto . 
+Per cominciare , abbiamo dieci interrogazioni alle quali la signora Presidente in carica del Consiglio risponderà congiuntamente . 
+Se poi passassimo alle domande complementari , vi sarebbero trenta domande , il che vorrebbe dire rinunciare al turno . 
+Pertanto , applicherò l ' articolo 19 del Regolamento , che conferisce al Presidente l ' autorità di organizzare il dibattito in casi eccezionali . 
+Se vi sembra necessario , invece di un minuto , potrete parlare un minuto e mezzo ; ma ognuno di voi non mi chieda la parola tre volte con le successive risposte . 
+A questa proposta non potete dire di no , esimi colleghi . 
+E ' assolutamente razionale e necessaria . 
+Prendo atto della sua decisione , ma in base all ' allegato II del Regolamento un deputato può formulare una domanda complementare per ogni interrogazione . 
+Non abbiamo sprecato tempo . 
+Ci verrà data una risposta , ma ognuno di noi dovrebbe anche avere diritto a una domanda complementare . 
+Si , sono d ' accordo , ma l ' articolo 19 si riferisce a situazioni eccezionali come quella di oggi . 
+E ' necessario , dunque , applicare il Regolamento in modo razionale . 
+Se continuerete con le mozioni di procedura , non potranno formulare interrogazioni né ricevere risposta neanche i primi dieci della lista . 
+Signor Presidente , vorrei semplicemente proporre una soluzione pratica al problema . 
+Credo che , in effetti , abbiamo il diritto di replicare dopo l ' intervento del Presidente in carica del Consiglio e , in seguito , ognuno di noi dovrebbe poter porre una domanda complementare . 
+Le propongo , signor Presidente , che ciascuno di noi abbia diritto ad un secondo intervento breve che andrebbe a compensare quell ' ipotetica domanda complementare alla quale avremmo diritto . 
+Il dibattito sarà breve , ma manterremo i nostri diritti regolamentari . 
+Posso decidere con una certa flessibilità , anche in applicazione dell ' articolo 19 . 
+Potete dunque formulare l ' interrogazione per un minuto ed anche la domanda complementare , per la quale avrete una sola possibilità d ' intervenire ; dopo mezzo minuto , resterete senza microfono . 
+Questa è la mia interpretazione definitiva dell ' articolo 19 . 
+interrogazione n . 10 dell ' on ( H - 0547 / 01 ) : 
+Oggetto : Riconoscimento delle competenze politiche e legislative delle nazionalità e regioni costituzionaliQuali proposte intende varare il Consiglio per far si che , contestualmente alla riforma dei trattati prevista per il 2004, siano riconosciuti i poteri politici e legislativi degli enti nazionali degli Stati membri ( nazionalità , Stati federali , comunità autonome , regioni costituzionali ) nelle loro relazioni esecutive , legislative e giudiziarie con le istituzioni dell ' Unione europea ? 
+In una dichiarazione allegata al Trattato di Nizza , la Conferenza dei rappresentanti governativi degli Stati membri ha espresso l ' auspicio che , quale prima fase nell ' ambito di un processo di preparazione che porterà alla convocazione della Conferenza intergovernativa del 2004, si avvii un dibattito ampio e , al contempo , più approfondito sul futuro dell ' Unione europea . 
+Nella dichiarazione comune del 7 marzo scorso , la Presidenza svedese e belga , nonché la Presidente del Parlamento europeo e il Presidente della Commissione hanno ribadito tale obiettivo e hanno esortato a dare inizio ad una discussione in cui devono essere coinvolti più che in passato tutti i settori sociali . 
+La relazione della Presidenza presentata al Consiglio europeo di Göteborg descrive l ' ampio ventaglio di iniziative che a tutt ' oggi sono state promosse negli Stati membri , nei paesi candidati e dalle Istituzioni dell ' Unione europea . 
+Tale relazione fa cenno alle numerose iniziative all ' interno dei vari Stati membri e delle diverse entità regionali , ed enumera altresì le manifestazioni organizzate dal Comitato delle regioni nel quadro di questo dibattito . 
+Le varie interrogazioni formulat. che in realtà si concentrano tutte sul ruolo delle entità regionali nel processo di preparazione della Conferenza intergovernativa del 200. sollevano due tipi di problemi : da una parte , le modalità della fase preparatoria che precede la futura Conferenza intergovernativa e , dall ' altra , il ruolo delle entità regionali nell ' architettura dell ' Unione europea . 
+Per quanto attiene alla questione relativa alle modalità della fase preparatoria , è ancora troppo presto per pronunciarsi sul contenuto della Dichiarazione di Laeken . 
+La maggior parte di voi , credo , ha sentito il nostro Primo ministro che ha già lasciato intravedere qualcosa . 
+Tuttavia , il quadro tuttora in ombra deve in gran parte ancora essere dipinto . 
+In questa circostanza , quindi , posso solamente dirvi che è troppo presto . 
+Ad ogni modo , è evidente che la fase preparatoria dovrà prendere spunto dai diversi contributi che saranno forniti da qui al Consiglio europeo di dicembre , nonché dalle discussioni e dai contatti che la Presidenza belga intratterrà con tutte le parti interessate . 
+A questo proposito posso assicurare che la Presidenza ha la ferma intenzione di prendere in esame tutti gli aspetti della questione , compresi quelli già menzionati dagli onorevoli parlamentari , affinché le modalità preparatorie che precedono la CIG del 2004 rispondano al meglio alle esigenze di apertura formulate dalla dichiarazione di Nizza . 
+( NL ) In risposta alle domande connesse al contenuto del ruolo delle entità regionali nella futura architettura dell ' Unione , ricordo l ' attenzione rivolta a tale questione dalle precedenti Conferenze intergovernative , manifestatasi nella creazione del Comitato delle regioni , composto da rappresentanti delle comunità locali e regionali , che , come noto , ha una funzione consultiva . 
+E ' prematuro fornire adesso una risposta dettagliata sulla predetta questione a nome del Consigli. perché è a nome del Consiglio che intervengo - , ma sono certa che , a tempo debito , questo punto verrà esaminato in maniera adeguata . 
+Ascolterò con attenzione le interrogazioni complementari ; mi auguro che ci sia anche il tempo per rispondervi . 
+Signora Ministro , anzi , cara Annemie , noi chiamiamo le cose con il loro nome ! 
+Con ciò intendo dire che so che in questa sede lei risponde a nome del Consiglio . 
+Noi dieci deputati del gruppo ALE qui presenti vogliamo che il processo regionale sia portato avanti nell ' ambito della costruzione europea , perché siamo tutti parlamentari di regioni filoeuropee e temiamo che , se le regioni costituzionali non avranno alcun peso nel quadro del processo decisionale europeo , in esse si creerà gradualmente un senso di rifiuto verso l ' Europa , perché si avrà la sensazione che le nostre regioni rimangano tagliate fuori , finiscano soffocate in questa costruzione . 
+Perciò le chiedo , in qualità di Presidente belga , ossia di motore della discussione che viene adesso avviata , in che modo intenda cercare di coinvolgere tali regioni nel processo decisionale e far sì che il Consiglio si pronunci al riguardo entro pochi mesi . 
+Signor Presidente , caro Bart , chiedo scusa , ma non conosco ancora bene le vostre abitudini . 
+Pensavo di sentire le ulteriori domande e di dare poi un ' unica risposta . 
+Ad ogni modo , il suo appello a favore delle regioni costituzionali non cade nel vuoto . 
+Non molto tempo fa , nella mia precedente vita politica , ero ministro del governo di una delle regioni costituzionali . 
+Perciò nutro grande simpatia per queste entità . 
+Lei ha ascoltato con attenzione il nostro Primo ministro ; pertanto pu. e adesso parlo a titolo personale e a nome del Belgi. essere certo che faremo del nostro meglio per affrontare tale questione , ma ci sono altri quattordici Stati membri ; pertanto sarà importante che le regioni costituzionali elaborino una strategia comune . 
+Signor Presidente , signora Presidente in carica del Consiglio , questa mattina abbiamo ascoltato il Primo ministro belga . 
+Concordo sulle linee fondamentali del suo discorso chiaro ed intelligente . Spero che in vista del Consiglio di Laeken la sua azione contribuisca a farci superare il fallimento irreversibile della Conferenza di Nizza . 
+Tuttavia , devo dire che in tale discorso , come pure nella risposta fornita alle nostre domande , di cui sono grato al Consiglio , ho notato la mancanza di un riferimento esplicito al riconoscimento politico della diversità nazionale e culturale che , al di là degli Stati , costituisce un elemento fondamentale del carattere europeo . 
+All ' interno di tale diversità , le nazioni senza Stato che noi rappresentiamo possiedono ugualmente radici storiche e linguistiche , come pure dimensioni demografiche ed economiche , equiparabili a quelle degli Stati membri . 
+Vogliamo che la nostra realtà politica , civica e democratica e le competenze esecutive , legislative e giudiziarie che ci distinguono siano riconosciute attraverso la partecipazione al Consiglio europeo , allo stesso modo in cui riconosciamo che debbano partecipare gli Stati federati , i Länder , le regioni costituzionali con natura diversa ma competenze simili . 
+Vogliamo che tale realtà sia incorporata nella Dichiarazione di Laeken . 
+Vogliamo che tali realtà siano incluse nella futura costituzione . 
+In ogni caso , pretendiamo che i nostri governi e i nostri parlamenti siano presenti alla convenzione che elaborerà le proposte per la costituzione dell ' Unione europea . 
+Il nostro Primo ministro e Presidente in carica del Consiglio non poteva , nel suo discorso , riprendere tutti gli aspetti della realtà dell ' Unione europea che gli stanno a cuore , ma posso dire all ' onorevole deputato che la salvaguardia , l ' approfondimento e lo sviluppo della diversità cultural. come del resto della diversità linguistic. sono da lei , da me e , credo , da tutti ritenuti valori assolutamente fondamentali . 
+Sicuramente questa volontà di tutelare la diversità culturale sarà espressa , con tutta probabilità , nel primo capitolo della Dichiarazione di Laeken , in cui si farà riferimento ai principi e ai valori comuni . 
+Posso quindi assicurarvi che la diversità culturale e l ' impegno da noi assunto in questo senso saranno senza alcun dubbio considerati principi base dell ' Unione europea , ai quali siamo profondamente legati . 
+La ringrazio , signor Presidente , per avermi dato la parola . 
+E ' la prima volta che ho la possibilità di esprimermi in quest ' Aula , poiché l ' Assemblea ha proceduto alla verifica dei poteri lunedì scorso . 
+Vorrei ricordare che subentro al deputato basco Gorka Knörr , che è stato eletto al parlamento basco lo scorso 13 maggio diventandone vicepresidente . 
+Signora Ministro , io sono catalano , catalano della regione del Rossiglione , in altre parole sono di origine francese , e mi sono presentato in una lista di coalizione nello Stato spagnolo , una coalizione basco - catalana . Questo è il motivo per cui io , catalano , succedo a Gorka Knörr , basco . 
+Come lei sa , signora Ministro , la Catalogna è molto più di una regione . 
+E ' una nazione , una nazione che ha sempre difeso con coraggio la libertà e che si è sempre preoccupata dei valori della solidarietà . 
+La Catalogna è una nazione profondamente filoeuropea che oggi ha difficoltà a trovare il proprio posto all ' interno dell ' Unione . 
+Non può accontentarsi del ruolo di scarso rilievo che le è stato concesso in seno al Comitato delle regioni , i cui poteri , come lei saprà , sono estremamente limitati . 
+Questo è il motivo per cui speravo e spero , anche perché conosco la situazione e la storia del suo paese , che la Presidenza belga possa portare avanti questo dossier , non soltanto per quanto riguarda la Catalogna , ma anche tutte le altre nazioni senza Stato . 
+Signor Presidente , prima di tutto vorrei anch ' io congratularmi con l ' onorevole Mayol per essere entrato a far parte dell ' Assemblea . 
+Posso parlare per esperienza . 
+Onorevole Mayol , vedrà che si tratta di un mandato assolutamente straordinario , che davvero merita di essere assunto . 
+Le auguro quindi anni fruttuosi , piacevoli e interessanti . 
+Senza dubbio dovrà lavorare molto , ma qualcosa mi dice che ciò non la intimorisce . 
+Ancora una volta le faccio tutte le mie congratulazioni ! 
+Per quanto riguarda la Catalogna , un po ' sicuramente la conosco . 
+Non parlo il catalano ma lo capisco , ed è già qualcosa . 
+Il problema a cui lei accenna è evidentemente ancora più complesso di quello delle regioni costituzionali all ' interno dei confini di un unico paese . 
+Lei parla di una nazione che è a cavallo , se mi consentite l ' espressione , di due paesi che tengono molto alla loro integrità territoriale . 
+Le lascio la responsabilità delle prospettive che lei stesso ha lasciato intravedere . 
+In compenso sono pienamente d ' accordo con lei quando sottolinea che i catalani amano la loro nazione , la loro lingua e la loro cultura , ma al tempo stesso sono profondamente europei ed estremamente aperti al mondo esterno . 
+Deve sapere che siamo perfettamente a conoscenza del fatto che il Presidente della Catalogna spagnola è stato uno dei primi a promuovere il movimento delle regioni costituzionali . 
+Per quanto lo conosc. e lo conosco ben. gli do fiducia : questo movimento sicuramente non si fermerà e verrà anzi portato avanti con abilità , dote di cui il Presidente Pujol e gli altri presidenti delle regioni autonome non mancano . 
+In questo senso , credo che il dibattito continuerà nella giusta direzione nei prossimi anni . 
+La Presidente in carica del Consiglio dimostra grande sensibilità per le questioni da noi sollevate , ma i suoi colleghi del Consiglio , in genere , non si esprimono sul concetto di sussidiarietà in modo tale da incontrare la nostra approvazione . 
+Questo è il motivo per cui un numero sempre maggiore di scozzesi ritiene che essere uno Stato membro sia molto meglio che essere una regione costituzionale . 
+Tuttavia , visto lo stato attuale delle cose , vorrei chiedere al Presidente in carica se è disposta a prendere in esame con i colleghi la singolarità della struttura del Comitato delle regioni che , invece di rappresentare le regioni proporzionalmente alla loro estensione , rappresenta gli Stati in base a un concetto di proporzionalità distorto . 
+All ' interno del Comitato delle regioni la Danimarca , che è già Stato membro , ha il doppio dei rappresentanti rispetto alla Scozia . 
+Perfino il Lussemburgo ne ha di più ! 
+Non ho una profonda conoscenza delle differenze esistenti tra le regioni del Lussemburgo , ma oserei dire che non sono così accentuate come quelle presenti tra le regioni della Scozia . 
+Consigli . ( EN ) Il dibattito si sta facendo sempre più complicato ad ogni intervento e lei capirà che non posso entrare in merito alla questione . 
+Tuttavia , ciò che so è che in seno al Comitato delle regioni i rappresentanti di comuni , città , province e regioni costituzionali hanno sempre più difficoltà a creare una piattaforma comune per svolgere la loro attività . 
+Il presidente del parlamento scozzese è un mio grandissimo e carissimo amico e , quindi , sono a conoscenza dei problemi a cui lei ha accennato . 
+Tuttavia , non posso fornire una risposta dettagliata alle sue domande così precise . 
+Ritengo che la sussidiarietà e il suo significato in termini pratici sia una questione di primaria importanza nell ' ambito di tutto il dibattito sul futuro dell ' Europa , non solo per quanto riguarda i diritti delle nazioni e delle regioni all ' interno degli Stati membri , ma anche per quanto attiene alla cittadinanza . 
+Io rappresento il Galles , che ha una nuova assemblea nazionale costituitasi solo due anni fa . 
+Si tratta di un organismo in fase di sviluppo che intende partecipare appieno al processo comunitario , intrattenere stretti legami con l ' Unione europea e contribuire a costruire l ' Europa del futuro . 
+Forse la signora Ministro sarà d ' accordo nell ' affermare che il coinvolgimento di questo tipo di governo a livello regionale è di fondamentale importanza per sviluppare un senso di cittadinanza e per avvicinare l ' Europa alle persone . Si tratta di un problema di cui tutti noi ci rendiamo conto nei nostri collegi elettorali . 
+Se ciò deve essere necessariamente fatto a livello europeo onde avvicinare l ' Europa alla gente , in che modo se ne terrà conto nell ' attività del Consiglio ? 
+Lei si renderà conto che questo è un vero e proprio dibattito . 
+Nella mia prima risposta ho detto tutto quello che potevo dire in qualità di Presidente in carica . 
+Il resto è solamente il mio personale punto di vista in qualità di membro del governo belga . 
+Spero che farà questa distinzione , soprattutto perché adesso si tratta di un dibattito più spontaneo , cosa che apprezzo molto . 
+Ritengo che la sussidiarietà sia un concetto molto importante ma anche molto complicato , in quanto non è perfettamente nitido . 
+Viene definito più precisamente di prima nel protocollo allegato al Trattato di Amsterdam ed è perfettamente possibile farvi ricorso . 
+Le forme di governo locali e intermedie sono fondamentali per colmare il divario tra cittadini e autorità . 
+Gli organismi a questo livello ricoprono un ruolo molto importante . 
+Alla luce dei recenti sviluppi , ad esempio in Danimarca e in Irlanda , vi è stata una maggiore presa di coscienza in questo senso e se ne terrà meglio conto in futuro rispetto a quanto , forse , non lo si sia fatto in passato . 
+L ' allegato IV del Trattato di Nizza contiene una dichiarazione che sollecita a un dibattito più ampio e approfondito sullo sviluppo futuro dell ' Unione . 
+Riconosce inoltre , cosa assai importante , la necessità di migliorare e sorvegliare la legittimità democratica e la trasparenza dell ' Unione e delle sue Istituzioni . 
+Nel dicembre 2001 la Presidenza belga si concluderà con la Dichiarazione di Laeken che fornirà un contributo a tale dibattito . 
+La questione è : la Dichiarazione di Laeken riconoscerà la necessità di una riforma più radicale ai fini dell ' ulteriore democratizzazione del processo decisionale europeo , con il conferimento del potere legislativo a due camere , il Parlamento europeo e un Consiglio riformato che assumerebbe talune competenze attualmente spettanti al Comitato delle regioni , con un conseguente deciso rafforzamento del ruolo delle regioni costituzionali ? 
+Devo limitare la risposta ricordandole che nella Dichiarazione di Laeken saranno contenute fondamentalmente domande appropriate e indicazioni sulla strada da seguire , piuttosto che formule e risposte definitive . 
+E ' auspicabile che essa sia solo l ' inizio dei preparativi più formali per la CIG . 
+Qualsiasi risposta alla sua domanda in questo momento sarebbe troppo prematura . 
+La sola cosa che posso dire è che siamo assolutamente consapevoli di tutti questi aspetti , e non siamo i soli ad esserlo . 
+Sarei veramente sorpresa se la questione non fosse sollevata sotto forma di domanda , ma non si aspetti ancora risposte precise , è veramente troppo presto . 
+Signor Presidente , signora Presidente in carica del Consiglio , i governi belga , austriaco e tedesco hanno allegato la dichiarazione n . 54 al Trattato di Amsterdam proprio per riferirsi all ' influenza delle questioni europee sugli organismi interni degli Stati , soprattutto sulle regioni con competenze esclusive . 
+Le Istituzioni europee , e soprattutto il Consiglio , prendono costantemente decisioni che , a volte , invadono le competenze delle regioni costituzionali o regioni con competenze legislative in Europa . 
+Si producono conflitti di competenza ed io vorrei chiedere l ' opinione del governo belga in merito alla possibilità che queste regioni con competenze legislative esclusive possano essere legittimate a presentare ricorsi alla Corte di giustizia delle Comunità europee . 
+Chiedo inoltre la sua opinione riguardo alla capacità della Corte di giustizia delle Comunità europee a conoscere di tali conflitti di competenza tra l ' Unione e le regioni costituzionali . 
+Onorevole parlamentare , ecco la risposta che posso darle in merito al modo in cui organizziamo la nostra attività : sicuramente lei sarà a conoscenza , proprio in virtù del protocollo al quale ha fatto riferimento , del fatto che alcuni Consigli dei ministri saranno presieduti da ministri di governi regionali e / o comunitari . 
+E ' ciò che si è verificato per il Consiglio informale " turismo " , tenutosi a Bruges lo scorso fine settimana , e ciò che si verificherà per il Consiglio " istruzione " , il Consiglio " ricerca scientifica " e alcuni altri ancora . 
+Come può vedere , ecco il modo in cui risolviamo questo tipo di problemi . 
+Per quanto riguarda un eventuale ricorso alla Corte di giustizia , so che si tratta di un ' istanza delle regioni costituzionali . 
+Talvolta ho la presunzione di chiedermi se esse siano ben consapevoli della portata e delle possibili conseguenze di una risposta positiva alle loro richieste . 
+Come lei stesso ha suggerito , se le regioni avessero direttamente accesso alla Corte di giustizia in caso di controversie in materia di competenza , quasi inevitabilmente la Corte sarebbe , prima o poi , chiamata a pronunciarsi sull ' ordinamento costituzionale interno degli stessi Stati membri . 
+Le do quindi uno spunto di riflessione . 
+Mi è impossibile rispondere alla sua domanda . 
+La questione è molto delicata , molto controversa . 
+Una risposta sarebbe del tutto prematura . 
+Ma , se mi consente , le chiederò di riflettere sul punto che ho appena sollevato . 
+Signor Presidente , vorrei rendere testimonianza di fronte alla Presidenza in carica del Consiglio del fatto che non in tutti gli Stati si permette ai governi delle regioni costituzionali di partecipare alle riunioni del Consiglio dei ministri ; ci si viene quindi a trovare in una situazione di vulnerabilità , come succede nel caso della comunità autonoma dei Paesi baschi . 
+Credo che per l ' Europa questo sia un vero problema , che è nostro dovere affrontare . 
+Non possiamo prendere decisioni in seno ad organismi europei su competenze attribuite dalla legge a regioni che non sono presenti per difenderle . 
+Come osservazione finale , onorevole deputato , vorrei semplicemente dire che si tratta di un regolamento che abbiamo messo a punto in Belgio tra i governi belgi e gli altri governi , e sottolineo governi sempre al plurale . 
+Mi permetta di rimandarla ai suoi governi , perché è proprio in quella sede , credo , che prima di tutto si deve risolvere questo genere di questione . 
+Signor Presidente , io non rappresento alcuna regione ; come sa , rappresento i pensionati d ' Italia e d ' Europa . 
+Prima di porre la domanda , però , vorrei esprimere la mia ammirazione al Presidente del Consiglio per la sua disponibilità a rispondere così esaurientemente a tutte le domande che le sono state poste . 
+Io ho seguito la Presidenza svedese e sono rimasto congelato dalla freddezza svedese nel rispondere quasi sempre : non è mia competenza . 
+Sono pertanto veramente soddisfatto , dopo aver ascoltato il Presidente del Belgio questa mattina , per la sua apertura ai pensionati ; e sono veramente soddisfatto di aver visto l ' impegno concreto della Presidenza belga a rispondere ad ogni domanda , anche se particolarmente difficile . 
+Ho terminato il tempo a mia disposizione e quindi non posso presentare la domanda complementare : lo farò in un ' altra occasione . 
+Signor Presidente , ho ricordato al Presidente in carica del Consiglio che vogliamo il riconoscimento della nostra realtà nazionale e delle nostre competenze costituzionali . 
+Vorrei ribadire che tale realtà fa parte della diversità europea . Non si tratta semplicemente di un titolo da conservare , ma piuttosto di una forte realtà politica , quella del mio paese , la Galizia , che deve essere pienamente riconosciuta , al pari di quella degli Stati dell ' Unione dell ' Europa senza frontiere che tutti condividiamo . 
+interrogazione n . 11, dell ' on ( H - 0545 / 01 ) : 
+Oggetto : Accesso ai documenti del Consiglio da parte del pubblicoOra che il Consiglio ha varato la proposta della Commissione , quali sono il calendario e le procedure affinché il pubblico inizi ad avere accesso ai documenti del Consiglio ? 
+Alla domanda dell ' onorevole Newton Dunn rispondo quanto segue . 
+Primo : il Consiglio è soddisfatto dei progressi registrati nel campo della trasparenza dall ' entrata in vigore del Trattato di Amsterdam , in particolare dell ' approvazione del regolamento ( CE ) n . 1049 / 2001 relativo all ' accesso del pubblico ai documenti del Parlamento europeo , del Consiglio e della Commissione . 
+Il Consiglio richiama l ' attenzione dell ' onorevole deputato sul fatto che , conformemente all ' articolo 19, il regolamento ( CE ) n . 1049 / 2001 del Parlamento europeo e del Consiglio , del 30 maggio 2001, relativo all ' accesso del pubblico ai documenti del Parlamento europeo , del Consiglio e della Commissione entrerà in vigore il 3 dicembre 2001 . 
+Fino a tale data le richieste del pubblico di accedere a documenti del Consiglio verranno trattate , come in precedenza , sulla base della decisione 93 / 731 / CE del Consiglio relativa all ' accesso del pubblico ai documenti del Consiglio . 
+Pertanto ciascuna delle tre Istituzioni interessate dovrà adottare i provvedimenti necessari per assicurare che il nuovo regolamento venga applicato a decorrere dal 3 dicembre 2001 . 
+Ai sensi dell ' articolo 15, esse devono creare congiuntamente un comitato interistituzionale che valuti quale sia la prassi migliore , esamini eventuali controversie e discuta i futuri sviluppi dell ' accesso del pubblico ai documenti . 
+Per quanto concerne il Consiglio , in questo momento gli organi competenti stanno studiano quali misure sia opportuno adottare per dare piena attuazione ai diritti di cui i cittadini fruiscono conformemente al nuovo regolamento . 
+Posso aggiungere , onorevole deputato , che la Presidenza nutre l ' ambizione di poter concludere , ove possibile , tutti gli accordi prima dell ' entrata in vigore del regolamento , ma non possiamo farlo da soli . Mi auguro di trovare l ' appoggio necessario a tal fine . 
+Ritengo che per la maggioranza dei membri dell ' Assemblea un ritardo di sei mesi sia motivo di grande insoddisfazione , ma fa piacere avere buone notizie . 
+Ci può indicare quali saranno i possibili ostacoli ? 
+C ' è qualcuno che pone un veto alla data del 3 dicembre o ci può garantire che la data sarà veramente rispettata ? 
+Non ci venga a dire alla fine della Presidenza belga : " Mi dispiace tanto , la data è slittata , qualcuno si è messo in mezzo " ! 
+Può garantirci che la data sarà rispettata o c ' è qualcuno che pone un veto ? 
+Temo di non poterle dare alcuna garanzia in questo senso , sarei una maga se potessi . 
+Posso solo dirle che faremo del nostro meglio . 
+Riprenderemo da dove il lavoro è stato interrotto per fare in modo che la direttiva entri in vigore alla data stabilita , il 3 dicembre 2001 . 
+interrogazione n . 12, dell ' on ( H - 0550 / 01 ) : 
+Oggetto : Parità di trattamento in materia di aiuti all ' adesione per la TurchiaIn occasione del Consiglio europeo di Helsinki del dicembre 1999 è stato deciso di considerare la Turchia come un paese candidato alla stessa stregua degli altri dodici paesi candidati . 
+Per tale motivo è stato promesso alla Turchia che avrebbe usufruito di aiuti nell ' arco dei talvolta lunghi e laboriosi negoziati di adesione . 
+Nel novero delle forme di aiuto a tutti i paesi candidati figurano fondi come ISPA e SAPARD di cui la Turchia non ha potuto avvalersi . 
+A questo paese sono stati negati gli aiuti promessi ad Helsinki con il pretesto che l ' UE non dispone delle risorse economiche necessarie . 
+Ciò premesso , non è forse giunto il momento che il Consiglio provveda a far sì che siano poste in atto le decisioni adottate al Vertice di Helsinki sulla parità di trattamento della Turchia con gli altri dodici paesi candidati consentendo , pertanto , a questo paese di ricevere gli aiuti promessi tanto più che la Commissione ha di recente deciso di rimborsare agli Stati membri 11,6 miliardi di euro ? 
+Il Consiglio europeo di Helsinki , avendo deciso di concedere alla Turchia lo status di paese candidato , ha chiesto alla Commissione di presentare un quadro unico per l ' assistenza finanziaria dell ' Unione europea destinata a questo paese nel periodo di preadesione . 
+La Commissione ha presentato la proposta al Consiglio lo scorso 27 aprile . 
+Il principale obiettivo della proposta relativa al quadro finanziario unico è quello di garantire lo stanziamento di aiuti in base alle priorità stabilite dal partenariato per l ' adesione e di raggruppare gli strumenti in essere in un unico strumento , onde ottimizzarne l ' efficacia . 
+Il Consiglio europeo di Göteborg , in cui si è affermato molto chiaramente che il partenariato per l ' adesione è il fulcro della strategia di preadesione , ha invitato il Consiglio ad adottare il quadro finanziario unico entro la fine del 2001 . 
+Il Consiglio ha avviato la procedura di consultazione del Parlamento europeo e lo ha esortato a esprimere un parere il più presto possibile . 
+Per quanto riguarda i fondi nel quadro dei programmi ISPA e SAPARD , ai quali fa riferimento l ' onorevole deputato , si tratta di aiuti strutturali e di aiuti a favore dello sviluppo agricolo che vengono concessi esclusivamente ai paesi candidati dell ' Europa centrale e orientale per andare incontro alle loro esigenze particolari in quanto economie in fase di transizione . 
+Ciò non significa però , onorevoli deputati , che la Turchia non abbia ricevuto gli aiuti promessi , anzi . 
+Nel 2000 e 2001 gli aiuti finanziari di preadesione per la Turchia sono raddoppiati rispetto agli importi medi assegnati annualmente nel periodo 1996 - 1999 . 
+Tenuto conto delle consuete procedure di bilancio , si dovrebbe mirare a mantenere tali aiuti per la restante parte delle attuali prospettive finanziarie , ossia fino al 2006, come previsto per tutti i paesi candidati . 
+Inoltre ricordo che il bilancio generale dell ' Unione europea contiene il nuovo capitolo " Strategia di preadesione per la Turchia " , in cui vengono aumentate le risorse destinate a tale fine . 
+Tale linea comprende in un unico quadro diversi fondi di bilancio con i quali si possono sviluppare con maggiore efficienza i programmi di aiuto alla Turchia . 
+Come noto , il Parlamento europeo ha approvato questo approccio nel parere sul regolamento quadro a favore della Turchia . 
+Ringrazio la Presidenza belga per la risposta e , al contempo , porgo il benvenuto al Belgio alla Presidenza di turno del Consiglio dell ' Unione europea che fa seguito alla Presidenza svedese . 
+Molti di noi , fra cui il sottoscritto , possono considerare il Belgio quasi come il proprio secondo paese , dal momento che vi risiediamo nei giorni feriali e siamo in patria , almeno nel mio caso , solo nei festivi . 
+Vorrei riprendere il ragionamento sulla Turchia . 
+E ' evidente che la controparte turca non si capacita della distinzione operata fra i paesi dell ' Europa centrale e orientale , inclusi nei fondi ISPA e SAPARD , e la Turchia stessa , che ne è esclusa . 
+Insomma , nei confronti della Turchia le norme sono chiare sì o no ? 
+Anche i turchi iniziano ad avere l ' impressione di non essere trattati in modo equo e corretto . 
+Mi permetto di consigliarvi di chiarire perché , per questi fondi , la Turchia non sia stata presa in considerazione . 
+Vorrei ringraziare l ' onorevole deputato per le sue gentili parole ed esprimere il mio apprezzamento per la Presidenza svedese con la quale ho lavorato in modo estremamente piacevole e produttivo negli ultimi sei mesi . 
+interrogazione n . 13, della onorevole ( H - 0553 / 01 ) : 
+Oggetto : Presidenza belga e donne in AfganistanIn considerazione delle condizioni subumane in cui oltre 11 milioni di donne sopravvivono in Afganistan , sarebbe il Consiglio disposto a promuovere , in collaborazione con le Nazioni Unite , la creazione di una Commissione internazionale sull ' Afganistan ? 
+Onorevole Izquierdo Rojo , siamo state colleghe in seno alla commissione istituzionale durante la precedente legislatura . 
+E ' quindi per me un grande piacere poter rispondere all ' interrogazione che lei ha saggiamente formulato . 
+Come precedentemente affermato in risposte a domande che vertevano sul medesimo argomento , il Consiglio condivide appieno le preoccupazioni della onorevole parlamentare per la disastrosa situazione in cui si trovano ampie fasce della popolazione afgana , e in modo particolare per la disastrosa situazione in cui versano donne e bambini . 
+In considerazione delle difficoltà presenti in Afganistan a livello politico e umanitario , soprattutto a causa dell ' atteggiamento negativo che i talibani continuano a mostrare sia verso l ' ONU sia verso le donne , il Consiglio non è pienamente convinto che la creazione di una commissione internazionale sull ' Afganistan , in collaborazione con le Nazioni Unite , possa veramente migliorare la situazione delle donne nel paese . 
+Tuttavia esso analizzerà con attenzione i vantaggi e gli inconvenienti che potrebbero derivare dall ' istituzione di tale commissione , dal momento che la questione sarà affrontata in seno all ' ONU e perché intende garantire un ' attenta analisi delle modalità di tale proposta . 
+Nel frattempo , il Consiglio continuerà a portare avanti le iniziative da esso promosse per aiutare le donne afgane . 
+A questo proposito , si rinvia la onorevole parlamentare anche alle risposte già date a interrogazioni precedenti sullo stesso tema . Si tratta più precisamente delle interrogazioni H - 0032 / 01, H - 0052 / 01, H - 0170 / 01, H - 0088 / 01 e , più recentemente , dell ' interrogazione H - 0481 / 01 . 
+Signora Presidente in carica del Consiglio , la ringrazio per la risposta e , come domanda complementare , vorrei sapere se approva il fatto che vengano esercitate pressioni internazionali sia contro il regime dei Talibani che contro gli Stati che lo sostengono , e , per la precisione , contro l ' Arabia Saudita , il Pakistan e gli Emirati Arabi Uniti . 
+E ' disposta a lavorare durante la Presidenza belga affinché si realizzino davvero progressi in merito a questa situazione disastrosa ? 
+La mia risposta riguardava ovviamente la sua precisa domanda relativa alla commissione internazionale . 
+Per quanto attiene alle pressioni internazionali , alle sanzioni e agli embarghi decisi nei confronti dell ' Afganistan , è evidente che il Consiglio ritiene sia necessario mantenerli e rafforzarli per quanto possibile , in quanto si tratta di un regime assolutamente disumano . 
+interrogazione n . 14, dell ' on ( H - 0555 / 01 ) : 
+Oggetto : Partecipazione delle autorità competenti alla discussione sulla regolamentazione del settore della medicinaIn considerazione dell ' apparente scioglimento del comitato consultivo per la formazione medica , può il Consiglio far sapere se intende prendere delle misure urgenti al fine di garantire che i cambiamenti programmati o in corso di effettuazione concernenti la regolamentazione del settore della medicina negli Stati membri , comprese le questioni quali la libera circolazione dei medici e la formazione , siano aperti ai contributi ed ai commenti delle autorità competenti , compreso il Medical Council of Ireland ? 
+Come lei ha accennato , si è aperto un dibattito sul ruolo di alcuni comitati consultivi . 
+Il 19 luglio 1999 la Commissione ha presentato al Consiglio una proposta di decisione volta a sciogliere il comitato consultivo per la formazione medica , nonché altri comitati consultivi costituiti in conformità delle direttive settoriali per i medici , i dentisti , i medici veterinari , i farmacisti , gli infermieri generici e le ostetriche . 
+L ' intento della Commissione era semplificare il sistema dei comitati . 
+Il Consiglio ha già tenuto alcuni dibattiti in merito alla proposta ma non è ancora giunto a una conclusione . 
+Oltre alla valutazione della suddetta proposta , il Consiglio non prevede altre misure simili a quelle contenute nell ' interrogazione . 
+Vorrei ringraziare il Presidente in carica del Consiglio per la sua disponibilità a continuare oltre il tempo previsto e ad accettare altre domande . 
+Le auguro ogni bene nello svolgimento del suo mandato e spero che il suo rapporto con l ' Assemblea sarà sempre aperto e sincero come lo è stato questo pomeriggio . 
+Passo ora alla mia domanda complementare : i consigli medici e la garanzia delle norme minime che disciplinano la formazione e la qualificazione dei medici e del personale che esercita la professione medica destano molta preoccupazione negli Stati membri e in modo particolare nel mio paese , l ' Irlanda . 
+Con lo sviluppo del processo di ampliamento dell ' Unione europea che prevede l ' adesione di nuovi Stati membri e con l ' estensione della libertà di circolazione a paesi che non rientrano fra i paesi candidati all ' adesione per porre rimedio alla carenza di personale medico nell ' Unione , riteniamo che gli esperti del settore provenienti dagli attuali Stati membri debbano poter contribuire al processo di consultazione . 
+Ho preso nota delle sue osservazioni . 
+Mi dispiace , ma ora devo proprio andare altrimenti perderò l ' aereo . Comunque le trasmetterò al collega responsabile in materia . 
+Con questo si conclude il Tempo delle interrogazioni al Consiglio . 
+( La seduta , sospesa alle 19.40, riprende alle 21.00 ) . 
+Assistenza macrofinanziaria a favore della Iugoslavia 
+Signor Presidente , signor Commissario , onorevoli deputati , a nome della commissione per gli affari esteri vorrei raccomandare all ' Assemblea di accogliere la proposta di decisione del Consiglio a favore della Repubblica federale di Iugoslavia , quale prevista nella proposta originaria della Commissione . 
+Sappiamo che in seno al Consiglio sono in corso consultazioni in materia di bilancio che presumibilmente sfoceranno in restrizioni , ma riteniamo giusto , nell ' attuale situazione politica , che gli importi vengano approvati come previsto nella proposta originaria . 
+Il motivo è chiaro : dopo aver ribadito così a lungo che l ' aiuto dell ' Unione europea sarebbe stato messo a disposizione non appena la popolazione della Serbia e del Montenegro si fosse sbarazzata della dittatura , dovremmo mantenere la parola data . 
+Proprio in seguito agli eventi degli ultimi giorni , che hanno portato all ' estradizione ed alla consegna di Milosevic al Tribunale internazionale dell ' Aia , sembra importante che noi , in quanto Parlamento europeo ed Unione europea , per i suddetti motivi intrinseci chiariamo che i fondi verranno erogati , in modo che anche gli abitanti di un paese come questo si rendano conto che vale la pena di impegnarsi per la tutela della democrazia e dei diritti dell ' uomo . 
+Pertanto , signor Commissario , si dovrebbero creare i presupposti perché ciò avvenga al più presto , e so che questa è la sua intenzione . 
+L ' assistenza macrofinanziaria in esame non è un ' assistenza collegata direttamente ad un programma , bensì una prima scintilla che dovrebbe contribuire ad avviare il processo . 
+A questo riguardo , occorre anche osservare che l ' aiuto non va subordinato a condizioni troppo complesse . 
+Abbiamo proposto alcuni emendamenti . 
+Tuttavia , signor Commissario , ritengo che tali emendamenti , che richiedono controlli , che sollecitano la partecipazione di altri donatori , senza però imporre requisiti in merito , rappresentino punti che non comportano difficoltà o ritardi , bensì contribuiscono alla chiarezza , rafforzano le possibilità di controllo e al contempo chiariscono che vogliamo un aiuto celere . 
+Lei sa che il Parlamento non ha creato difficoltà allorché si è dovuta richiedere , anche in questa sede , la procedura d ' urgenza per questo settore , e che ci siamo dichiarati disponibili , interagendo con le altre commissioni competenti , ossia la commissione per i bilanci e la commissione per l ' industria , il commercio estero , la ricerca e l ' energia , ad adottare al più presto le misure del caso , secondo la procedura . 
+
+Mi sia consentita ancora un ' osservazione generale di carattere politico : negli scorsi anni si è verificato regolarmente che elaborassimo complesse teorie sugli sviluppi nell ' ex Iugoslavia , ma che il nostro intervento , nell ' ambito della prevenzione e della gestione civile delle crisi o anche con il ricorso alla minaccia ed ai mezzi militari , fosse per lo più tardivo . 
+La nostra è sempre stata una politica del " troppo poco , troppo tardi " , che ci ha anche portati alla situazione che riscontriamo attualmente in Macedonia . 
+Questo approccio sbagliato , che in definitiva ci è costato ancora più vittime e sforzi , non essendo intervenuti tempestivamente , e non avendo potuto concretizzare , per via della totale frammentazione delle competenze della comunità internazionale nella regione , l ' autentica strategia della prevenzione insita nella gestione civile della crisi , si è tradotto in un flagrante fallimento politico in numerosi ambiti . 
+Con lo stanziamento dei fondi in questione , vorremmo ribadire ulteriormente che tutto ciò non dipende da noi e che noi , in quanto Parlamento europeo , siamo disposti a fare tutto il possibile ed al più presto , ma che nel contempo esortiamo Commissione e Consiglio ad adottare in modo diverso , in futuro , le necessarie decisioni politiche . 
+Ricordo bene come sono stato insultato , due mesi fa , allorché ho menzionato l ' eventualità di una guerra in Macedonia , il che è stato ritenuto irresponsabile , perché si vogliono disconoscere i fatti , fintantoché è possibile , perché si è troppo vigliacchi per dire la verità ai propri concittadini . 
+Dopo ne portano tutti le conseguenze , e vengono perse altre vite umane . 
+Per questo motivo vorremmo esortarvi ancora una volta a prestare rapidamente l ' aiuto affinché ripristinino in questa regione la pace , la democrazia e i diritti dell ' uomo 
+Effettivamente , quella di mettere Milosevic nelle mani del Tribunale internazionale è stata una mossa fuori dal comune da parte del governo serbo . 
+Per compierla c ' è voluto molto coraggio . 
+Già nel corso di un precedente tentativo di arrestare Milosevic , quando ancora abitava nella sua residenza , è emerso che esercito e polizia si erano schierati su fronti contrapposti . 
+Pertanto ritengo che dobbiamo dimostrare rispetto per il comportamento del Primo ministro Djindjic , anche se dietro ad esso si può celare un certo opportunismo . 
+Sono lieto che abbiamo convenuto che l ' assistenza finanziaria sia condizionata alla quantità di passi compiuti verso lo stato di diritto , compresa la collaborazione con il Tribunale . 
+Penso che a tale proposito il Parlamento sia stato più lungimirante del Consiglio , che non voleva subordinarla ad alcuna condizione . 
+Noi abbiamo assunto lo stesso punto di vista degli Stati Uniti e credo che questa sia stata di per sé una posizione giusta . 
+Adesso Milosevic è stato estradato dalla Serbia e dalla Iugoslavia . 
+Oserei dire che non ci resta che attendere che la comunità internazionale collabori con il Tribunale internazionale . 
+Tocca adesso alla SFOR , perché finora è venuta a mancare la cooperazione tra la SFOR e le forze politiche che stanno dietro ad essa . 
+E ' una situazione vergognosa e penosa . 
+Non abbiamo argomenti per lamentarci se la SFOR non fa quello che deve fare nell ' area di sua competenza , ossia se non arresta Karadzic e Mladic . 
+Mi auguro che l ' appello del Parlamento europeo giunga al Consiglio e a tutti gli altri che nel quadro dell ' ONU sono corresponsabili dell ' azione della SFOR , dalla quale ci attendiamo , giustamente , molto . 
+Da poco abbiamo appreso grazie all ' onorevole Korakas che in Europa in questo ambito non siamo tutti dello stesso parere . 
+E ' emerso che la grande maggioranza del parlamento greco ha sottoscritto una dichiarazione in cui si afferma che si deplora il fatto che Milosevic sia stato consegnato al Tribunale dell ' Aia . 
+Signor Presidente , c ' è molto da fare per ricreare la comunità di valori con quel parlamento ! 
+Questo conferma che la nostra Unione contiene molte differenze al suo interno . 
+Signor Presidente , signor Commissario , onorevoli colleghi , appoggio di buon grado la richiesta dell ' onorevole Brok relativa alla concessione di assistenza finanziaria a favore della Iugoslavia e ritengo anche assolutamente necessario , alla luce dell ' elevato indebitamento di questo paese , definire un limite più elevato per i contributi a fondo perduto , superiore alla media rispetto alla prassi comune . 
+Al riguardo do pieno appoggio alla Commissione . 
+L ' assistenza è subordinata , come è stato menzionato , alla cooperazione con L ' Aia . 
+Il Parlamento , così come il nostro gruppo , è sempre stato di quest ' opinione . 
+Senza dubbio si è raggiunto un obiettivo essenziale con l ' estradizione di Milosevic , questo è fuori discussione . 
+E ' un passo avanti . 
+Anche gli sviluppi positivi possono però a volte lasciare l ' amaro in bocca . 
+In primo luogo , è fin troppo evidente che Milosevic è stato scambiato in cambio del denaro della Conferenza dei donatori e non tanto in cambio di assistenza diretta da parte dell ' Unione europea . 
+Non è stato uno scenario promettente , e ne sono responsabili due parti , quelli che l ' hanno voluto , ma anche il governo di Belgrado dimostratosi inizialmente troppo titubante . 
+In secondo luogo , ritengo interessante che abbiano fatto particolari pressioni gli Stati Uniti , che tuttavia continuano a disconoscere che i tribunali internazionali sono competenti anche per i loro cittadini . 
+Ciò è degno di nota e l ' Unione europea dovrebbe insistere affinché gli Stati Uniti riconoscano finalmente anche i tribunali internazionali e la loro competenza nei confronti di cittadini americani . 
+In terzo luogo , la discussione sulla storia non è esaurita . 
+Molti responsabili , ad esempio quelli della distruzione di Vukovar , sono ancora liberi . 
+Tale discussione deve continuare in Iugoslavia . 
+In quarto luogo , è probabile che l ' equilibrio faticosamente trovato in Iugoslavia sia messo a dura prova o venga forse addirittura distrutto . 
+Desidero fare un ' osservazione sul futuro di tale paese . 
+Nel corso dei mesi e degli anni passati noi tutti spesso abbiamo visto che l ' opinione pubblica era sfavorevole alla Iugoslavia in quanto tale , ma questo Stato deve svolgere un ruolo rilevante nella costruzione della regione e , ringraziando il cielo , esso è di nuovo guidato da leader responsabili e ragionevoli che possono anche indirizzare la Iugoslavia sulla buona strada . 
+Tuttavia si deve anche aiutare con pazienza la Iugoslavia ad adempiere i suoi compiti nella regione . 
+E ' in gioco il coordinamento di tre punti che il gruppo parlamentare cui appartengo ed io reputiamo di fondamentale rilevanza . 
+Innanzitutto , la prosecuzione della discussione interna sugli eventi accaduti in Iugoslavia negli ultimi decenni . 
+In secondo luogo , la riconciliazione con i paesi confinanti . 
+Proprio a tale riguardo sarebbe anche utile l ' estradizione di qualche criminale di guerra . 
+In terzo luogo , ed è l ' ultimo punto che affronto , senza dubbio dobbiamo promuovere la ricostruzione economica . 
+Se riuscissimo ad unire questi tre elementi , tra cinque - dieci anni potremmo anche guardare ad un fruttuoso passato della politica dell ' Unione europea in Iugoslavia . 
+Signor Presidente , signor Commissario , i rapporti finanziari tra Unione europea e Iugoslavia hanno un carattere particolare . 
+Per molto tempo non vi è stata alcuna relazione . 
+Dall ' ottobre 2000 l ' Unione ha erogato celermente 200 milioni per gli aiuti di emergenza alla Iugoslavia , dando un esempio di come anche l ' Unione possa operare con rapidità ed efficienza . 
+La scorsa settimana , in occasione della Conferenza dei donatori , l ' Unione si è mostrata dal suo lato migliore . 
+Adesso stiamo discutendo in questa sede di un ' assistenza macrofinanziaria per un importo di 300 milioni destinata a coprire i deficit di bilancio , con una notevole donazione di 120 milioni . 
+A mio giudizio , gli aiuti in esame chiudono un determinato periodo , il passaggio dall ' autocrazia alla democrazia . 
+E ' giusto ed opportuno fornire tale assistenza , ma ritengo che ciò evidenzi che gli aiuti assegnati in questo modo hanno un carattere particolare . 
+E ' inoltre corretto sottolineare che vigono condizioni speciali ; ne citerò due . 
+Come ha già ricordato l ' onorevole Brok , per quanto riguarda l ' approvazione e la destinazione di questi fondi non vengono applicate condizioni particolari ; tuttavia vi dev ' essere una valida cooperazione con il comitato politico e di sicurezza , perché gli aiuti dell ' Unione europea alla Iugoslavia devono venir distribuiti in maniera coerente sotto il profilo politico . 
+Ciò vale anche per la valutazione di tale sostegno . 
+Dopo aver erogato l ' assistenza macrofinanziaria , si dovrà valutare attentamente , soprattutto a livello politico , se questa forma di aiuti sia necessaria anche in futuro . 
+Il mio gruppo conclude che è importante che l ' Unione europea sia rapida , efficiente e generosa quando è opportuno e indispensabile . 
+Erogare con rapidità ed efficienza fondi , senza aver paura di essere i primi , senza paura di dover dipendere dagli altri donatori . L ' Unione europea dev ' essere in grado di agire con celerità ed efficienza , a prescindere dagli altri donatori . 
+Dobbiamo però anche essere capaci di cambiare strategia con rapidità ed efficienza . 
+Perciò sostengo questa forma di aiuti nella speranza che forse si tratti dell ' ultima volta in cui si assegnerà questa forma di assistenza alla Iugoslavia . 
+Signor Presidente , per quanto riguarda questo argomento posso intervenire solo a nome della maggioranza del mio gruppo . 
+Approviamo la proposta della Commissione e la relazione . 
+Non ritengo necessario ripetere alcune osservazioni critiche sollevate dal collega Swoboda , che condivido . 
+Quanto affermato dall ' onorevole Brok in merito alla necessità di una politica di pace preventiva e di una gestione civile delle crisi mi induce a mettere da parte i miei appunti . 
+Naturalmente ritengo giusto che si debba agire con molta più rapidità e in modo mirato . 
+Tuttavia credo che una simile politica comporti anche ben altri aspetti che presentano lacune . 
+Onorevole relatore , nell ' emendamento n . 2 lei propone , secondo me con piena ragione , che il sostegno finanziario alla Repubblica federale di Iugoslavia debba essere subordinato ad una sua evoluzione verso lo Stato di diritto e alla cooperazione con il Tribunale internazionale per i crimini guerra dell ' Aia . 
+Se tuttavia allo stesso tempo viene addirittura imposta una violazione dei principi dello Stato di diritto , soprattutto da parte degli Stati Uniti , ma in tutta evidenza anche del Cancelliere tedesco , questa politica a lungo termine discredita in maniera irreparabile lo sviluppo della democrazia e dello Stato di diritto . 
+Riscontro simili contraddizioni anche in altre regioni . 
+Si è parlato della Macedonia . 
+Nel corso di vari mesi abbiamo assistito ad un corteggiamento nei confronti dell ' UCK e non invece ad un suo disarmo . 
+In questo modo la KFOR è divenuta corresponsabile degli sviluppi in Macedonia e di nuovi conflitti . 
+Abbiamo attuato in Kosovo una politica intesa ad impedire le epurazioni etniche , e oggi ne avvengono altre assolutamente inaccettabili in conseguenza della guerra condotta dalla NATO . 
+Credo che una politica di sicurezza preventiva e duratura non sia compatibile con questa situazione . 
+A mio avviso è tempo di abbandonare una politica che argina i conflitti e attenua i danni che essa stessa ha contribuito a provocare . 
+E ' giunto il momento non solo di chiedere ed esigere il rispetto della democrazia e dello Stato di diritto e la tutela delle minoranze e dei diritti umani da parte degli avversari politici , ma di mettere in atto questi diritti fondamentali anche laddove sono d ' intralcio agli interessi di potere . 
+Ritengo che lo sviluppo soddisfacente in Iugoslavia abbia davvero condotto lontano , ma la politica della NATO e dell ' UE al riguardo deve ancora essere modificata . 
+Signor Presidente , si parla di assistenza ad un paese che due anni fa ha subito i terribili danni causati dai criminosi bombardamenti della NATO con la connivenza dell ' Unione europea . 
+In una nostra recente visita in Iugoslavia , abbiamo appreso da rappresentanti del parlamento serbo che i soli danni materiali ammonterebbero a 100 miliardi di dollari , senza calcolare le perdite umane e la distruzione dell ' ambiente naturale , non solo in Iugoslavia ma nell ' intera regione balcanica , a causa del lancio di decine di migliaia di bombe all ' uranio impoverito . 
+Oggi il Consiglio ci propone di concedere alla Iugoslavia un ' assistenza macrofinanziaria per un importo irrisorio di poche centinaia di milioni , che indubbiamente corrispondono ai trenta denari del tradimento dei vassalli di Belgrado che , in modo vergognoso e malgrado il parere contrario delle due camere parlamentari iugoslave e dell ' alta corte costituzionale , hanno consegnato l ' ex Presidente iugoslav. democraticamente eletto in quattro consultazioni elettoral. ad un tribunale costituito su mandato di USA e NATO per giudicare quanti si oppongano al nuovo ordine delle cose . 
+In sostanza , il crimine di Milosevic è di non aver piegato la testa di fronte alla NATO . 
+Altri personaggi , veri criminali come Tudjman , Izebekovic , eccetera , hanno piegato la testa e vengono considerati innocenti . 
+La Storia , signor Presidente , ci darà la risposta ; sono certo che definirà la decisione odierna come uno dei momenti più bui del Parlamento europeo . 
+Signor Presidente , onorevoli colleghi , la situazione sempre più instabile in cui si trova ciò che rimane della Repubblica di Iugoslavia , così come , va detto , l ' insieme dei Balcani , ci costringe a prolungare per quest ' anno e probabilmente ancora più a lungo gli aiuti che forniamo ai paesi della regione . 
+Ci obbliga inoltre , o piuttosto dovrebbe obbligarci , a guardare dritto in faccia la realtà del nostro fallimento e ad interrogarci sulle sue cause . 
+La causa è semplice . 
+L ' Unione europea ha solamente fatto finta di obbedire ad una logica di pace . 
+In realtà , non ha fatto altro che coprire con un discorso umanitario una vera e propria logica di guerra , una guerra che rispondeva agli interessi di diverse potenze e che mirava a distruggere la Iugoslavia , cosa che del resto è stata realizzata in pochi anni . 
+Tuttavia lo si può comprendere solo attraverso un ragionamento geopolitico . 
+Orbene , benché si tratti del solo mezzo per valutare la realtà dei rapporti di forza fra le nazioni , ossia l ' essenza stessa della diplomazia , noi ci ostiniamo a rifiutare l ' analisi geopolitica . 
+Eppure , essa ci mostrerebbe una verità che salta agli occhi , quella di tre potenze che perseguono interessi convergenti nei Balcani . 
+Innanzitutto la Germania , cui non è mai sfuggito il fatto che , dopo la prima come dopo la seconda guerra mondiale , la realtà iugoslava è stata creata in parte contro i suoi interessi , o quanto meno contro il suo espansionismo europeo ; una Germania che , dopo aver ottenuto la propria riunificazione nel 1990, ha ampiamente contribuito a eliminare l ' ostacolo serbo , suo antico nemico , per ritrovare i suoi alleati sloveni e croati , ovvero , sia detto incidentalmente , due preziosi Stati rivieraschi del Mediterraneo . 
+Analogamente , la Turchia ha facilmente ritrovato la connivenza albanese e il suo braccio armato , l ' UCK . 
+Spinta in certo qual modo da tutto il mondo musulmano , la Turchia ha riconquistato vecchie posizioni , che risalgono ad epoche remote , nell ' Europa balcanica , e l ' ha fatto , evidentemente , contro gli interessi dell ' Europa , ma nell ' interesse degli Stati Uniti che , come qualsiasi impero , conoscono molto bene il motto dividi et impera e che avevano ed hanno oggi interesse a riattizzare vecchi conflitti , risvegliando antiche dispute in quella che possiamo chiamare una grande Turchia , che si sta installando nei Balcani , a grave danno , lo si può capire , della Grecia . 
+In breve , l ' Europa ha agito contro i propri interessi e ciò , a mio giudizio , costituisce un ulteriore segno della sua incapacità a mettere in atto una diplomazia razionale . 
+Molte grazie . 
+Capisco il trasporto che suscita l ' argomento dei Balcani , e in particolare la Iugoslavia , tuttavia oggi il mio obiettivo è assai più modesto . 
+E ' davvero necessario reagire agli avvenimenti delle ultime settimane come Comunità europea , offrendo un significativo segnale di appoggio alle autorità iugoslave e favorendo l ' impegno di stabilizzazione e di riforma economica intrapreso dal paese . 
+Ho apprezzato moltissimo gli sforzi compiuti dal Parlamento , in modo particolare dal presidente Brok . 
+L ' accelerazione del processo nelle ultime settimane è stata complessa e ha reso difficile alle diverse commissioni esprimere i loro punti di vista sulla proposta oggi in esame . 
+Come dicevo prima , il nostro obiettivo è limitato . 
+Importante , ma limitato , considerata la difficile situazione economica e finanziaria della Iugoslavia , che richiede un sostegno finanziario significativo da parte della comunità internazionale . 
+Le autorità iugoslave hanno avviato importanti piani di riforma economica , che sono stati molto ben accolti dalla comunità internazionale . 
+Avete citato l ' argomento fondamentale della Conferenza dei donatori . 
+E ' vero che in occasione di tale Conferenza si è appoggiato il programma di transizione e recupero economico elaborato in collaborazione con la Banca mondiale e anche in cooperazione con la Commissione europea . 
+La buona notizia , a cui ha fatto riferimento l ' onorevole Lange , consiste nella disponibilità di fondi sufficienti a finanziare tutto ciò che era in programma . 
+Si è riusciti addirittura a superare i 1 250 milioni di dollari previsti come aiuti per la Iugoslavia . 
+Qual è il contributo della Comunità europea in questo momento ? 
+Stiamo portando avanti la nostra cooperazione in due direzioni : la prima , denominata assistenza " CARDS " , prevede un aiuto comunitario di 230 milioni di euro per l ' anno 2001, destinati alla ricostruzione , alla democratizzazione e alla stabilizzazione della zona . 
+Oltre a questo , però , abbiamo proposto un ' assistenza macrofinanziaria di 300 milioni con un obiettivo molto concreto , vale a dire la riduzione del deficit della bilancia dei pagamenti . 
+Naturalmente , intendiamo prolungare il mandato che permette alla Iugoslavia di accedere ai prestiti della BEI . 
+A questo scopo , il 23 maggio la Comunità ha presentato la proposta cui ha fatto riferimento l ' onorevole Brok , nel tentativo di agire in tempi rapidi ottenendo l ' approvazione da parte del Consiglio dei ministri . 
+Come osservato dal relatore , in seno al Consiglio dei ministri si è prodotto un cambiamento , che ha portato a privilegiare i prestiti a scapito delle donazioni , cambiamento che la Commissione non condivide . 
+Desidero ringraziare apertamente l ' onorevole Brok per aver sostenuto la posizione della Commissione . 
+Tuttavia , stiamo parlando di una proposta di assistenza macrofinanziaria . 
+Ogni volta che abbiamo portato avanti questo tipo di aiuti , lo abbiamo fatto a determinate condizioni nell ' ambito dell ' Unione europea , e non credo vi siano validi motivi che possano giustificare un cambiamento di rotta . 
+Si tratta di aiuti complementari a quelli concessi da altre istituzioni internazionali e da donatori bilaterali , aiuti volti ad evitare le restrizioni finanziarie esterne cui è sottoposto quel paese . 
+Ciò significa che lavoriamo in collaborazione con il Fondo monetario e con la Banca mondiale . 
+Per il momento ci riferiamo solo alle restrizioni relative al 2001 e al prossimo anno , anche se non si può escludere che in seguito si estenderanno anche agli anni futuri . 
+Come ben sapete , gli aiuti di questo tipo sono condizionati da determinate esigenze di politica economica e vengono proposti nell ' ambito di un programma di stand by del Fondo monetario internazionale per un anno . 
+Come dicevo poc ' anzi , la nostra proposta prevedeva 120 milioni in donazione e 180 in prestito , quest ' ultimo per 15 anni a condizioni simili a quelle vigenti per gli altri paesi . 
+L ' accordo di base in sede di Consiglio ha ridotto la donazione a 75 milioni , lasciando il resto della somma per il prestito . 
+Considerata la situazione di grave indebitamento della Iugoslavia e le sue difficoltà , e tenendo presente altre azioni dello stesso tipo realizzate in passato , la proposta della Commissione ci sembra coerente con la nostra prassi . 
+Pertanto , continueremo a insistere affinché il Consiglio approvi le condizioni da noi proposte . 
+La relazione Brok propone una serie di emendamenti ; in seguito vi farò pervenire una nota in cui chiariamo qual è esattamente la nostra posizione . 
+I criteri che abbiamo seguito nell ' esaminare gli emendamenti sono , in forma molto sintetica , i seguenti : innanzitutto , non è necessario inserire i riferimenti al programma " CARDS " in questo caso concreto , dal momento che si tratta di un altro tipo di aiuti e non dell ' assistenza CARDS , che è di natura diversa . 
+Pertanto , non riteniamo accettabili alcuni emendamenti , come i nn . 1, 11, 15 e 19 . 
+Passo ora alla condizionalità politica . 
+L ' assistenza macrofinanziaria non costituisce lo strumento adeguato per imporre condizioni politiche vincolanti . 
+Pertanto , possiamo accogliere l ' emendamento n . 2 solo a condizione che si possa modificarne la formulazione . 
+Non presentano invece problemi i riferimenti all ' assistenza già attuata dall ' Unione , all ' approvazione dei programmi del Fondo , alla riforma degli aiuti esterni , ai margini del Fondo di garanzia e al pacchetto pluriennale di assistenza finanziaria alla Iugoslavia ; pertanto , riteniamo accettabili gli emendamenti nn . 3, 4, 8, 9 e 10 . 
+Comporta qualche difficoltà la questione dei riferimenti alla ripartizione dell ' onere . Non presenta problemi l ' emendamento n . 
+5, ma pretendere di subordinare l ' erogazione al rispetto degli impegni assunti dagli altri donatori non è una condizione né un sistema che di norma si applichino nel caso dell ' assistenza macrofinanziaria . 
+Pertanto , non riteniamo accettabile l ' emendamento n . 13 nella sua formulazione attuale . 
+Un punto su cui si insiste è il riferimento al carattere di assistenza eccezionale . 
+E ' ovvio che l ' assistenza è di carattere eccezionale , com ' è ovvio che è di natura temporanea , ma sono entrambi argomenti già contenuti nel testo . 
+Pertanto , non ci sembrano necessari alcuni riferimenti , come quello che indica che non si deve superare l ' anno 2003 . 
+Non so se nel 2003 occorrerà nuovamente affrontare la questione , ma dire ora che in ogni caso nel 2003 non si farà nulla ci sembra una posizione scorretta . Parimenti riteniamo che nell ' emendamento n . 
+7 non sia necessario il riferimento al duplice carattere di prestito a lungo termine e di contributo a fondo perduto . 
+Per quanto riguarda le consultazioni obbligatorie con organi di natura politica , riteniamo che il dibattito politico che sta nascendo in questo momento avrà luogo in sede di Consiglio . 
+Ma , una volta definite le condizioni , fondamentalmente spetta al Comitato economico e finanziario il ruolo di organo preposto al controllo dell ' applicazione pratica delle proposte . 
+Pertanto , non riteniamo ragionevoli condizioni di altro genere , come quelle fissate negli emendamenti nn . 12, 14 e nella prima parte del n. 16 . 
+Ci chiedete ulteriori relazioni da sottoporre al Parlamento . 
+Mi riferisco alle relazioni menzionate negli emendamenti nn . 16, 18 e 19 . 
+Possiamo accettare la relazione di cui all ' emendamento n . 19, se si riferisce alle informazioni relative all ' anno precedente . 
+E ' molto difficile fornire informazioni sull ' anno in corso , a meno che non si tratti di dati poco aggiornati , ma l ' elaborazione di ulteriori relazioni generali , oltre a quella che presentiamo ogni anno , sull ' assistenza macrofinanziaria , ci sembra un onere burocratico non necessario . 
+Tuttavia , comprendiamo che il Parlamento voglia controllare e sapere cosa sta succedendo in quest ' ambito . 
+Siamo naturalmente a vostra disposizione per fornire informazioni sull ' attuazione dell ' assistenza ogniqualvolta il Parlamento lo richieda . 
+Siamo però convinti che sia preferibile rispondere a proposte concrete piuttosto che prevedere simili obblighi formali , non sempre necessari . 
+In ultimo , vorrei fare riferimento ad alcune date precise fissate come termini per la prima e la seconda erogazione . 
+Voi sostenete che la prima erogazione deve essere effettuata entro il 31 dicembre e la seconda entro il 30 giugno . 
+A tale proposito sorgono due problemi : uno burocratico , amministrativo : ce la faremo per il 31 dicembre ? 
+Ma questo non costituisce la vera difficoltà , che è invece rappresentata dal fatto che nel sistema dell ' assistenza macrofinanziaria lavoriamo con condizionamenti di politica economica dai quali non possiamo prescindere se vogliamo procedere all ' erogazione . 
+Naturalmente , anche noi condividiamo il vostro stesso obiettivo : attuare l ' assistenza quanto prima ed erogarla il più in fretta possibile . Continueremo a lavorare con il Parlamento in questa direzione e in totale sintonia . 
+Per concludere , desidero ringraziare il Parlamento per l ' appoggio alla proposta della Commissione sulla concessione di assistenza macrofinanziaria alla Repubblica federale di Iugoslavia . 
+Mi auguro che durante il prossimo Consiglio riusciremo ad adottare una risposta che ci permetta di far fronte con rapidità , come diceva l ' onorevole Brok , a questa importante sfida , rimanendo coerenti con le posizioni assunte in passato . 
+La ringrazio , signor Commissario . 
+La discussione è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+Progetti di bilancio rettificativi e suppletivi nn . 3 e 4 / 2001 / Risorse proprie dell ' Unione / Procedura di concertazione ( bilancio 2002 ) 
+L ' ordine del giorno reca , in discussione congiunta , le seguenti relazioni , presentate a nome della commissione per i bilanci : 
+( A5 - 0239 / 2001 ) , presentata dagli onorevoli Haug e Ferber sui progetti di bilancio rettificativi e suppletivi nn . 3 e 4 dell ' Unione per l ' esercizio finanziario 2001 [ 9802 / 200 . 
+C5 - 0271 / 200 . 
+2001 / 2049 ( BUD ) ] e 
+[ 9803 / 200 . 
+C5 - 0272 / 200 . 
+2001 / 2049 ( BUD ) ] ; 
+( A5 - 0238 / 2001 ) , presentata dall ' onorevole Haug sullo stato delle risorse proprie dell ' Unione nel 2001 [ 2001 / 2019 ( INI ) ] ; 
+( A5 - 0241 / 2001 ) , presentata dall ' onorevole Costa Neves sul bilancio 2002, in vista della procedura di conciliazione che precede la prima lettura del Consiglio [ 2001 / 2063 ( BUD ) ] . 
+Signor Presidente , signora Commissario , onorevoli colleghi , questa sera si tiene la discussione congiunta sulle tre relazioni elaborate e , se mi guardo attorno in Aula , ognuno di noi sa già cosa l ' altro ha da dire , quindi non ci sono novità . 
+Persino il Commissario ci ha ascoltati più di una volta , perciò ora ribadiamo ancora le nostre posizioni solo per il processo verbale . 
+Il bilancio rettificativo e suppletivo non è assolutamente controverso in seno alla commissione . 
+I punti di maggiore rilevanza sono : in primo luogo , fondi per la creazione di 27 nuovi posti nel settore della ricerca ; in secondo luogo , l ' organico dell ' OLAF e gli stanziamenti necessari nell ' ambito della linea di bilancio per l ' assunzione di nuovo personale e , in terzo luogo , l ' aumento degli stanziamenti previsti dalla Commissione per l ' assistenza nei Balcani . 
+Chiediamo quindi oltre 100 milioni in più . 
+La commissione per i bilanci ha deliberato di comune accordo in tal senso , con il sostegno di tutti i colleghi . 
+Per quanto attiene alla soluzione della questione relativa all ' OLAF , a questo punto vorrei ringraziare ancora di cuore l ' onorevole Bösch , che si è molto impegnato affinché potessimo raggiungere oggi questo compromesso . 
+Il surplus di 11,6 miliardi di euro che emerge dalla chiusura del bilancio 2000 offre al Parlamento l ' occasione di sottolineare ancora una volta che la gestione di bilancio è molto accorta , e per il Consiglio è un motivo di esultanza . 
+Tuttavia , di che cosa tratta la relazione sulle risorse proprie e , soprattutto , perché è stata redatta ? 
+Noi , il Parlamento , abbiamo preso l ' iniziativa chiedendo al Consiglio di discutere insieme , ripeto , solo discutere e non partecipare al processo decisionale , sulla situazione delle risorse proprie dell ' Unione prima di ogni procedura di bilancio relativa al progetto di bilancio preliminare della Commissione . 
+Abbiamo creduto che fosse una richiesta ragionevole , però , su posizioni ben diverse , il Consiglio si rifiuta di accoglierla e ribadisce il suo diniego anche questa sera . 
+Semplicemente non ci ascolta ! 
+Si rifiuta anche solo di parlare con noi sulle entrate dell ' Unione europea . 
+Quindi , abbiamo considerato le risorse proprie senza averne discusso con il Consiglio . 
+Quanto abbiamo constatato per l ' esercizio finanziario 2001 coincide con le tendenze riscontrate negli esercizi precedenti . 
+Le risorse proprie tradizionali e le risorse provenienti dall ' imposta sul valore aggiunto sono sempre più in declino , mentre si registra un costante aumento dei versamenti degli Stati membri sulla base della loro quota di PNL . 
+Le risorse proprie costituiscono complessivamente il 98,3 per cento del bilancio 2001, il che rappresenta l ' 1,06 per cento del PNL , vale a dire un importo molto inferiore al massimale fissato nelle prospettive finanziarie pari all ' 1,27 per cento . 
+La tendenza verso il dominio della risorsa PNL può senza dubbio suscitare sentimenti contrastanti . 
+Tale processo potrebbe contribuire ad una più equa suddivisione degli oneri tra gli Stati membri , in quanto il PNL rappresenta probabilmente il miglior indicatore per misurare la ricchezza relativa delle economie degli Stati membri . Infatti , esaminando attentamente la situazione , si nota che alcuni Stati membri contestano il 22, il 29 o addirittura il 33 per cento dei loro pagamenti al bilancio europeo derivanti da risorse proprie tradizionali , vale a dire da fondi appartenenti in ogni caso già da tempo all ' Unione europea . 
+In secondo luogo , il processo modifica la natura delle risorse proprie dell ' Unione europea , che si trasformano da vere risorse proprie in una sorta di contributo degli Stati membri . 
+In terzo luogo , esso non istituisce un legame tangibile tra l ' Unione europea ed i suoi cittadini . 
+Questa mattina , quando ha parlato il Presidente in carica del Consiglio , il Premier belga Guy Verhofstadt , mi si è allargato il cuore e mi sono rallegrata , in quanto anch ' egli mette in discussione tale finanziamento indiretto all ' Unione europea , chiede più trasparenza e desidera che i cittadini conoscano meglio l ' Unione europea . 
+E tali obiettivi impongono un finanziamento più trasparente . 
+Chiediamo autonomia finanziaria a livello europeo , e intendiamo lavorare in questa direzione , adesso . 
+Vogliamo conseguire tale autonomia finanziaria insieme e su un piede di parità con il Consiglio , e vogliamo partecipare alla decisione in merito . 
+Chiediamo una condizione di parità , in tutti i casi , cioè vogliamo essere uno dei due rami dell ' autorità di bilancio , per quanto riguarda tutte le spese e tutte le entrate . 
+Esigiamo la piena autonomia di bilancio . 
+Oggi un ' imposta europea costituisce forse ancora un ' utopia , ma la Presidenza belga del Consiglio , il Presidente in carica belga , l ' ha chiesta . 
+Il Ministro delle finanze belga sostiene tale richiesta e lo stesso Ministro delle finanze tedesco non l ' ha più rifiutata recisamente . 
+Ciò significa quindi che un ' imposta europea sarà forse ancora un castello in aria , ma se non iniziamo adesso a costruire , poi non potremo più sognare . 
+Signor Presidente , signora Commissario , onorevoli colleghi , si conclude ora un ' altra tappa in vista dell ' approvazione nel dicembre prossimo , come auspichiamo , del bilancio per l ' anno 2002 . 
+Si tratta di una procedura lunga e complessa che , a partire dalle proposte della Commissione europea , ricerca il consenso fra Consiglio e Parlamento europeo , i due rami dell ' autorità di bilancio . 
+Tale consenso presuppone il rispetto del quadro normativo e degli accordi esistenti fra le Istituzioni interessate , tenendo conto della rappresentatività di ciascuna e delle priorità legittimamente stabilite . 
+E ' altresì importante tenere conto delle posizioni di fondo di ciascuno dei soggetti interessati , per evitare il rischio che non sia possibile giungere ad alcun tipo di accordo . 
+Vorrei sottolineare che la relazione in esame costituisce una base per i negoziati con le altre Istituzioni , elaborata a partire dagli orientamenti approvati ad aprile ; non è quindi la posizione finale del Parlamento europeo riguardo al bilancio per il 2002 . 
+Come base per i negoziati , non può occuparsi di settori in cui il Parlamento ha l ' ultima parola . 
+Deve invece anticipare la discussione sugli aspetti in cui si presuppone che le posizioni divergano maggiormente in relazione a questioni su cui è il Consiglio ad avere l ' ultima parola . 
+E ' il caso delle spese agricole , della politica di sicurezza , degli accordi internazionali di pesca . 
+Il buon senso ci impone di trattare anche taluni altri punti chiave , quali il livello dei pagamenti per il prossimo anno o il contenuto e il ritmo di riforma della Commissione . 
+Ci troviamo , lo ribadisco , in una fase negoziale . 
+Vorrei ribadire le posizioni fondamentali del Parlamento europeo , che del resto sono note a tutti voi . 
+Nel dicembre del 2000, è stata decisa , d ' accordo con il Consiglio , la presentazione da parte della Commissione , entro il 30 giungo di quest ' anno , di una relazione riepilogativa e di previsione su una serie di materie , al fine di aumentare i livelli e la qualità dell ' esecuzione del bilancio , migliorare l ' articolazione fra le procedure normative e quella di bilancio e garantire il successo della riforma della Commissione . 
+In altre parole occuparsi delle questioni qualitative del bilancio , occuparsi del loro impatto , prendere atto e farsi carico dell ' esecuzione del bilancio costituiscono una priorità per il Parlamento . 
+La Commissione ha già presentato la relazione riepilogativa e di previsione e ciò costituisce motivo di soddisfazione . Siamo certi che tale relazione sarà considerata alla stregua di uno strumento essenziale quale è ed abbiamo già iniziato ad analizzarla . 
+D ' altro canto , nell ' aprile scorso il Parlamento europeo ha approvato gli orientamenti in materia , i quali indicano come priorità politiche le questioni contenute nella relazione riepilogativa e di previsione che ho appena ricordato , nonché la sicurezza alimentare e la fiducia dei consumatori , associate ad un ' agricoltura sostenibile , la definizione delle priorità ed una migliore esecuzione degli stanziamenti destinati alla politica estera e , in generale , una migliore esecuzione del bilancio , aspetti molto concreti come l ' e - learning , elemento essenziale della priorità da sempre attribuita alle questioni legate all ' occupazione e all ' inclusione sociale , lo sviluppo della politica in materia di asilo ed immigrazione . 
+In tale contesto , appare logica la preoccupazione relativa alla rapidità con cui si effettua la liquidazione degli impegni mediante una pronta esecuzione dei pagamenti e , contemporaneamente , mediante la riduzione effettiva dei pagamenti arretrati , la riduzione dell ' importo rimasto da liquidare . 
+E ' necessario altresì approfittare al massimo delle possibilità di pagamento previste dalle prospettive finanziarie : il nostro obiettivo è di rispettare le prospettive finanziarie relative all ' anno 2002, per un importo pari all ' 1,14 per cento del PNL complessivo degli Stati membri . 
+Vorrei inoltre porre l ' accento sulle seguenti questioni : la necessità di una valutazione precisa , rigorosa ed aggiornata dell ' esecuzione della riforma della politica agricola comune , tenendo conto in particolare delle conseguenze delle crisi dell ' ESB e dell ' afta epizootica , nonché della definizione di un calendario per il futuro ; il rispetto degli impegni assunti dall ' Unione europea in occasione di successivi Consigli europei , fra cui , in particolare , quello di Lisbona in merito all ' occupazione e alla competitività , quello di Tampere per ciò che concerne l ' asilo e l ' immigrazione e quello di Nizza per quanto riguarda le conseguenze del mancato accordo con il Marocco in materia di pesca ; il chiarimento in materia di spese per la politica estera e di sicurezza comune , in particolare per quanto concerne la condivisione delle responsabilità fra Consiglio e Commissione ; l ' effettivo rispetto dei tetti stabiliti dalle prospettive finanziarie anche all ' interno della rubrica 4, per cui si terrà conto delle priorità classiche del Parlamento europeo , ampiamente note ; l ' individuazione esatta delle spese derivanti dal processo di allargamento , con particolare attenzione alle spese amministrative all ' interno della rubrica 5 ; infine , l ' effettiva valutazione di proposte precedentemente formulate dal Parlamento , in particolare quelle relative alle azioni preparatorie e ai progetti pilota . 
+Mi fermo qui , nella speranza che il 20 luglio , data fissata per la riunione di conciliazione , lo spirito positivo e costruttivo che ci anima sia condiviso da tutti i presenti . 
+Signor Presidente , mi congratulo con il collega Costa Neves per la strategia esposta a nome del Parlamento . 
+Un forte segnale di ciò che il Parlamento vuole e di ciò che non vuole . 
+Dal punto di vista della commissione per la pesca , rilevo che , per quanto riguarda l ' agricoltura , la Commissione europea ha compreso che il Parlamento intende riservare per la sicurezza alimentare e la lotta contro le epizoozie una fetta sostanziale del bilancio ; in relazione agli orientamenti per la pesca , devo invece constatare che sembra che la Commissione viva su un altro pianeta . 
+Non si fa cenno al problema per cui , dopo il fallimento dell ' accordo con il Marocco , vengono destinati minori fondi a favore degli accordi di pesca . 
+Non si fa cenno ai problemi che ciò ha provocato nelle regioni costiere più vulnerabili di Spagna e Portogallo . 
+Non si fa cenno ai problemi sorti nelle regioni settentrionali in seguito all ' introduzione del divieto temporaneo di pesca legato alla preoccupante situazione degli stock di merluzzo . 
+Anche il Consiglio si limita per il momento alle parole di Nizza e si rifiuta di far seguire i fatti alle parole . 
+E ' evidente che non è semplice stornare i fondi da una rubrica all ' altra , dalla rubrica 4 ( politica estera ) alla 2 ( politica strutturale ) , anche perché il tetto fissato a Berlino è stabilito in base a ciascuna rubrica . 
+Ma la gestione finanziaria delle crisi , come quella dell ' ESB e gli aiuti ai Balcani , ha dimostrato che i politici più energici non si lasciano imbrigliare dalle rigide norme di bilancio . 
+La commissione per la pesca sostiene il relatore Costa Neves quando afferma che sia la Commissione sia il Consiglio sono forse troppo inerti al riguardo . 
+Allo stesso tempo gli fornisce le armi per aumentare la creatività e la forza della Commissione e del Consiglio . 
+Le nostre proposte sono : riservare i fondi non utilizzati per gli accordi di pesca nell ' ambito della politica ester. rubrica . 
+per le ripercussioni nelle regioni costiere dell ' Europa sudorientale ; usare in maniera mirata gli aiuti strutturali per far fronte alle crisi nel settore della pesca conseguenti al mancato rinnovo degli accordi di pesca con il Marocco e alle misure adottate per tutelare gli stock di merluzzo e di nasello ; riservare temporaneamente eventuali eccedenze del 2001 a favore della ristrutturazione del comparto della pesca e , ove possibile , sfruttare lo strumento della flessibilità per combattere la crisi nel settore . 
+Da ultimo , desideriamo che sia avviata una ricerca mirata in merito all ' uso di tecniche di ingegneria genetica nella piscicoltura . 
+L ' Europa è molto indietro rispetto agli Stati Uniti e al Canada e soltanto una ricerca ad hoc potrà fornire la base per tenere lontane queste tecniche dagli allevamenti ittici europei . 
+Signor Presidente , nella rubrica 4, azioni esterne , i tagli operati nel progetto preliminare di bilancio e quelli che risultano dalla prima lettura del Consiglio sono , in alcuni casi , radicali . 
+Inoltre , come sapete , quest ' anno non sarà possibile il ricorso allo strumento di flessibilità per questo capitolo . 
+Abbiamo appena ascoltato il relatore per parere della commissione per la pesca . 
+La commissione per gli affari esteri desidera sottolineare che l ' incremento delle attività dell ' Unione in questo settore , in particolare per quanto riguarda la PESC , richiede dotazioni adeguate . 
+L ' incertezza nell ' assegnazione delle risorse può compromettere la credibilità e il prestigio di una politica estera che deve rimanere all ' altezza dei suoi impegni e delle sue ambizioni . 
+Pertanto , nel contesto presentatoci dal relatore , onorevole Costa Neves , di una fase della procedura di bilancio , in vista sia della conciliazione che della prima lettura , e conformemente alle priorità fissate nel parere espresso il 20 marzo scorso , approvato all ' unanimità in sede di commissione per gli affari esteri , la suddetta commissione si propone di sollecitare l ' assegnazione di risorse di bilancio sufficienti a finanziare le nuove priorità . 
+Tutto ciò , naturalmente , nel pieno rispetto dei principi di una gestione sana , efficace e trasparente . 
+La Commissione ha previsto circa 120 milioni in relazione all ' accordo di pesca con il Marocco , e noi , d ' accordo con il relatore generale sul bilancio , chiediamo che vengano rispettati gli impegni presi in occasione del Vertice di Nizza . 
+Pertanto , signor Presidente , onorevoli colleghi , la commissione per gli affari esteri ritiene che , affinché l ' Unione europea abbia un peso sulla scena internazionale , tanto nell ' ambito economico quanto in quello commerciale , finanziario e industriale , dobbiamo essere coerenti e dotarci delle risorse necessarie . 
+Signor Presidente , questo è sempre un momento particolare della procedura . 
+Da un lato ci prepariamo ai primi contatti con il Consiglio . 
+Sappiamo che tali contatti non potranno mai risolvere tutti i problemi , come emerge anche dall ' assenza dei rappresentanti del Consiglio , i quali dimostrano interesse soltanto quando la procedura vera e propria è prossima alla conclusione . 
+Pertanto non possiamo fare altro che osservazioni di carattere generale . 
+Dal punto di vista della commissione per gli affari sociali , ritengo che globalmente siamo d ' accordo di continuare la politica dello scorso anno , tenuto conto che abbiamo diversi problemi specifici . 
+La nostra preoccupazione principale è legata alle proposte della Commissione europea . 
+Vi ho già accennato in precedenza : ci preoccupa soprattutto l ' enorme riduzione prevista dalla Commissione per la rubrica " Occupazione " . 
+Se a ciò aggiungiamo quanto accade con i fondi , ad esempio con i progetti pilota , i nostri timori aumentano . 
+Tali preoccupazioni aumentano ancor più se guardiamo ad altri progetti concordati lo scorso anno nel bilancio e cui non viene data esecuzione . 
+E ' evidente che da qualche parte del meccanismo della Commission. non intendo adesso approfondire l ' argoment. c ' è qualcosa che non funziona . 
+Ritengo che ciò sia allarmante perché noi assumiamo un accordo per il bilancio il quale prevede che , se la Commissione è concorde , essa diventa responsabile della sua attuazione e non deve cercare di non passare alla fase attuativa appigliandosi a cavilli giuridic. e no. di ogni tipo . 
+Penso che ciò possa costituire un problema oltremodo grave nella procedura in esame . 
+Al momento questa è la nostra preoccupazione principale . 
+Non si tratta di ottenere maggiori fondi : si tratta di far sì che i fondi esistenti e che sono stati fissati nel bilancio precedente vengano destinati in maniera adeguata . 
+Sappiamo che ci sono molti progetti , ma vengono applicati criteri sempre più rigidi . 
+In alcuni casi si registra un enorme aumento del numero di paesi interessati . 
+Inizialmente si può presentare un progetto che coinvolge tre paesi , ma poi , all ' improvviso , essi devono diventare sette . 
+Ci chiediamo quindi se è questo il modo in cui le due Istituzioni devono comportarsi . 
+Ecco le osservazioni che volevo formulare ; avremo modo di ritornare sugli altri punti . 
+Signor Presidente , onorevoli colleghi , ci auguriamo che la Presidenza del Consiglio possa trascorrere più tempo con noi , almeno in occasione delle minitornate di Bruxelles . 
+In ogni caso , nell ' ambito dell ' odierna discussione congiunta sui bilanci rettificativi e suppletivi nn . 3 e 4, sul mandato per la conciliazione in materia di bilancio e sulla relazione sullo stato delle risorse proprie dell ' Unione europea , il gruppo del PPE - DE intende esprimere il suo voto favorevole , all ' unanimità nei primi due casi , e a maggioranza per quanto riguarda le risorse proprie . 
+Nella relazione Haug , l ' argomento che può sollevare maggiori polemiche riguarda evidentemente l ' appoggio del Parlamento alla possibilità di aprire un dibattito sulla creazione di un ' imposta comunitaria diretta che dia origine a finanziamenti autonomi per il bilancio comunitario . 
+Signor Presidente , all ' interno di tutti i gruppi esistono sensibilità diverse in materia di costruzione europea , e il fenomeno è ancora più evidente quando si tratta di temi finanziari . 
+Proprio per questo , il favore con cui la onorevole Haug guarda a questa eventuale imposta può apparire eccessivo per determinate delegazioni nazionali . 
+Tuttavia , ritengo che probabilmente la maggioranza del mio gruppo lo condivida . 
+Riveste una maggiore importanza immediata il mandato di conciliazione dell ' onorevole Costa Neves , che ringraziamo pubblicamente per la sua disponibilità al dialogo e alla ricerca del consenso . 
+Siamo convinti che , grazie a questo modo di agire , riusciremo ad ottenere risultati soddisfacenti . 
+Alla conciliazione del 20 luglio presenteremo proposte chiare , che il Consiglio non dovrebbe rifiutare , perché rappresentano la volontà della maggioranza del Parlamento , eletto dai cittadini europei . 
+Tra queste preoccupazioni spiccano i dubbi sulla riserva per l ' agricoltura , sulla bassa esecuzione degli stanziamenti in materia di sicurezza alimentare o sul futuro dello sviluppo rurale . 
+Ci auguriamo inoltre che il Consiglio rispetti gli impegni di Nizza relativi al superamento dei problemi derivanti dal mancato accordo di pesca con il Marocco e alla necessità di salvaguardare le priorità esterne del Parlamento , che vengono sempre ridotte in prima lettura dal Consiglio . A maggior ragione , auspichiamo che venga osservato l ' imprescindibile dovere di consultazione che il Consiglio ha nei confronti del Parlamento quando si tratta di assumere impegni in materia di politica estera . 
+In ultimo , voglio sottolineare la necessità di affrontare i problemi già citati nella rubrica 5, in particolare la separazione delle spese amministrative e l ' identificazione delle spese del Consiglio nella suddetta rubrica . 
+Onorevoli colleghi , questi punti costituiscono il nucleo duro della posizione negoziale del Parlamento in vista della conciliazione del 20 luglio , nei confronti della quale chiediamo alla Presidenza belga di mantenere una posizione aperta al dialogo , che permetta di affrontare l ' ultima fase del processo di bilancio con garanzie di successo per tutte le parti . 
+Signor Presidente , signora Commissario , onorevoli colleghi , signori e signore , mi dispiace dover iniziare col dire all ' onorevole Ferber , della Baviera , che proprio dove sperava di trovare punti comuni le affinità non sono così dirette , e spiegherò anche i motivi . 
+Egli ritiene che dobbiamo procedere ad un diverso assetto istituzionale prima di poter parlare delle finanze nell ' Unione europea . 
+Ritengo che abbia torto . 
+Lo si vede in particolare analizzando gli argomenti in esame oggi . 
+Se oggi si chiede ad un cittadino come l ' Unione europea spende le sue risorse , il 30 per cento risponde per coprire i costi amministrativi e un ulteriore 30 per cento non sa in genere come venga impiegato il denaro . 
+In altre parole , il 60 per cento dei cittadini non sa come utilizziamo i fondi messi a disposizione dai contribuenti . 
+Tuttavia il contribuente sa che dal proprio punto di vista sono somme esorbitanti . 
+Vengono spesi importi ingenti e , credo , ancora oggi il cittadino sarebbe molto sorpreso di sapere cosa riceve in cambio a livello europeo . 
+Da un lato , abbiamo i bilanci rettificativi e suppletivi . 
+Da uno di essi emerge che l ' Unione europea , la Commissione , intende seguire la volontà del Parlamento solo in maniera frammentaria , almeno per quanto riguarda le parti relative all ' UCLAF ovvero al nuovo organismo dell ' OLAF . 
+Nel corso dell ' anno lo abbiamo dichiarato molto chiaramente . 
+Volevamo organizzare il personale e l ' organico in modo tale da creare un nuovo organismo che soddisfi le esigenze dettate dai tempi moderni . 
+Possiamo solo ringraziare l ' onorevole Bösch , che ha messo il dito nella piaga , se nessuno ha tentato di riorganizzare l ' organico e di trasformare lo stesso organismo , oggetto , nella precedente seduta , di una discussione dai toni abbastanza forti e di un attento esame , in un altro che non può avere strutture totalmente nuove senza una variazione dell ' organico . 
+E ' un punto che dobbiamo criticare . 
+Il secondo punto è che dobbiamo restituire 11 miliardi di euro agli Stati membri . 
+11 miliardi di euro significano che abbiamo un sottoutilizzo del bilancio pari circa al 10 per cento . 
+Abbiamo un sottoutilizzo nell ' ambito della politica dei consumatori . 
+In tale settore viene infatti impiegato solo il 74,7 per cento delle risorse . 
+Dobbiamo tenere ben presente la politica dei consumatori , su cui abbiamo discusso negli ultimi mesi , anzi anni , più che di qualsiasi altro argomento , e proprio in tale ambito si spende solo il 75 per cento delle risorse . 
+Per quanto riguarda uno dei grandi problemi dell ' Unione europea , la sottooccupazione , sono stati stanziati fondi . 
+Vi menziono la quota della spesa nel settore della politica dell ' occupazione : 39,6 per cento . 
+Contiamo numerosi milioni di disoccupati , ci sono fondi disponibili e riusciamo a distribuire a malapena il 40 per cento di tali risorse . 
+Non è semplice spiegarlo ad un cittadino europeo . 
+Restituiamo dunque importi miliardari ! 
+Ci si può anche addentrare nella rubrica 4, che comprende il settore delle azioni esterne : in tale ambito viene speso appena il 60 per cento delle risorse a favore dell ' iniziativa europea per la democrazia e la salvaguardia dei diritti dell ' uomo , un argomento che ricorre in ogni risoluzione e nelle procedure d ' urgenza . 
+La parte inutilizzata decade e ritorna agli Stati membri . 
+Ve lo dico molto chiaramente : i cittadini europei devono sapere dove va a finire il denaro . 
+Devono però anche sapere da dove proviene . 
+La discussione odierna verte anche specificamente su tale punto poiché si discute sempre come se gli Stati membri mettessero a disposizione tale denaro , e anche oggi è così . 
+Dobbiamo far sì che i cittadini lo capiscano . 
+Dobbiamo rendere più trasparenti sia le entrate che le spese . 
+Non possiamo più spiegare a nessuno perché , nelle consultazioni di bilancio , conquistiamo dapprima 11 miliardi in più nella lotta con il Consiglio , per poi riportarli nel bilancio rettificativo e suppletivo all ' inizio dell ' anno successivo a motivo del loro mancato utilizzo . 
+In seguito il denaro confluisce nei rispettivi bilanci nazionali . 
+Dobbiamo quindi interrompere tale iter . 
+Occorre fornire una fonte di entrate attendibile , valutabile e visibile per i cittadini , per quanto possa essere complicat. su questo punto non si può raffazzonare , al riguardo do ragione all ' onorevole Ferber . 
+Nella procedura abbreviata non si può mettere in scena qualcosa in tutta fretta , perché una discussione che manca di coordinamento e struttura causa semplicemente confusione . 
+Dobbiamo riuscirci . 
+Se avremo dei dati per quanto riguarda le entrate , se essi saranno direttamente accessibili ai cittadini , e se questi ultimi controllano anche le spes. così potranno infatti sapere come impieghiamo il denaro - , non ci sarà alcuna restituzione agli Stati membri , bensì essi ci chiederanno : come avete concretamente impiegato il denaro ? 
+Invece si collegano i due argomenti discussi oggi , vale a dire il bilancio rettificativo e suppletivo con massicci trasferimenti di fondi , da un lato , e risorse proprie , dall ' altro ; sorge quindi la questione : quanto paga il cittadino per l ' Europa ? 
+Ritengo che non dobbiamo aver paura di parlare con i cittadini di cosa facciamo . 
+Disponiamo di ottimi argomenti , abbiamo settori politici e politiche eccellenti , e possiamo illustrarli . 
+Non dovremmo temere i cittadini , bensì avvicinarci ad essi con apertura e trasparenza ed invitarli a costruire con noi l ' Europa . 
+Signor Presidente , la discussione in corso verte sulla chiusura dell ' esercizio dello scorso anno , le risorse proprie e il bilancio del prossimo anno . 
+Vorrei innanzitutto ringraziare i relatori , gli onorevoli Haug , Costa Neves e Ferber , per l ' ottimo lavoro che hanno svolto . 
+La chiusura dell ' esercizio dello scorso anno è sorprendente , essa registra un ' eccedenza di più di undici miliardi di euro dovuta al fatto che le entrate hanno superato di 3,3 miliardi di euro le stime iniziali mentre le uscite sono state di 8,5 miliardi di euro inferiori a quanto era stato stimato . 
+L ' incremento delle entrate è sicuramente un fatto positivo , ma il risparmio sulle uscite è illusorio poiché è dovuto ad un impiego ridotto delle risorse dei Fondi strutturali . 
+Più del venti percento degli stanziamenti non è stato utilizzato e essi verranno trasferiti ai bilanci degli anni successivi . Ciò significa che non c ' è stato nessun risparmio . 
+La ragione principale dell ' impiego ridotto di queste risorse è il rallentamento del processo di approvazione dei programmi relativi agli obiettivi . 
+Nell ' anno 2000 è stata approvata solo la metà dei programmi relativi all ' obiettivo 1, a quasi due anni dal lancio di Agenda 2000 a Berlino . 
+Solo l ' 8 percento dei programmi relativi all ' obiettivo 2 è stato approvato e già per il secondo anno consecutivo non è stata utilizzata alcuna risorsa per le nuove iniziative comunitarie . 
+La gestione amministrativa non è stata molto efficiente : la Commissione deve cercare di rimediare a questo problema , essa deve far sì che le procedure amministrative vengano espletate nei tempi previsti e in maniera efficace . 
+Ovviamente tutto quello che è stato trascurato negli anni precedenti andrà a sovraccaricare il bilancio degli anni successivi . 
+Un ' altro aspetto della chiusura dell ' esercizio che mi ha lasciato perplesso è l ' inserimento di una compensazione ai contributi versata dal Regno Unito . 
+Trovo strano che in questo bilancio rettificativo e suppletivo si facciano delle correzioni relative a bilanci di quattro o due anni fa , mi chiedo come mai queste correzioni non siano state fatte prima . 
+La relazione redatta dal ' onorevole Costa Neves per il bilancio del prossimo anno fornisce un buon punto di partenza per i negoziati . 
+Secondo le stime preliminari , le spese amministrative ( rubrica 5 ) superano le prospettive finanziarie e ciò è dovuto ad un incremento superiore al 9 percento delle spese del Consiglio , soprattutto di quelle relative alla politica estera e di sicurezza comune . 
+Il Parlamento deve cercare di fare tutto il possibile per garantire che venga creato un organico separato per la gestione della politica estera e di sicurezza comune . 
+Le spese previste per questa politica non appartengono all ' ambito del gentlemen ' s agreement che vige tra il Parlamento ed il Consiglio , secondo il quale non ci si intromette nelle questioni che riguardano i bilanci delle altre Istituzioni comunitarie . 
+Signor Presidente , vorrei trattare la questione delle risorse proprie . 
+Le tabelle contenute nella relazione dell ' onorevole Haug relative alle risorse proprie non danno un ' immagine corretta dei contributi versati dagli Stati membri . 
+Bisogna avere il coraggio di dire ad alta voce che è ingiusto che al Regno Unito sia stata concessa una riduzione sui contributi da versare all ' Unione . 
+Sarei stato più soddisfatto se l ' onorevole Haug nelle conclusioni della sua relazione avesse esortato l ' Unione a far sì che il Regno Unito versi un importo contributivo pari a quello degli altri Stati . 
+Inoltre , ritengo che le statistiche contenute nella relazione mascherino l ' importo dei dazi doganali che il Regno Unito riscuote per l ' Unione . 
+Anche i dazi doganali riscossi dal Belgio e dai Paesi Bassi fanno sembrare più consistenti i contributi versati da questi paesi . In realtà i Paesi Bassi ed il Belgio riscuotono dazi anche per quelle merci che sono dirette ad altri paesi . 
+A mio parere i dati forniti dalle statistiche sono sbagliati , il Belgio e i Paesi Bassi non sono poi dei così grandi contributori netti 
+Nelle conclusioni della relazione dell ' onorevole Haug si fa anche riferimento all ' introduzione di una tassa europea . 
+Non è un caso . 
+Anche la Presidenza belga ha annunciato di voler prendere in considerazione questa possibilità . 
+Nel nostro gruppo politico si sono formati due schieramenti contrapposti riguardo alla questione della tassa europea . 
+I sostenitori del federalismo europeo appoggiano l ' introduzione di questa tassa , invece coloro che desiderano che gli Stati conservino il diritto di esercitare la piena sovranità si oppongono all ' attribuzione delle competenze fiscali all ' Unione . 
+Attribuire competenze fiscali all ' Unione significherebbe percorrere la via del federalismo . 
+Come rappresentante dei contribuenti di un piccolo paese che è contributore netto non posso dare il mio appoggio ad un progetto di tassa europea poiché esso implicherebbe una svolta in senso federale . 
+Considero le conclusioni della relazione dell ' onorevole Haug troppo radicali . 
+Signor Presidente , anch ' io desidero intervenire sulla relazione della onorevole Haug relativa alle risorse proprie . 
+La sua esortazione in merito all ' adozione di un ' imposta europea è inutile e prematura . 
+Ella afferma che la Presidenza belga dovrebbe presentare una proposta o avviare un dibattito al riguardo . 
+Ho letto le note sul programma di lavoro della Presidenza belga e la questione non vi è trattata , o viene menzionata solo di sfuggita . 
+Vi è solo un riferimento all ' imposta sui flussi di capitale speculativo , la cosiddetta imposta Tobin , che è stata respinta dal Parlamento solo alcuni mesi fa . 
+Alla fine del documento si fa allusione anche al finanziamento diretto o indiretto dell ' Unione europea , che ci permette ancora una volta di utilizzare le risorse proprie dell ' Unione europea . 
+Vorrei far notare alla onorevole collega che proprio il Primo ministro belga , negli ultimi giorni , ha affermato di non volere continuare il cammino verso un ' imposta dell ' Unione europea in quanto " è un argomento sensibile " . 
+E ' una questione estremamente delicata e totalmente inutile . 
+La onorevole Haug afferma che il contributo finanziario proveniente dagli Stati - nazione attraverso il prodotto nazionale lordo è destinato ad aumentare , e ne prendo atto . 
+Sono stato membro della Camera dei Comuni del Regno Unito per 18 anni prima di sedere in quest ' Aula . 
+Ho sempre ritenuto estremamente positivo il fatto che la percentuale del prodotto nazionale lordo destinato alla spesa europea diminuisse . 
+Questa flessione è continuata negli ultimi due anni , ed è per me motivo di soddisfazione . 
+E ' indice di un controllo valido ed efficace sulla spesa e gli Stati - nazione non hanno nulla in contrario a destinare questi fondi all ' Unione europea . 
+Non vedo alcun motivo per cui l ' Unione europea debba imporre un prelievo fiscale diretto . 
+Ecco perché ho presentato quattro emendamenti per la votazione di domani , di cui due saranno sottoposti a voto per appello nominale . 
+Questa sera possiamo constatare che vi è opposizione da parte di diversi paesi . 
+Spero che l ' Assemblea voterà a favore dei miei emendamenti e che si opporrà all ' imposta europea . 
+Signor Presidente , onorevoli colleghi , ringrazio anzitutto il relatore , onorevole Costa Neves , per la sua proposta e per l ' ottima collaborazione . 
+In commissione per i bilanci abbiamo definito posizioni unanimi su quasi tutti i punti . 
+Se posso sbilanciarmi in una previsione , credo che quest ' anno a dominare il dibattito sul bilancio saranno più le grandi questioni di principio che non le singole voci e che ciò sarà sempre più evidente anche negli anni a venire . 
+Penso soprattutto all ' ampliamento e allo sviluppo della nuova politica estera e di sicurezza comune , nonché ai loro effetti sul bilancio . 
+Penso alla riconversione delle politiche dell ' agricoltura e della pesca . 
+Penso inoltre alla riforma interna , non da ultimo alla capacità della Commissione di dare effettiva attuazione alle decisioni dell ' autorità di bilancio . 
+Il punto di partenza è assai inquietante . 
+La fiducia delle popolazioni verso l ' Unione è in calo in molti Stati membri . 
+Al contempo , ci troviamo dinanzi alla più grande sfida mai affrontata : l ' ampliamento a Est . 
+In vista di tale sfida , la capacità dell ' Unione di dar seguito alle proprie priorità va migliorata nettamente . 
+E ' quindi inquietante , anche se qualche ministro delle finanze pare rallegrarsene , che il tasso di esecuzione del bilancio sia talmente basso che , ora , 11 miliardi di euro vanno restituiti agli Stati membri . 
+Il problema degli aiuti e interventi promessi ma in ritardo o del tutto irrealizzati rappresenta una palla al piede per l ' Unione tutta . 
+E ' quindi positivo che la Commissione intenda ora incrementare i pagamenti e riformare le procedure nel senso di una gestione più moderna , efficace e trasparente . 
+E il Consiglio non deve vanificarla . 
+Per quanto riguarda i contenuti , desidero affrontare in primo luogo la politica agricola . 
+Sebbene si tratti di un tema vasto e complesso , occorre che il cambiamento sia più veloce . 
+Prima di adottare il bilancio 2002, e soprattutto prima di concludere i negoziati con i paesi candidati all ' adesione , è tassativo fare chiarezza sulla futura politica agricola . 
+In tale contesto , mi soffermo ora sul punto di vista della commissione per l ' agricoltura . 
+Nei suoi emendamenti , questa commissione ha inteso confermare la necessità di mantenere la spesa agricola entro i limiti delle prospettive finanziarie , ma chiede anche , nonostante vi siano ostacoli specie alla luce dell ' ampliamento , di distribuire aiuti a beneficio di uno sviluppo a tutto campo delle zone rurali , categoria 1B . 
+Mi pare saggio e credo che si debba proseguire su questa strada . 
+Per il resto , ora ci domandiamo semmai perché la Commissione voglia riserve tanto cospicue per l ' ESB e l ' afta epizootica , pur essendovi tuttora la possibilità di adattare il progetto di bilancio . 
+A tale proposito , prima di prendere posizione vogliamo ulteriori risposte alle nostre domande . 
+Desidero ora commentare in breve il fallimento dell ' accordo di pesca con il Marocco . 
+Vista l ' impossibilità di attuarlo , le flotte di molti paesi ne risulteranno penalizzate . 
+Rientro fra quanti vedono con un certo scetticismo le ingenti sovvenzioni erogate dall ' Unione nel settore della pesca e dell ' agricoltura , ma ciò non ci esime dal dovere di tenere conto dei problemi dei pescatori che avevano preventivato nuove prospettive per il loro sostentamento . 
+Occorre sostenere una decisa riconversione e verificare le possibilità di rendere disponibili stanziamenti a tale scopo attingendo a rubriche diverse dalla Categoria 4 . 
+Occorrono inoltre dettagliate proposte da parte della Commissione . 
+Anche se la conciliazione alla quale ci accingiamo ora riguarda soprattutto le rubriche 1, 2 e 5, vorremmo ugualmente cogliere l ' occasione per fare alcune considerazioni di altro ambito . 
+L ' anno scorso , il Parlamento aveva sospinto un intervento straordinario sul fronte dell ' occupazione e della piccola impresa . 
+A seguito dell ' ulteriore sviluppo del processo di Lisbona deciso al vertice di Stoccolma , vi è ogni motivo di restare ben saldi su questa priorità . 
+Ma a tale scopo occorre anche rimuovere parte degli ostacoli cui allude Bartho Pronk . 
+Al di là di ciò , poniamo in particolare l ' accento sull ' ambito rappresentato dall ' e - learning , che a nostro avviso deve ricevere risorse adeguate per poter assurgere al ruolo di settore chiave che gli spetta , se davvero vogliamo incrementare la crescita e garantirne una più equa ripartizione in tutta Europa . 
+Infine , ci preoccupano anche le azioni esterne , che hanno rappresentato la principale difficoltà nel 2000 e nel 2001 . 
+I problemi non possono dirsi risolti . 
+Abbiamo proceduto a enormi stanziamenti in Kosovo e in Iugoslavia , ma al contempo vi sono esigenze enormi , e sin qui trascurate , anche in altre regioni del mondo , ancora più povere . 
+Si tratta di uno dei nostri compiti più importanti in assoluto , ma per poter tenere fede alle promesse dobbiamo prima risolvere una serie di gravi problemi che ci assillano . 
+Nonostante si tratti di sfide enormi per il futuro , credo che , con un po ' di buona volontà , potremo risolverle di concerto 
+Signor Presidente , il bilancio per l ' agricoltura è caratterizzato da colpi di fortuna e da gravi problemi . 
+I problemi sono rappresentati dallo scoppio delle epizoozie . 
+Probabilmente alla fine di ottobre sapremo che dimensioni assumeranno tali problemi per il prossimo anno . 
+Una cosa è certa : i momenti propizi non dureranno in eterno . 
+I problemi , sotto forma di scoppio di epidemie che colpiscono il bestiame , ce li possiamo aspettare ogni anno . 
+Ciò che dirò è in effetti la ripetizione di quanto già detto lo scorso anno e l ' anno prima e non so più da quanti anni . 
+Ritengo inopportuno che nel bilancio sia previsto un importo di 41 milioni di euro per far fronte alle epizoozie . 
+Se guardiamo quanto ci è costata l ' epidemia di ESB e di peste suina e quanto ci costa adesso l ' epidemia di afta epizootica , quei 41 milioni sono una bazzecola . 
+Perciò penso che la Commissione debba intervenire in maniera strutturale sulla situazione per migliorarla . 
+E ' possibile creare sistemi di assicurazione ? 
+E ' possibile istituire un determinato fondo per il bestiame ? Non si ha forse una distorsione della concorrenza se in un paese la quota nazionale deve essere corrisposta dagli allevatori , mentre negli altri paesi viene versata interamente dal governo ? 
+Questi sono gli aspetti su cui la Commissione deve discutere a breve termine con gli Stati membri e con il relatore , perché è possibile che in futuro si verifichino ancor più di frequente simili problemi . 
+Signor Presidente , questa discussione sulle risorse proprie dell ' Unione e sulla tassazione comunitaria l ' abbiamo già ascoltata . 
+Ricorre ogni anno . 
+Le posizioni sono ben note e pare in un certo senso inutile ripetere la stessa discussione e le stesse decisioni anno dopo anno . 
+A prescindere dal principio in sé , è lecito chiedersi se nuove e più salate imposte siano davvero ciò di cui gli Stati membri e i cittadini dell ' Unione abbiano bisogno sopra ogni cosa . 
+Siamo già tutti pesantemente tassati . 
+Alcuni Stati membri sono fra i più tassati del mond. e uno di questi è il mio . 
+Questi paesi , peraltro , non sono propriamente quelli che hanno registrato , nell ' ultimo decennio , la crescita economica più elevata . 
+Certo , la relazione afferma che nel complesso le tasse non dovrebbero aumentare . 
+Ma si tratta di un ragionamento teorico che poco ha a che vedere con la realtà dei fatti . 
+Credo inoltre di poter affermare che , con l ' introduzione di una nuova impost. e segnatamente , come nel caso di specie , di un nuovo livello di imposizion. la pressione fiscale aumenterà certamente . 
+Mi pare praticamente inevitabile . 
+Prendo inoltre atto che il relatore intende rafforzare " il legame fra l ' Unione e i suoi cittadini " . 
+Obiettivo certo lodevole e auspicabile , ma a mio avviso da perseguire con ben altri mezzi . 
+Sono estremamente scettico sul fatto che il cittadino percepirebbe come rafforzato il legame con l ' Unione europea se dovesse pagare ancora più tasse di quante non ne paghi già . 
+Signor Presidente , signora Commissario , onorevoli colleghi , il fatto che stiamo affrontando una discussione congiunta sul sistema delle risorse proprie e sul prossimo bilancio , in vista della conciliazione , rafforza l ' idea che entrate e spese siano due facce della stessa medaglia . 
+Si chiede autonomia fiscale e codecisione per entrate e uscite , ma innanzitutto occorre predisporre un adeguato ed equo finanziamento delle politiche comunitarie e già sappiamo che non siamo d ' accordo sul metodo più efficace per ottenerlo . 
+Presto o tardi si dovrà raggiungere un accordo definitivo , ma a priori sarà necessario discutere e chiarire i temi emersi in occasione del Consiglio di Nizza . 
+Mi sembra un esercizio inutile parlare di una nuova filosofia delle risorse proprie senza aver prima risolto le incognite fondamentali . 
+Non è molto prudente costruire una casa cominciando dal tetto . 
+In ogni caso , introdurre l ' argomento dei saldi netti , come è stato fatto , non porta certo nella direzione corretta , bensì contribuisce , per molti motivi , a minare i principi dell ' Unione . 
+Oggi è importante sapere se la nuova decisione sulle risorse proprie procede davvero verso una maggiore equità e trasparenza e tiene maggiormente conto della capacità contributiva degli Stati membri . 
+E ' dunque chiaro che la progressiva riduzione del tasso massimo di riferimento della risorsa IVA contribuisce a correggere gli aspetti regressivi del sistema vigente . 
+I contributi degli Stati membri relativi alla quarta risorsa e all ' IVA devono rispettare la proporzione rispetto al loro contributo al PIL comunitario come elemento chiave per salvaguardare l ' equità del sistema . 
+Pertanto , dobbiamo insistere nell ' impegno a procedere in questa direzione . 
+La proposta contiene anche alcuni aspetti negativi non trascurabili . 
+Il mantenimento della cosiddetta correzione degli squilibri di bilancio a favore del Regno Unito , pur con la modifica del sistema di calcolo , conferma un procedimento che contrasta nettamente con la trasparenza e la semplicità cui aspiriamo . 
+In vista del bilancio 2002, desidero segnalare che la relazione Costa Neve. e approfitto dell ' occasione per congratularmi con il relatore per il suo lavor. presenta gli elementi necessari per un buon negoziato . 
+Ritengo che vi sia un margine utile per raggiungere un accordo definitivo con il Consiglio . 
+Chiedo alla Commissione di rispettare il suo impegno di proporre lo strumento e il finanziamento adeguati per rimediare alle conseguenze del fallimento dell ' accordo di pesca con il Marocco , cosa che implica la possibilità di utilizzare gli aiuti anche per progetti di attività economica alternativi nelle zone interessate . 
+Penso di dovervi fornire alcune informazioni a seguito dell ' intervento dell ' onorevole Dover . 
+Prima l ' onorevole Heaton - Harris è stato chiamato a parlare a nome della commissione per il controllo dei bilanci , ma non era presente e non lo è neppure adesso . 
+Credo di sapere il motivo : è stanco morto , o forse dovrei dire " fisicamente esausto " , perché questo pomeriggio ha partecipato a una partita di calcio che si è disputata tra i membri del partito laburista britannico e i membri del partito conservatore britannico , in cui i laburisti hanno vinto per 7 a 1 . 
+Comunque , anche l ' onorevole Dover e altri hanno partecipato . 
+Ovviamente ci si aspetta che i laburisti stiano al passo , ma dal momento che è presente in Aula , penso che dovremmo congratularci con l ' onorevole Dover , non per quanto ha detto , ma perché stasera è qui tra noi mentre l ' onorevole Heaton - Harris non c ' è , pur essendo molto più giovane . 
+( Reazioni diverse ) 
+Ora non so davvero con chi devo congratularmi per aver vinto la partita ! 
+Signor Presidente , onorevole relatrice , onorevoli relatori , onorevoli deputati , i bilanci effettivamente comportano sempre molto lavoro , molte discussioni e decisioni ed oggi avevamo al contempo quattro punti importanti : i due bilanci rettificativi e suppletivi per l ' esercizio finanziario corrente , la risoluzione relativa al finanziamento del bilancio e la preparazione alla prima lettura del bilancio 2002 da parte del Consiglio . 
+Il bilancio rettificativo e suppletivo n . 3 / 2001 riguarda esclusivamente questioni relative al personale , da un lato nel settore della ricerca , dall ' altro per quanto concerne l ' OLAF . 
+Il bilancio rettificativo e suppletivo n . 4 / 2001 verte sull ' impiego del surplus di bilancio derivante dall ' anno scorso . 
+La onorevole Haug e l ' onorevole Ferber hanno presentato una relazione in merito ai due bilanci . 
+Essi propongono , da un lato , in relazione alle questioni relative al personale nel settore della ricerca della Commissione , una diversa struttura dell ' organico . 
+La Commissione reputa accettabile tale proposta . 
+Quanto alla modifica dell ' organico dell ' OLAF , essa poggia ora su un compromesso raggiunto dopo negoziati piuttosto lunghi , in merito al quale tuttavia desidero ancora fare in questa sede alcune osservazioni . 
+Mi riferisco anzitutto al fatto che nel parere della commissione per il controllo dei bilanci che è stato formulato si continua a citare l ' esistenza di gravi irregolarità nell ' ambito dell ' OLAF , ossia che il numero di funzionari A è superiore al numero di posti in organico . 
+Per quanto riguarda la nozione di irregolarità , devo assolutamente ribadire che , se per l ' organico 2000 l ' autorità di bilancio aveva concesso un determinato numero di posti A che non sono stati occupati tutti dalla Commissione o dall ' OLAF , per il bilancio 2001 l ' autorità di bilancio ha però deciso di ridurre il numero dei posti per funzionari A , e di fatto ha stabilito un numero inferiore rispetto ai funzionari esistenti . 
+Tale modus operandi finora non ha precedenti e crea naturalmente difficoltà , ma non è affatto corretto affermare che sia un ' irregolarità o dare ad intendere che la Commissione avrebbe occupato posti per cui non sarebbe stata autorizzata , e devo respingere in questo contesto l ' espressione " irregolarità " . 
+Faccio inoltre notare che la Commissione ha trasmesso senza modifiche all ' autorità di bilancio la proposta di organico presentata dal direttore dell ' OLAF , proprio per sottolineare l ' indipendenza di quest ' ultimo . 
+Per contro , con l ' adozione di alcune decisioni del Parlamento europeo viene attuata una gestione capillare molto dettagliata , il che , naturalmente , solleva almeno alcune questioni anche sotto il profilo dell ' indipendenza . 
+Nel complesso , la circostanza che i posti vengano bloccati e che purtroppo non vengano neppure rimessi a disposizione tutti i posti non crea condizioni di lavoro semplici per l ' OLAF , mentre l ' autorità ha ora davvero grosse incombenze e deve prima di tutto portare a termine una serie di compiti diversi . 
+Posso solo riaffermare che la Commissione farà tutto il possibile per creare condizioni di lavoro ottimali per l ' OLAF . 
+Passo al secondo bilancio rettificativo e suppletivo . 
+Il bilancio 2000 si è chiuso con un surplus di 11,6 miliardi di euro , come più volte citato in Aula . 
+Tale surplus deriva in parte dall ' aumento di entrate originato , ad esempio , da una crescita del PNL , come supposto inizialmente , ma in gran parte dalle risorse non utilizzate sul piano delle spese . 
+Devo però fare un ' osservazione sul settore della politica strutturale , che costituisce la parte più rilevant. poiché da qui provengono 6 degli 11 miliardi citati - , cioè vorrei rilevare che già in occasione della stesura e della firma dell ' Accordo interistituzionale si era constatato che sarebbe probabilmente stato difficile utilizzare tutte le risorse nel primo anno . 
+Ciò è stato quasi dato per scontato e di conseguenza si è deciso che è possibile riutilizzare stanziamenti per anni successivi , come è avvenuto , cosicché abbiamo la garanzia che non andrà persa nessuna risorsa nell ' ambito dei Fondi strutturali , essendoci state difficoltà di implementazione nel primo anno di attuazione delle decisioni . 
+Ritengo che si debba trarre la conclusione che per un futuro periodo di finanziamento occorrerà iniziare con molto anticipo le fasi di preparazione e stesura delle decisioni . 
+Consentitemi di ricordare che , riguardo alle iniziative comunitarie , ad esempio , la posizione del Parlamento è stata approvata nell ' aprile 2000 . 
+Adesso si vede che l ' intero processo è iniziato troppo tardi . 
+In altre parole , per il prossimo periodo di finanziamento occorre semplicemente stabilire un calendario anticipato . 
+Questo riguarda tutti , Commissione , Parlamento e , naturalmente , anche Consiglio . 
+Del resto , non sono state restituite tutte le risorse pari a 11,6 miliardi di euro . 
+1,6 miliardi sono già stati inseriti nel progetto di bilancio 2001, tra l ' altro , per il finanziamento delle misure concernenti l ' ESB contenute nel bilancio rettificativo e suppletivo n . 1 . 
+Una cifra pari a 2,075 miliardi sarà utilizzata per finanziare la correzione di bilancio a favore del Regno Unito , e a questo proposito , a differenza degli oratori precedenti , non guardo l ' onorevole Wynn . 
+Abbiamo inoltre proposto di impiegare 350 milioni di euro per l ' aumento delle risorse destinate alla ricostruzione nei Balcani e di restituire agli Stati membri la parte restante , vale a dire 7,5 miliardi di euro , diminuendo i loro rispettivi contributi al bilancio 2001 . 
+I relatori propongono ora di utilizzare non solo 350 milioni di euro per l ' aumento delle risorse destinate ai Balcani , bensì 450 milioni di euro . 
+La Commissione in realtà voleva finanziare tale differenza mediante ulteriori trasferimenti da altri settori , ma ora accogliamo la proposta , in particolare sotto il profilo del calendario , che riveste notevole importanza . 
+Infatti , non vogliamo proprio rischiare di dover bloccare i versamenti nell ' ambito delle misure relative al Kosovo o alla Serbia . 
+E ' chiara a tutti la delicatezza di tale settore e spero tanto che la proposta del Parlamento in materia venga accolta dal Consiglio e che quindi l ' intero pacchetto possa essere approvato ancor prima dell ' interruzione estiva . 
+Esaminerò ora la presente proposta di risoluzione relativa alle risorse proprie . 
+L ' argomento diventa sempre più attuale perché si pone l ' interrogativo di come si possa finanziare in maniera ottimale il bilancio europeo . 
+La situazione presente è che è stata adottata una nuova decisione relativa alle risorse proprie avente una nuova struttura , applicabile fintantoché non venga approvato un altro documento contenente tutti gli elementi necessari , anche l ' elemento della riduzione britannica . 
+Ciò costituisce diritto vigente . 
+Per quanto attiene alla struttura del finanziamento , il Trattato dispone che il bilancio pubblico è finanziato tramite le risorse proprie . 
+Così recita il Trattato . 
+Parimenti , nel 1975, ad esempio , nell ' accordo con il Parlamento , si era ribadito che dovevano essere risorse proprie reali . 
+Invece gli sviluppi di fatto hanno preso tutt ' altra direzione , come la onorevole Haug ha illustrato nella sua relazione in maniera dettagliata . 
+Quanto al finanziamento attualmente a disposizione , è giocoforza constatare che non offre garanzie di trasparenza per i cittadini . 
+Uno degli aspetti più gravi è che quasi nessun cittadino conosce le modalità di attuazione del finanziamento , e ciò che non si conosce è per ciò stesso impenetrabile e dà adito a svariate congetture . 
+Da parte mia posso soltanto ribadire che plaudo alla volontà della Presidenza belga del Consiglio di trattare l ' argomento del finanziamento del bilancio dell ' Unione europea e , onorevole Ferber , ritengo che tale tema rientri nel contesto globale della suddivisione delle competenze tra Stati membri e livello comunitario . 
+Questo punto rientra per sua natura in tale ambito . 
+Reputo che sia anche molto importante che tutti i fautori della ristrutturazione delle entrate trovino però , possibilmente in tempi brevi , una scelta terminologica comune . 
+Se si parla dell ' introduzione di un ' imposta europea , sembra che debba essere inventata in un certo qual modo una nuova imposta la cui riscossione spetterebbe all ' Unione europea . 
+Non si tratta affatto di questo , bensì di attribuire una denominazione ad un ' imposta confluente in toto o in parte nel bilancio europeo quando la sovranità in materia di riscossione tributaria spetta alla Comunità e , naturalmente , anche della problematica relativa al potere in materia di bilancio del Parlamento europeo . 
+Da parte mia posso solo evidenziare quanto affermato dalla onorevole Haug , ossia che si tratta in realtà della questione se tale potere ridotto di cui dispone il Parlamento europeo in materia di bilancio debba rimanere invariato sia per quanto riguarda le entrate che per quanto riguarda le spese . 
+Credo che ora sia il momento propizio e , a mio parere , dovremmo cogliere l ' attimo , giacché una Presidenza del Consiglio ha inserito l ' argomento nel proprio programma e temo che , se a questo punto non lo si mette all ' ordine del giorno al Vertice di Laeken , esso verrà nuovamente dimenticato per molto tempo e senza essere discusso . 
+Passo ora alla relazione dell ' onorevole Costa Neves , che verte sulla concertazione che precede la prima lettura del Consiglio del 20 luglio , elaborata nel trilogo del 9 luglio . 
+Vorrei sottolineare che anche questa data , con il trilogo , costituisce un momento importante nell ' intera procedura di bilancio . 
+Poiché la onorevole Theato è presente , mi sia consentita una breve osservazione : onorevole Theato , mi ha inviato una lettera un po ' pungente , in cui mi scriveva che avrei fatto bene a recarmi , il 9 luglio , presso la commissione per il controllo dei bilanci , piuttosto di partecipare al trilogo , per discutere una relazione periodica . 
+Devo rilevare ancora una volta che non ho il dono dell ' ubiquità e che rientra ovviamente negli obblighi cui è tenuto il Commissario per il bilancio partecipare al trilogo in preparazione della procedura di concertazione per il bilancio 2002 . 
+Per quanto riguarda i punti focali della concertazione , l ' onorevole Costa Neves li ha trattati in dettaglio . 
+Consentitemi di esprimermi a tale riguardo : da un lato , reputo che la proposta della Commissione di prevedere una riserva per l ' agricoltura pari ad 1 miliardo di euro sia più che adeguata alla nostra incertezza in relazione all ' evoluzione delle spese nel settore agricolo per il prossimo anno . 
+Riceviamo ora i primi conti relativi all ' afta epizootica e ne attendiamo altri , in questo settore , e possiamo trarne la conferma che è davvero necessaria una riserva cospicua . 
+Dovremmo metterci dalla parte della ragione e naturalmente in autunno , con la lettera rettificativa , potremo dire qualcosa di preciso in merito alla cifra da sborsare per l ' afta epizootica . 
+Tuttavia , ritengo che attualmente la proposta relativa ad una riserva sia la più consona e invito caldamente il Parlamento europeo ad appoggiarla in sede di concertazione con il Consiglio . 
+Il secondo punto concerne il mancato accordo di pesca con il Marocco , menzionato da numerosi oratori . 
+Esso riveste una grande importanza , perciò lo esaminerò brevemente . 
+La Commissione intende proporre ancora a luglio un programma di cofinanziamento per promuovere la ristrutturazione delle flotte spagnola e portoghese colpite dal mancato accordo . 
+Dovrebbe essere un programma finanziato nell ' ambito della rubrica dei Fondi strutturali . 
+Osserverete che tale rubrica è vuota ovvero esaurita . 
+Per tale motivo la Commissione presenterà la proposta di impiegare lo strumento di flessibilità ovvero una parte di esso per finanziare il detto programma di ristrutturazione . 
+La durata prevista è annuale , ma la sua attuazione si può protrarre per più anni . 
+Si dovrà esaminare come impiegare le risorse liberate nella rubrica 4 a causa del mancato accordo di pesca , soppesando tutti gli aspetti , compreso , lo dico espressamente , l ' aspetto della disciplina del bilancio . 
+Per quanto riguarda l ' ambito della politica estera e di sicurezza comune , il Parlamento ritiene che anche quest ' anno potrebbero verificarsi tagli di risorse . 
+Di fatto il progetto di bilancio preliminare è conforme al progetto di bilancio del 2001 e la Commissione non vede il motivo per ulteriori tagli , tuttavia essa appoggerà ovviamente il relatore per migliorare i commenti al bilancio , come auspicato . 
+Dirò ancora due parole in merito alle spese amministrative . 
+Condivido la preoccupazione del Parlamento europeo in relazione allo sviluppo futuro della rubrica 5 e pertanto appoggio decisamente lo sforzo per conseguire più trasparenza e pianificabilità in eventuali nuovi settori di attività , come ad esempio nell ' ambito della giustizia e degli affari interni . 
+Voglio però anche precisare che non sono le spese per la riforma della Commissione a gravare le finanze . 
+Dobbiamo affrontare tutte le riforme necessarie e reputo imprescindibile che tutte le Istituzioni provino a presentare un progetto a medio termine affinché possiamo rilevare i settori che necessitano di modifiche per risolvere la questione della rubrica 5 . E ' opportuno riflettere se non si debba istituire un high level group o un gruppo analogo per occuparsi di tali questioni . 
+Onorevole Costa Neves , lei ha richiamato l ' attenzione sulla relazione che il Parlamento europeo aveva richiesto , concernente , tra l ' altro , questioni relative all ' esecuzione del bilancio . 
+La ringrazio per aver menzionato in senso positivo che tale relazione è stata presentata a tempo debito e costituisce un buon strumento di lavoro per la discussione delle questioni sollevate nella dichiarazione del Parlamento . 
+Anche nell ' ambito di eventuali azioni che il Parlamento europeo deve intraprendere nell ' ambito del bilancio ci sarà una stretta cooperazione . 
+Come stabilito , la Commissione è già stata tempestivamente coinvolta dalle diverse commissioni nella discussione al fine di garantire l ' attuazione di azioni e progetti pilota . 
+Anche questo tema ci sta a cuore e al riguardo vorrei sottolineare in special modo i settori della politica in materia di asilo e immigrazione . 
+Infine un breve excursus sulle priorità nell ' ambito dell ' e - learning e della politica occupazionale delle piccole e medie imprese . 
+Sono settori in cui sono state stanziate ingenti somme non solo nelle linee di bilancio figuranti nella rubrica 3, ma anche nel quadro dei Fondi strutturali , e la Commissione ritiene che si debba anzitutto dimostrare la validità dei nuovi strumenti introdotti nell ' ultimo bilancio prima di un loro sostanziale rafforzamento o ampliamento . 
+In conclusione , tutto questo è indice di quante discussioni dovremo ancora affrontare . 
+Il bilancio 2000 dev ' essere elaborato congiuntamente nei prossimi mesi e mi auguro che possiamo sfruttare , e che sfrutteremo , le settimane e gli incontri che seguiranno per elaborare una valutazione comune affinché disponiamo di una buona base per i negoziati sul bilancio . 
+Signor Presidente , vorrei rivolgermi al Commissario . 
+Sono un po ' stupita che la signora Schreyer sostenga di aver ricevuto una mia lettera pungente in cui le avrei scritto che avrebbe fatto bene ad essere presente presso la commissione per il controllo dei bilanci . 
+Ciò è assolutamente impossibile ! 
+Ho effettivamente scritto una lettera in cui la invitavo , conformemente all ' accordo esistente tra Commissione e Parlamento , a venire presso la commissione per il controllo dei bilanci . 
+Se il Commissario ha altri impegni , ritengo che abbia la possibilità di delegare un alto funzionario affinché fornisca ragguagli dinanzi alla commissione . 
+La lettera non ha altri significati ! 
+Signora Commissario , sono un po ' sorpresa che l ' abbia interpretata in tal senso . 
+Era del tutto esplicita . 
+Volevo semplicemente chiarirlo . 
+Grazie ! 
+La ringrazio , signora Commissario . 
+La discussione congiunta è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+Gestione dei programmi comunitari 
+L ' ordine del giorno reca la relazione ( A5 - 0216 / 2001 ) , presentata dall ' onorevole Bourlanges a nome della commissione per il controllo dei bilanci , sulla proposta di regolamento del Consiglio che definisce lo statuto delle agenzie esecutive incaricate di alcuni compiti relativi alla gestione dei programmi comunitari 
+[ COM ( 2000 ) 78 . 
+C5 - 0036 / 200 . 
+2000 / 0337 ( CNS ) ] . 
+Signor Presidente , con un titolo piuttosto tecnico , ossia la creazione di agenzie esecutive incaricate di alcuni compiti relativi alla gestione dei programmi comunitari , si indica , in effetti , una riforma abbastanza importante ed un aspetto non secondario della riforma amministrativa in corso nell ' ambito della Commissione . 
+Dirò immediatamente che la commissione per il controllo dei bilanci e il Parlamento guardano senza dubbio con grande simpatia e con favore al principio dell ' agenzia che ci viene proposto , poiché attraverso la creazione di agenzie la Commissione risponde ad una preoccupazione fondamentale del Parlamento , espressa nel quadro della procedura di bilancio del 2000 . 
+Tale preoccupazione era quella di ottenere lo smantellamento degli uffici di assistenza tecnica , mal controllati e tali da sfuggire all ' autorità della Commissione , nonché la loro sostituzione con organismi che presentino sia la sicurezza dovuta al carattere pubblico delle Istituzioni , sia una flessibilità di gestione e di funzionamento , indispensabile alla realizzazione di una serie di compiti , e in particolare all ' esecuzione di taluni programmi . 
+In sintesi , avevamo affermato : sopprimiamo gli UAT , senza sostituirli con i servizi centrali della Commissione , inventiamo piuttosto qualcosa di nuovo . 
+Le agenzie esecutive sono appunto questa novità . 
+La proposta di regolamento presentata riguarda unicamente lo statuto delle agenzie . 
+In linea di principio gode pertanto , signora Commissario , del sostegno del relatore nonché di quello della commissione per il controllo dei bilanci . 
+Ciò non vuol dire , come può ben immaginare conoscendomi , che siamo d ' accordo su tutto . 
+Vi è infatti una serie di punti su cui concordiamo ed una serie di punti su cui ci troviamo invece in disaccordo . 
+Riguardo ai primi , lo ribadisco , siamo d ' accordo sul principio dell ' agenzia . 
+Concordiamo altresì sulle modalità di gestione di tale organismo , che deve associare , da un lato , personale distaccato della Commissione , poiché desideriamo che l ' agenzia sia chiaramente subordinata alla Commissione dal punto di vista politico ed amministrativo , e , dall ' altro , personale più flessibile , reclutato sulla base di contratti a termine adeguati ad una gestione agile di programmi di durata limitata . 
+Riteniamo inoltre , e credo che su questo punto ci troviamo d ' accordo , che i nuovi organismi debbano essere assoggettati agli stessi controlli nonché agli stessi obblighi in materia di comunicazione , di audit e di competenza da parte dell ' OLAF cui sono soggetti i servizi centrali della Commissione . 
+Credo che condividiamo il medesimo punto di vista al riguardo . 
+Resta invece da chiarire una serie di altri punti , in merito ai quali nutriamo ancora alcuni dubbi . 
+Il primo riguarda la definizione dei compiti che possono essere esternalizzati ed affidati alle agenzie esecutive . 
+Relativamente a tale questione , peraltro già discussa in passato , auspichiam. la commissione per i bilanci e la commissione per il controllo dei bilanci concordano sull ' argomento , sebbene alcuni di noi non siano della stessa opinion. che i compiti esternalizzati lo siano davvero perché sono temporanei e richiedono personale temporaneo o specializzato , e non che siano sistematicamente esternalizzati semplicemente poiché costano meno grazie all ' impiego di personale meno remunerato e meno qualificato . 
+Non è questo il nostro obiettivo . 
+In secondo luogo , riteniamo che la responsabilità giuridica della Commissione debba essere piena e diretta . 
+Vi è un punto di diritto su cui possiamo essere divisi , ma non credo che , in fondo , le nostre posizioni siano davvero opposte . 
+Si tratta di una questione tecnica non trascurabile cui la onorevole Theato , presidente della commissione per il controllo dei bilanci , tiene particolarmente , ossia auspichiamo che a tali organismi sia accordato il discarico in contemporanea al discarico concesso alla Commissione . 
+Chiediamo di non separare le due procedure , perché non vogliamo assistere a innumerevoli discarichi distinti ; vogliamo pronunciarci con un unico voto sul discarico sia per gli stanziamenti operativi che per gli stanziamenti di funzionamento . 
+Mi appresto a concludere : restano due punti che ancora ci dividono e che costituiscono un problema all ' interno della commissione . 
+In primo luogo , il relatore avrebbe desiderat. senza l ' accordo , finora , della commissione per il controllo dei bilanc. che il 25 per cento del personale dell ' agenzia provenisse effettivamente dai servizi della Commissione . La commissione per il controllo dei bilanci non ha fatto proprio tale desiderio . 
+Abbiamo presentato , a nome del nostro gruppo , un emendamento volto a riproporre tale questione , ma con una modifica e dopo negoziati con i servizi della Commissione , precisando che il venticinque per cento deve essere raggiunto solo dopo un certo lasso di tempo , alla scadenza di un periodo di diciotto mesi che consenta all ' agenzia di raggiungere la propria velocità di crociera . 
+Vorrei convincere i colleghi del gruppo socialista a sostenere tale proposta . 
+Non dispero di farcela , per quanto non vi sia ancora riuscito . 
+Infin. si tratta dell ' ultima questione , piuttosto important. vi è la natura degli statuti e la tipologia dei contratti del personale . 
+Su questo punto noi ci opponiamo e sono preoccupato poiché ho visto , in seguito al voto della commissione per il controllo dei bilanci , proposte di regolamento che mi hanno inquietato . 
+Siamo preoccupati poiché constatiamo che il personale potrebbe essere soggetto a statuti non rinnovabili . 
+Se fosse così , avremmo personale di qualità scadente , di scarsa lealtà e che non sarebbe in grado di garantire la continuità del servizio in ogni circostanza , provocando quindi rotture tali da pregiudicare l ' interesse dei beneficiari dei servizi e dei destinatari dei programmi . 
+Su questo punto , signora Commissario , le chiedo un impegno forte . 
+Desideriamo che vi sia continuità di servizio , che il personale impiegato dalle agenzie possa essere rinnovato secondo le esigenze e che non sia colpito da una ghigliottina cieca ed automatica nel corso dei programmi . 
+Questo , signora Commissario , è il pensiero della nostra commissione . 
+Mi fermo qui . Concludo dicendo che diamo il nostro appoggio al principio della sua proposta , in attesa delle sue precisazioni sui punti che ho ricordato . 
+La ringrazio , signor Presidente , per la sua pazienza e ringrazio i colleghi per il loro caloroso sostegno . 
+Signor Presidente , signora Commissario , onorevoli colleghi , la Commissione ritiene che per il numero in costante aumento dei programmi comunitari e per la relativa esecuzione non sia sufficiente il personale statutario . 
+E ' di certo vero . 
+Questo significa per la Commissione che deve delegare e decentrare . 
+In passato modelli diversi si sono rivelati inadeguati o sono stati un fallimento . 
+Non erano trasparenti sotto il profilo del bilancio , quali i minibilanci , o erano soggetti a frode , come nel caso delle UAT , per cui il Parlamento ne ha richiesto lo smantellamento . 
+La Commissione presenta pertanto una proposta di regolamento concernente lo statuto delle cosiddette agenzie esecutive , illustrata or ora dal relatore , onorevole Bourlanges . 
+Desidero congratularmi con lui per aver esaminato a fondo questa proposta . 
+Vorrei sottolineare alcuni punti importanti della relazione . 
+La Commissione deve definire con precisione i compiti che intende delegare , se implicano o meno funzioni di pubblica potestà e a quale genere di agenzia esecutiva devono essere affidati . 
+Purtroppo non disponiamo ancora del vademecum preannunciato al riguardo . 
+Deve tuttavia essere chiaro che la responsabilità della regolarità e della buona gestione finanziaria dei compiti esternalizzati è della Commissione , attività per cui è soggetta al discarico da parte del Parlamento , il che significa che non può esser dato alcun discarico alle agenzie . 
+Al Parlamento si devono pertanto trasmettere immediatamente tutte le informazioni e i documenti che esso ha richiesto necessari a tal fine . 
+Le agenzie sono soggette altresì al controllo da parte della Corte dei conti e , laddove indicato , e anche dell ' OLAF . 
+La Commissione è anche giuridicamente responsabile degli atti delle agenzie esecutive , poiché queste ultime non sono organismi distinti previsti dal Trattato . 
+E ' imperativo procedere al massimo dopo tre anni ad una valutazione delle agenzie in merito al loro corretto funzionamento . 
+Infine , si devono affidare all ' esterno solo contratti temporanei . 
+L ' onorevole Bourlanges lo ha infatti accennato . 
+Il regolamento quadro non contempla un ' eventuale proroga del termine , tuttavia ritengo che tale questione andrebbe disciplinata . 
+In ogni caso è importante che venga disposta una soglia minima di funzionari della Commissione distaccati nelle agenzie esecutive pari al 25 per cento , in modo da garantire il controllo interno sui compiti di gestione e di conseguenza la responsabilità della Commissione . 
+Innanzitutto vorrei utilizzare una piccola parte del prezioso tempo di parola a mia disposizione per congratularmi per l ' eccellente lavoro da lei svolto nell ' ambito del comitato di conciliazione sulla direttiva sulle acquisizioni . 
+All ' interno della delegazione ho sfidato la disciplina politica del mio gruppo per darle il mio appoggio , ma purtroppo non è servito a nulla . 
+Voglio anche complimentarmi con il relatore per il documento in esame quest ' oggi . 
+Egli ha assunto un atteggiamento molto costruttivo in seno alla commissione per il controllo dei bilanci ; inoltre mi congratulo con lui per la proficua collaborazione portata avanti con il relatore della commissione per i bilanci , cooperazione che merita di avere un seguito . 
+Il nostro gruppo dà pieno appoggio alla proposta della Commissione europea . 
+Sosteniamo anche la relazione Bourlanges . 
+Riteniamo che la proposta della Commissione rappresenti un ' importante parte del programma di riforme avviato dopo il 1999 . 
+La proposta mira a che l ' affidamento di determinati compiti avvenga in un quadro ben definito e a porre fine al caos amministrativo delle agenzie di assistenza tecnica . 
+La commissione per il controllo dei bilanci ha specifica meglio la proposta della Commissione europea su alcuni punti , come già ricordato dalla onorevole Theato . 
+Primo : la disposizione in merito alla sede delle agenzie . 
+Adesso nel testo si parla di aprire antenne operative per le agenzie . 
+Con il nostro emendamento tale riferimento viene soppresso . 
+Si può soltanto essere più severi . 
+L ' onorevole Mulder ha presentato un emendamento valido ; propongo all ' onorevole Bourlanges di accogliere l ' emendamento dell ' onorevole Mulder quale integrazione al suo emendamento , per cui non occorre scegliere tra i due . 
+Secondo : sono state inasprite le disposizioni in materia di auditing e controllo finanziario . 
+E ' stato recepito l ' obbligo di presentare una relazione annua . 
+Penso che si tratti di un importante miglioramento . 
+Terzo : siamo favorevoli all ' adozione di un unico regolamento finanziario per tutte le agenzie e non all ' introduzione di un regolamento finanziario per ciascuna di esse . 
+Temiamo che , in caso contrario , ad un certo punto si perda di vista il quadro generale . 
+Infine , siamo del parere che OLAF debba avere nei confronti delle agenzie le stesse competenze che ha nei confronti della Commissione europea . 
+Su alcuni punti non condividiamo l ' opinione del relatore . 
+Innanzitutto , riteniamo che la sua definizione di affidamento sia troppo limitata . 
+Egli vuole restringere l ' affidamento a compiti temporanei di carattere tecnico . 
+Nella realtà ciò avverrà spesso , ma pensiamo che questa definizione sia troppo limitata . 
+Una Commissione efficiente ha bisogno di flessibilità . 
+La domanda è : qual è il sistema più efficiente , qual è il sistema che permette il maggior risparmio a livello di costi ? 
+Tale questione deve rivestire un ruolo essenziale ; il Parlamento europeo non deve precludere alcuna strada al riguardo . 
+Secondo , come già riferito , l ' onorevole Bourlanges propone di fissare una percentuale minima per il numero di funzionari della Commissione che devono operare nelle agenzie . 
+E ' ovvio che nelle agenzie dovrà operare una certa quantità di funzionari della Commissione , ma non riteniamo opportuno fissare tale percentuale , in quanto essa differirà a seconda del tipo di l ' agenzia e del lavoro che essa effettua . 
+L ' onorevole Bourlanges ha chiesto in seno alla commissione se i socialisti sostengono davvero i diritti dei lavoratori . 
+Rispondo : ma il gruppo PPE - DE è sul serio favorevole all ' abolizione delle norme superflue e fautore della libertà ? 
+Infine vorrei sapere qual è il parere della Commissione sull ' emendamento presentato dall ' onorevole Ellis sulla relazione . 
+Signor Presidente , innanzitutto mi congratulo con l ' onorevole Bourlanges . 
+La relazione in esame è diventata inevitabile dopo quanto accaduto alcuni anni fa . 
+E ' necessario che regolamentiamo in maniera più precisa i compiti delle agenzie esecutive , così da prevenire il ripetersi di tali anomalie . 
+Che cosa devono fare esattamente queste agenzie ? 
+Condividiamo appieno il punto di vista dell ' onorevole Bourlanges secondo cui è necessario disciplinare la loro attività . 
+Una cosa è certa : esse dovranno svolgere un determinato compito amministrativo per un tempo limitato e determinato . 
+Quali sono gli aspetti principali per il gruppo ELDR ? 
+Primo : la Commissione rimane responsabile per quanto accade . 
+Non è possibile che determinati compiti vengano delegati discrezionalmente ad un ' altra agenzia esecutiva . 
+Secondo : la percentuale del numero di funzionari operanti in un ' agenzia dovrà essere fissata in ciascun singolo caso . 
+Noi siamo contrari a fissare una percentuale ; al momento non possiamo stabilirne una . 
+Ciò dipenderà dai compiti dell ' agenzia . 
+Il discarico delle agenzie . La proposta secondo cui il Parlamento si dovrà occupare di concedere il discarico singolarmente ad ogni agenzia non ci sembra congrua . 
+Se la Commissione è responsabile e se la Commissione riceve il discarico dal Parlamento , ciò implica che indirettamente noi diamo il discarico alle agenzie . 
+Questo è il nostro punto di vista . 
+Per quanto riguarda le restanti proposte possiamo aderire a grandi linee con gli emendamenti presentati dal relatore . 
+Signor Presidente , onorevoli deputati , nel corso dell ' intero dibattito sulla riforma amministrativa della Commissione il Parlamento europeo ha svolto un ruolo importante . 
+Anche nel caso della questione dell ' esternalizzazione , la commissione per i bilanci e la commissione per il controllo dei bilanci hanno apportato un contributo fondamentale . 
+E ' in particolare il relatore , onorevole Bourlanges , che ha dato l ' impulso iniziale per l ' elaborazione della presente proposta di regolamento . 
+Desidero ringraziare per la costante collaborazione offerta nella formulazione della proposta e della relazione . 
+Devo ammettere che l ' onorevole Bourlanges mi aveva già impressionata quando nel novembre 1999 ha presentato il suo opus magnum sull ' esternalizzazione . 
+E ' molto difficile nel complesso produrre una buona documentazione . 
+Qualcuno potrebbe dire che non si riuscirà mai a elaborare un ' opera letteraria sull ' esternalizzazione . 
+Ma in realtà con questa prima relazione sulla materia lei è già riuscito a presentare qualcosa di grande pregio sotto il profilo letterario . 
+Congratulazioni di cuore . 
+E ' ormai riconosciuto il fatto che la Commissione si debba in generale concentrare più a fondo sui suoi compiti fondamentali . 
+Questo è il quadro globale , perciò la questione dell ' esternalizzazione è oggetto di discussione , e più precisamente l ' interrogativo : " Quali compiti si possono eseguire anche sotto forma diversa rispetto a quella attuale nell ' ambito delle strutture di gestione della Commissione " ? 
+Il concetto di esternalizzazione prevede tre metodi e procedure , vale a dire delega di compiti alle agenzie esecutive , poi delega di compiti ad agenzie nazionali , quindi decentramento , e delega attraverso contratto a terzi . 
+Con il regolamento quadro per le agenzie esecutive si definisce un nuovo tipo di organismo comunitario che agisce al servizio della Commissione e ha il compito di occuparsi e di attuare in modo autonomo i programmi comunitari su incarico della Commissione , compresa la relativa esecuzione degli stanziamenti di bilancio . 
+Ne consegue che il regolamento propone il quadro giuridico per la creazione di agenzie esecutive che la Commissione istituisce ogni volta in base alle necessità . 
+A questo proposito desidero sottolineare ancora una volta i punti di maggiore importanza . 
+Un ' agenzia esecutiva è uno strumento nelle mani e sotto il controllo della Commissione . 
+Questo fa anche capire che non è corretto equiparare l ' esternalizzazione alla privatizzazione , aspetto , questo , spesso discusso anche proprio con i funzionari . 
+Onorevole Bourlanges , lei ha fatto comprendere con molta chiarezza che non è questo il caso . 
+Significa che la responsabilità della Commissione per quanto riguarda l ' esecuzione del bilancio ai sensi dell ' articolo 274 del Trattato CE rimane illimitata . 
+E ' un punto che è ancora stato posto in evidenza poc ' anzi dalla commissione per il controllo dei bilanci e anche da lei , onorevole Theato . 
+La Commissione crea un ' agenzia esecutiva , designa gli organi dirigenti dell ' agenzia , esercita il potere di controllo attraverso i propri servizi . 
+Gli stanziamenti operativi gestiti dall ' agenzia rimangono iscritti nel bilancio generale dell ' Unione europea e gestiti dall ' agenzia in veste di mandatario della Commissione . 
+Le prerogative dell ' autorità di bilancio vengono conservate . 
+L ' autorità di bilancio approva il contributo relativo agli stanziamenti amministrativi dell ' agenzia . 
+La tabella dell ' organico dell ' agenzia viene presentata all ' autorità di bilancio nell ' ambito della procedura di bilancio . 
+Non possiamo accettare la proposta che prevede che una percentuale fissa del personale dell ' agenzia sia costituita da funzionari della Commissione . 
+Anche per quanto riguarda la durata dei contratti mi permetto tuttavia di richiamare l ' attenzione sul fatto che la creazione delle agenzie esecutive ha senso solo per compiti che non si esauriscono in un anno , bensì sono a lungo termine . 
+Questo significa pertanto che i contratti del personale non permanente hanno di conseguenza una durata maggiore . 
+Vorrei ancor far presente che il Parlamento europeo concede il discarico all ' agenzia esecutiva sull ' esecuzione degli stanziamenti amministrativi ed operativi . 
+Desidero ringraziare la commissione per i bilanci e la commissione per il controllo dei bilanci per l ' analisi critica svolta riguardo alla nostra proposta . 
+I contributi da voi apportati offriranno una struttura più equilibrata alla nostra proposta e ci consentiranno di compiere un altro passo sulla via del miglioramento dell ' efficienza della gestione , traguardo cui aspiriamo . 
+Signor Presidente , soltanto una parola . 
+Vorrei la più chiara precisazione possibile dal Commissario in merito alla terza parte dell ' emendamento n . 25, ossia la parte riguardante il contratto rinnovabile . 
+Ho discusso con i vostri servizi , mi aspettavo un impegno preciso da parte vostra . 
+Non l ' ho ottenuto . 
+Si tratta di una questione fondamentale per noi . 
+Se entro domani non otteniamo un impegno chiaro su tale questione , prenderò provvedimenti e proporrò all ' Assemblea di soprassedere alla votazione . 
+D ' altronde , l ' ho già fatto presente in modo molto chiaro ai vostri servizi : vogliamo che il personale impiegato nell ' agenzia sia legato a contratti rinnovabili . 
+Naturalmente il rinnovo non deve essere obbligatorio , ma si tratta di una questione sulla quale ho molto insistito da quando sono venuto a conoscenza della proposta di regolamento presentata alla commissione giuridica . 
+Incidentalmente , la proposta non era stata peraltro notificata , per motivi che mi sono ignoti , alla commissione per il controllo dei bilanci né alla commissione per i bilanci . 
+Ho pertanto fatto presente in maniera molto chiara ai responsabili che questa sera mi aspettavo un impegno da parte della Commissione . 
+Non l ' ho ottenuto . 
+Voglio sperare che si tratti di problemi di trasmissione . 
+Potete riflettere fino a domani , ma aspetto un impegno da parte vostra prima della votazione . 
+Rispondo riguardo all ' emendamento n . 25, onorevole deputato : la Commissione ne accoglie la prima parte e ne respinge la seconda . 
+Per quanto attiene alla terza parte , accetto la sua proposta e mi riservo di fornire una spiegazione domani . 
+La discussione è chiusa . 
+La votzione si svolgerà domani , alle 12.00 . 
+Sicurezza delle attività minerarie 
+Signor Presidente , la ragione di questa relazione , nonché della comunicazione della Commissione su cui essa verte , risiede nel gran numero di incidenti gravi occorsi in ambito minerario negli ultimi anni . 
+Nel 1998 in Spagna si è verificato il cedimento di una diga in una miniera con conseguenze gravissime sul piano ecologico . Un incidente analogo , anche se con conseguenze meno gravi , si è verificato anche in Romania nel 2000 . 
+Entrambi questi incidenti hanno avuto un impatto ambientale che è andato ben al di là delle frontiere . 
+Negli ultimi anni abbiamo inoltre assistito ad altri episodi analoghi dovuti sempre al cedimento di dighe minerarie , pur con conseguenze meno rovinose , per esempio nella Svezia settentrionale e in Galles . 
+Ciò ha spinto l ' Unione a rivedere la propria legislazione su questo tipo di attività estrattive . 
+Al contempo , vi sono enormi quantitativi di rifiuti di miniera immagazzinati da lungo tempo in diversi luoghi , con rilascio nell ' ambiente di metalli pesanti e altre sostanze tossiche . 
+Non se ne conosce con precisione il contenuto , né è nota l ' entità del problema . 
+Gli scarti delle attività estrattive rappresentano quindi una delle più pressanti emergenze ambientali . 
+La sicurezza nelle attività minerarie è anche un grave problema di ordine ecologico . 
+Nella sua proposta la Commissione illustra le proprie riflessioni sul miglioramento della legislazione comunitaria in materia . 
+Nella nostra relazione noi abbiamo sostanzialmente condiviso tale impostazione , ma abbiamo una serie di osservazioni in merito alle implicazioni concrete e su quelle che , secondo noi , dovrebbero essere le proposte della Commissione . 
+Noi sottolineiamo che , in caso di incidente , la responsabilità debba ricadere esclusivamente sulla società mineraria , anche per quanto concerne le conseguenze ambientali , e che l ' industria estrattiva vada inclusa nella futura direttiva sulla responsabilità ambientale . 
+Chiediamo inoltre più ricerca in questo ambito ; oggi vi sono gravi carenze sul fronte della ricerca in materia di gestione dei rifiuti di miniera . 
+Chiediamo pertanto l ' ulteriore sviluppo delle tecnologie oggi già esistenti in vari paesi , e che l ' Unione riveda il proprio finanziamento dei vari progetti in materia . 
+Per quanto attiene alle proposte più importanti , nella mia relazione noi suggeriamo che la compilazione dell ' inventario attualmente in corso venga estesa anche ai paesi candidati all ' adesione . 
+Tale inventario richiederebbe di passare in rassegna i vecchi rifiuti di miniera allo scopo di verificare dove causino gravi problemi ambientali . 
+Sappiamo che la situazione è probabilmente più grave in molti paesi candidati che non negli attuali Stati membri . 
+Ribadiamo poi che occorre una metodologia comune che renda possibile il raffronto dei risultati fra zone diverse . 
+E riteniamo che , laddove vengano riscontrati gravi problemi , occorra porvi rimedio con veri programmi di intervento . 
+L ' elemento più importante del documento della Commissione consiste nella proposta di una nuova direttiva quadro per la gestione dei rifiuti di miniera . 
+Io come relatore e la commissione per l ' ambiente troviamo giustificato un simile approccio . 
+Occorre una direttiva specifica , dal momento che né la direttiva sui rifiuti né la direttiva sulle discariche si rivelano particolarmente adatte alla gestione dei rifiuti di miniera . 
+Sottolineiamo però che questa direttiva dovrà gestire sia i rifiuti di miniera vecchi , sia la produzione attualmente in corso . 
+Questa direttiva dovrebbe contemplare inoltre l ' obbligo per gli Stati membri di dotarsi d una legislazione sul risanamento degli impianti in precedenza utilizzati per attività estrattive . 
+Tale legislazione esiste oggi in alcuni Stati membri ma non in tutti , soprattutto nei paesi candidati . 
+Chiediamo ancora norme specifiche sulla sicurezza delle dighe proprio per far fronte a simili rischi di incidente . 
+E chiediamo la messa al bando del metodo utilizzato a Baia Mare , in Romania , dove il cianuro veniva impiegato per le attività estrattive in bacini a cielo aperto . 
+Si tratta di un metodo estremamente pericoloso che rischia di danneggiare gravemente , in caso di cedimento della diga , l ' ambiente circostante , come accaduto in Romania . 
+In terzo luogo , le proposte avanzate prevedono la revisione della cosiddetta direttiva Seveso II , allo scopo di estendere il campo di applicazione della direttiva in modo da includervi l ' obbligo di piani di emergenza e di informazione intorno alle attività estrattive . 
+In questo ambito è stato presentato un unico emendamento alla relazione , proveniente dal gruppo conservatore PPE - DE . 
+L ' emendamento propone che gli obblighi di cui alla direttiva Seveso II siano limitati alla sola attività estrattiva metallurgica . 
+A mio avviso è presto per operare una simile distinzione ancor prima che la Commissione abbia presentato la sua proposta . 
+Farlo ora , in questa occasione , sarebbe avventato . 
+Sarebbe meglio prevedere invece che ogni tipo di attività mineraria possa risultare coperto da questa direttiva . 
+Quando abbiamo trattato la materia in commissione , è emersa una grande unitarietà . 
+Ringrazio i colleghi per i loro pareri e per l ' appoggio che mi hanno prestato . 
+Valuto inoltre ottima la collaborazione instaurata con la Commissione e contiamo di poter ricevere a breve le proposte promesse , fra cui la revisione della direttiva Seveso II . 
+Speriamo che la Commissione voglia prestarci ascolto per quanto concerne l ' orientamento delle imminenti proposte . 
+Grazie per l ' ottima cooperazione . 
+Signor Presidente , signora Commissario , desidero innanzitutto ringraziare sinceramente il relatore per il documento presentato e congratularmi con lui al riguardo . 
+Ha dovuto affrontare un tema davvero estremamente ostico . 
+In ogni caso il mio gruppo si esprimerà molto volentieri a favore di questa relazione . 
+Mi consenta tuttavia , onorevole Sjöstedt , proprio perché approveremo la sua relazione , di esprimere un certo disagio che mi è stato manifestato dagli interessati . 
+Secondo loro ci sono numerose affermazioni che non sono oggettivamente motivate . 
+A causa delle due note catastrofi dei bacini di decantazione l ' intera attività mineraria e le attuali normative vengono messe in una luce che non corrisponde alla realtà . 
+Mi è stato menzionato il considerando A secondo cui gli incidenti minerari hanno evidenziato l ' inadeguatezza delle norme e delle prescrizioni di controllo che regolano l ' industria mineraria negli Stati membri attuali e futuri dell ' Unione europea . 
+Questa formulazione così generica non è corretta . 
+E ' corretto affermare che nell ' ambito dell ' Unione europea e ovviamente anche nei paesi candidati esistono diverse norme severe . 
+La problematica tuttavia non riguarda tanto le leggi , quanto piuttosto il loro recepimento da parte di determinati Stati , ad esempio la Romania . 
+Il considerando D recita che la cattiva gestione delle operazioni di estrazione e dello smaltimento dei rifiuti di miniera costituisce un problema globale . 
+Anche questa affermazione non è esatt. tale è l ' opinione degli interessati che qui si sentono offesi - , perché la maggior parte delle società nel settore delle piccole e medie imprese non opera su scala globale . 
+Molte grandi imprese attive a livello mondiale sono piuttosto da considerare pionieri sotto il profilo dell ' adozione di norme ambientali e di sicurezza severe . 
+Nella prospettiva mondiale , i problemi si riscontrano piuttosto ad esempio nel settore delle miniere d ' oro con le piccole società che sono deboli in termini finanziari e non sono proprio nella condizione di tener conto in modo adeguato della dimensione ambientale . 
+Tuttavia ci sono anche formulazioni che vengono espressamente condivise , ad esempio l ' ultima frase del punto delle conclusioni che recita : " Il Parlamento ritiene inoltre che la direttiva relativa alle discariche di rifiuti non costituisca un quadro adeguato per la regolamentazione dei rifiuti di miniera ed esorta quindi la Commissione a presentare una proposta di direttiva riguardante specificamente i rifiuti di miniera " . 
+Non si può fare altro che accogliere e sottolineare appieno una simile affermazione . 
+Sono dell ' avviso che l ' industria mineraria europea sia perfettamente consapevole della responsabilità che deve assumersi ed è per questo che esige una propria direttiva in materia di rifiuti di miniera . 
+Si devono pertanto elaborare legislazioni sui rifiuti adeguate e prevedere norme tecniche e ambientali . 
+Ritengo che nessuno di noi ignori che la direttiva relativa alle discariche non è applicabile data la specificità delle miniere e che non apporterebbe alcun miglioramento alle società minerarie dal punto di vista ecologico ed economico . 
+Onorevole relatore , mi sono permessa di proporre un emendamento riguardo al punto 9 delle conclusioni . 
+Si tratta di estendere il campo di applicazione della direttiva Seveso II ai rischi derivati dalle attività di ammasso e di trattamento nell ' estrazione di metalli . 
+Mi auguro possa accogliere questo emendamento e mi congratulo ancora una volta con lei per la relazione che ha presentato . 
+A nome del mio gruppo accolgo con favore la relazione della Commissione e il testo presentato dal relatore . 
+Gli incidenti che hanno accelerato lo studio e i successivi resoconti degli avvenimenti in Spagna e in Ungheria ci hanno reso consapevoli dei problemi legati alle miniere e alle attività minerarie , vecchie e nuove . 
+I potenziali problemi , soprattutto quelli relativi all ' inquinamento idrico , sono di natura transfrontaliera e devono quindi essere disciplinati da una normativa europea . 
+Dopo aver preso in esame la legislazione in essere , che si tratti della direttiva IPPC , di quella relativa alle discariche di rifiuti o della direttiva " Seveso. in ciascuno di questi casi sono stato relatore in qualche fase dell ' elaborazione del document. è evidente che nessuno di questi testi normativi può offrire una soluzione valida a tutti i problemi legati alle attività minerarie . 
+Concordo quindi con il relatore sull ' esigenza di adottare una nuova normativa , una sorta di nuova iniziativa per disciplinare in particolare l ' industria mineraria . 
+Vorrei attirare l ' attenzione del relatore su due punti . 
+In primo luogo , i giacimenti dismessi non devono necessariamente essere bonificati . 
+Molti siti esistono da secoli , si sono sviluppati in modo tale da diventare luoghi di interesse scientifico e sono caratterizzati dalla presenza di flora e fauna particolari . 
+Esorto quindi a prendere in esame la possibilità di conservarli e di utilizzarli in questo modo , piuttosto che di farli sparire dalla faccia della terra a caro prezzo . 
+In secondo luogo , ritengo sia molto difficile classificare i residui di miniera semplicemente come rifiuti se si considera che , in gran parte , si tratta semplicemente di roccia frantumata molto simile a ciò che si può trovare in una qualsiasi cava dell ' Unione . 
+Penso quindi che dovremmo fare riferimento in modo più specifico ai rifiuti di miniera trattati , che spesso contengono sostanze chimiche tossiche in grande concentrazione . 
+E ' per questo che abbiamo bisogno di una normativa . 
+Credo che l ' emendamento presentato dal gruppo PPE non sia particolarmente utile , in quanto tende a limitare la portata della direttiva all ' estrazione di minerali metallici . 
+Le prime dighe di contenimento degli sterili che io abbia mai visto erano nel Derbyshire , nel nord dell ' Inghilterra , ed erano state costruite in seguito all ' estrazione di fluorite , che non è un metallo , come vi direbbe qualsiasi insegnante di chimica . 
+Tuttavia presentano esattamente gli stessi problemi delle dighe di contenimento degli sterili legate alle attività minerarie . 
+Raccomando di votare a favore delle raccomandazioni , domani , e spero che la Commissione ne garantisca l ' attuazione in tempi rapidi . 
+Il nostro gruppo dà il suo totale appoggio a questa relazione che giudica eccellente . 
+I trascorsi dell ' industria mineraria lasciano molto a desiderare , non solo nel territorio dell ' Unione ma anche in Europa orientale e nel resto del mondo . 
+Uno dei punti più importanti della relazione è l ' esigenza di una futura direttiva sui rifiuti di miniera che dovrebbe riguardare sia i siti attivi e dismessi che le discariche e prevedere disposizioni relative a programmi d ' azione per i rifiuti di miniera , nonché misure volte a promuovere condizioni più sostenibili per le attività estrattive , quali il disinquinamento dei siti , la riduzione dei rifiuti e lo smaltimento degli sterili a secco nel caso dei rifiuti derivati dall ' estrazione di metalli . 
+Le società minerarie devono prevedere piani di dismissione per le miniere nuove , per quelle esistenti e per i bacini di decantazione degli sterili . 
+E ' sufficiente considerare la situazione nel mio paese , in cui le società minerarie sono arrivate e hanno preso tutto quello che hanno voluto , lasciandosi alle spalle interi siti da bonificare . 
+Come il collega Bowe ha affermato , ci possono essere miniere di interesse storico , ma in questo caso si sta parlando di bacini di decantazione degli sterili che contengono sostanze molto pericolose . 
+Le comunità locali devono conviverci e , in alcune zone , anche l ' agricoltura ne ha risentito le conseguenze perché le società minerarie si lasciano alle spalle uno stato di degrado che ha un effetto deleterio non solo sul rifornimento idrico , ma anche sul territorio in generale . 
+Dobbiamo veramente tenere in considerazione tutti i settori della comunità . 
+L ' industria mineraria l ' ha passata liscia per troppo tempo . 
+Abbiamo davvero bisogno di pesanti restrizioni per il modo in cui operano le società minerarie , e una direttiva sui rifiuti si rivela estremamente importante . 
+Concludo dicendo che la relazione è inappuntabile e spero che possa ottenere la piena approvazione dell ' Assemblea . 
+Vorrei anche confermare che il nostro gruppo è restio a sostenere l ' emendamento proposto dal gruppo PPE per gli stessi motivi appena citati da altri oratori . 
+Signor Presidente , onorevoli deputati , questa sera intervengo su questo argomento in sostituzione della collega Wallström , poiché già oggi ha dovuto partire per i negoziati internazionali sul clima in Giappone e Australia . 
+Credo che la commissione competente sia pienamente d ' accordo sul fatto che il Commissario Wallström partecipi a questo high level group in rappresentanza della parte europea , perché la politica in materia di tutela del clima è una delle nostre richieste più urgenti . 
+Desidero ringraziare a nome della Commissione il Parlamento europeo e in particolare lei , onorevole relatore , ma anche le commissioni interessate per la collaborazione costruttiva e l ' eccellente relazione presentata . 
+La comunicazione della Commissione è stata elaborata prendendo le mosse dai gravi danni ambientali causati dalle fuoriuscite di cianuro in seguito ai cedimenti di dighe avvenuti nel 1998 in Spagna e nel 2000 in Romania , a Baia Mare . 
+La comunicazione riporta le tre azioni chiave previste dalla Commissione in seguito ai più recenti incidenti minerari : innanzitutto la modifica della direttiva Seveso II , quindi la presentazione della proposta di una nuova direttiva relativa alla gestione dei rifiuti di miniera e , in ultimo , la preparazione di un documento di riferimento sulle best available technologies ai sensi della direttiva IPPC , con una descrizione delle migliori tecnologie disponibili da adottare per ridurre l ' inquinamento quotidiano e per prevenire ovvero limitare gli incidenti minerari . 
+Nella relazione finale presentata dalla task force Baia Mare è stata ribadita la necessità di adottare queste misure . 
+La collega Wallström aveva nominato la task force allo scopo di raccogliere maggiori informazioni sull ' incidente di Baia Mare e di proporre di conseguenza alcune misure volte a prevenire o a ridurre in futuro simili rischi . 
+Nella vostra relazione si accoglie con favore la comunicazione e si appoggia l ' approccio generale della Commissione volto a modificare la legislazione e gli strumenti in materia ambientale per creare un quadro trasparente e coerente che garantisca una maggiore sicurezza delle attività minerarie . 
+Questo aspetto non riguarda solo le tre azioni chiave poc ' anzi menzionate , ma anche le normative che disciplinano in modo specifico l ' attività mineraria , ad esempio la preannunciata direttiva in materia di responsabilità ambientale . 
+Mi si consenta a questo punto di sottolineare che le tre azioni chiave citate sono caratterizzate da calendari diversi . 
+La proposta di una direttiva che modifichi la direttiva Seveso II è già stata oggetto di una consultazione pubblica e secondo il programma di lavoro della Commissione per il 2001 dovrebbe essere approvata nel corso dell ' anno . 
+Il campo di applicazione della direttiva non sarà limitato all ' industria mineraria , ma si estenderà anche allo stoccaggio sicuro dei fuochi d ' artificio , in seguito al tragico incidente avvenuto nel mese di maggio dello scorso anno a Enschede , nei Paesi Bassi . 
+In considerazione del presente emendamento e delle argomentazioni della onorevole Flemming mi permetto di aggiungere che è pertinente che i due incidenti nell ' ambito delle attività minerari citati nella comunicazione della Commissione si siano verificati in rapporto alle attività di estrazione dei metalli . 
+Perciò la Commissione giustifica i considerando intesi a limitare il campo di applicazione della direttiva a questo settore . 
+Tuttavia invito a riflettere sul fatto che estendere gradualmente il campo di applicazione della direttiva , vale a dire sempre solo quando gli incidenti sono già accaduti , non tiene conto del principio della precauzione . 
+Già Aristotele disse che è probabile che qualcosa di imponderabile accada . 
+Domani potrebbe verificarsi un incidente in un impianto industriale che non rientra nel campo di applicazione della direttiva Seveso II , allora apporteremo alcune altre correzioni restando per così dire in attesa di aggiungere il settore successivo . 
+Pertanto accoglierei con favore se il Parlamento appoggiasse la Commissione nello sforzo che compie per procedere in modo più proattivo che reattivo nell ' ambito delle proposte legislative . 
+Desidero fare un ' osservazione riguardo al calendario della seconda azione chiave . 
+I lavori relativi alla proposta di una nuova direttiva in merito alla gestione dei rifiuti di miniera procedono a ritmo sostenuto . 
+Lo studio incentrato sui mining hot spot sta per essere ultimato ed è appena stata avviata la consultazione delle categorie interessate . 
+La Commissione potrebbe accogliere questa proposta nel 2002 . 
+I lavori in merito al documento sulle migliori tecnologie disponibili sono iniziati alla fine di giugno con una seduta di apertura presso l ' Ufficio europeo di prevenzione e di riduzione integrata dell ' inquinamento . 
+Sulla base delle esperienze maturate fino ad oggi , l ' elaborazione di un documento particolareggiato di questo genere inteso a descrivere le migliori tecnologie disponibili richiede tuttavia in media due anni . 
+Infine , la relazione incoraggia la Commissione a intensificare il dialogo con l ' industria mineraria europea . 
+Questo dialogo è già una realtà e assumerà un ruolo centrale nell ' ambito dell ' attuazione della strategia comunitaria per la sicurezza delle attività minerarie . 
+Il sostegno da voi offerto alla Commissione dimostra che ci muoviamo nella giusta direzione . 
+La relazione ci stimola ad intensificare il lavoro , ad accelerare l ' attuazione della nostra strategia intesa alla riduzione di incidenti minerari nell ' Unione europea . 
+La ringrazio , signora Commissario . 
+La discussione è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+Gestione integrata delle zone costiere in Europa 
+L ' ordine del giorno reca la relazione ( A5 - 0219 / 2001 ) , presentata dalla onorevole McKenna a nome della commissione per l ' ambiente , la sanità pubblica e la politica dei consumatori , sulla proposta di raccomandazione del Parlamento europeo e del Consiglio relativa all ' attuazione della gestione integrata delle zone costiere in Europa 
+[ COM ( 2000 ) 54 . 
+C5 - 0474 / 200 . 
+2000 / 0227 ( COD ) ] . 
+Signor Presidente , i principi di gestione integrata delle zone costiere sono riconosciuti a livello mondiale come un meccanismo atto a consentire una gestione sostenibile delle zone costiere . 
+L ' Europa è attualmente molto indietro rispetto ad altri paesi sviluppati per quanto riguarda l ' applicazione di tali principi . 
+Per esempio , gli Stati Uniti , il Canada , l ' Australia e la Nuova Zelanda hanno introdotto un ' importante legislazione intesa a promuovere la gestione integrata delle zone costiere e marittime . 
+Il capitolo 17 dell ' Agenda 21 impegna i firmatari dei paesi costieri a condurre una gestione integrata e uno sviluppo sostenibile delle zone costiere . 
+Il programma dimostrativo dell ' Unione europea sulla gestione integrata delle zone costiere , finanziato da LIFE , ha dimostrato che l ' introduzione di buone prassi di gestione integrata delle zone costiere determina vantaggi sotto il profilo sia economico sia ambientale . 
+L ' Unione europea deve sfruttare tali vantaggi . 
+Le zone costiere richiedono una gestione speciale . 
+Sussiste un ' urgente necessità di integrare pianificazione e gestione e di promuovere un approccio comune dei sistemi marini e terrestri a livello locale , regionale e nazionale . 
+Dobbiamo operare verso il conseguimento di uno sviluppo sostenibile delle zone costiere mediante buone prassi di gestione integrata . 
+L ' Europa deve assumere un ruolo guida specifico al fine di assicurare una buona gestione delle coste , il che è possibile soltanto se il processo di gestione integrata delle zone costiere è sostenuto da una legislazione adeguata . 
+L ' Unione europea deve definire un quadro giuridico che permetta la messa in atto di misure ad altri livelli . 
+La raccomandazione in esame va considerata come la fase preliminare dello sviluppo di tale quadro . 
+Mi sorprendono alcune obiezioni sollevate riguardo all ' adozione di una legislazione vincolante , perché ciò è essenziale per garantire un adeguato finanziamento delle iniziative nel campo della gestione integrata delle zone costiere in tutta Europa . 
+Tali iniziative di norma si basano su un meccanismo di coordinamento centrale che richiede livelli relativamente bassi di finanziamenti fondamentali . 
+Tuttavia , le iniziative in materia di gestione integrata delle zone costiere già in atto annaspano a causa della mancanza di risorse finanziarie . 
+Per esempio , i progetti di gestione integrata delle zone costiere finanziati dall ' Unione europea , quali il progetto Atlantic Living Coastline nel Regno Unito ed altri programmi , sono stati abbandonati . 
+L ' iniziativa del Regno Unito e la strategia riguardante l ' estuario del Severn , cui partecipano 12 autorità locali , dispongono di finanziamenti garantiti soltanto per i prossimi sei mesi . 
+Gli Stati membri devono adottare misure vincolanti per assicurare una buona gestione delle zone costiere . 
+Ciò dovrà avvenire al più tardi entro tre anni dall ' adozione della raccomandazione in esame concernente la gestione integrata delle zone costiere . 
+Prima di introdurre tali misure , gli Stati membri devono effettuare , entro la fine del 2002, un ' attenta valutazione a livello nazionale per analizzare quali soggetti , leggi e istituzioni influenzino la pianificazione e la gestione delle zone costiere , al fine di garantire la convergenza tra enti pubblici ed iniziative locali . 
+Nel mio paese , la carta della zona costiera di Bantry Bay attualmente costituisce l ' unico piano concordato di gestione integrata delle zone costiere nell ' intero paese . 
+Persino in paesi come il Regno Unito , nel quale i programmi dell ' Unione hanno finanziato alcuni dei più importanti progetti di gestione e rigenerazione delle zone costiere , le autorità locali non sono in grado di accordare la priorità al finanziamento di azioni nel campo della gestione integrata delle zone costiere a causa dell ' assenza di una strategia nazionale , di vincoli giuridici , responsabilità o finanziamenti adeguati . 
+Per questo motivo , le autorità locali sono decisamente favorevoli ad una leadership dell ' Unione europea che garantisca un impegno a livello transeuropeo da parte dei governi nazionali a fornire finanziamenti e sostegno legislativo in questo campo . 
+Sono stata criticata per aver affermato di voler dare più potere all ' Unione in questo settore . 
+Il mio collega , l ' onorevole Davie. che non è presente staser. mi ha criticata in seno alla commissione . 
+Ho cominciato a chiedermi chi dei due fosse l ' euroscettico . 
+Per quanto riguarda la tutela dell ' ambiente , è estremamente importante attribuire all ' Unione europea una funzione di controllo . 
+Nel mio paese , il governo non ha preso sul serio le raccomandazioni e nemmeno le direttive e non le ha attuate secondo modalità che permettano di realizzarne l ' obiettivo originario . 
+In sostanza , una raccomandazione non è vincolante . 
+Pertanto si avrà una situazione in cui gli Stati membri non prenderanno sul serio la gestione delle coste . 
+Non possiamo affermare che è sufficiente gestire le nostre coste . 
+Le modalità di gestione si ripercuotono su altri settori , in particolare nel caso di zone costiere comuni . 
+E ' del tutto inammissibile che alcuni Stati membri si avvalgano di ottime strategie e piani di gestione integrata delle zone costiere , mentre altri paesi non le prevedono . 
+Ciò è assolutamente scorretto . 
+Quando si tratta di questioni ambientali , è necessaria una strategia internazionale . 
+Non ha senso cercare di affrontare il problema soltanto a livello nazionale . 
+Come tutti sanno , le questioni ambientali attraversano qualsiasi confine . 
+Non esistono confini nazionali . 
+Non voglio dire che in questo ambito intendiamo affidare il controllo totale all ' Europa , ma è necessaria una legislazione vincolante , altrimenti i governi si limiteranno ad ignorare la questione . 
+Le raccomandazioni sono misure cui si conformano soltanto se fa loro comodo . 
+Questo aspetto è molto importante in relazione alle zone costiere . 
+L ' Europa ha registrato un forte aumento della pressione sulle risorse costiere . 
+Si valuta che dal 1960 al 1990 lo sviluppo di infrastrutture su fasce costiere non deturpate sia proseguito al ritmo di un chilometro al giorno e che siano scomparsi 30 ettari di habitat naturali caratterizzati da dune . 
+Si è inoltre registrato un incremento della popolazione costiera e attualmente circa il 50 per cento della popolazione dell ' Unione europea risiede a non più di 50 chilometri dalle coste . 
+Pertanto , sussiste la necessità urgente e reale di affrontare la questione della gestione delle zone costiere . 
+Il progetto di raccomandazione ignora un aspetto molto importante , in quanto non menziona le minacce che incombono sulla biodiversità delle zone costiere . 
+Le zone costiere sono tra le aree più dinamiche della superficie terrestre , con un ' abbondanza di flora e fauna uniche che vanno protette . 
+Occorre affrontare il problema . 
+Un ' altra questione riguarda i cambiamenti climatici . 
+Non possiamo più ignorare i rischi di erosione costiera derivanti dai cambiamenti climatici . 
+Occorre tenerne conto . 
+In questa fase , chiunque riconosce che il cambiamento climatico esercitata un forte impatto sulle nostre coste . 
+Nell ' interesse di tutti i settori che dipendono dalle coste , dobbiamo adottare provvedimenti , e dobbiamo farlo quanto prima . 
+Possiamo constatare il rapido deterioramento delle nostre coste , che provoca il declino dei settori che dipendono dalle coste , quali il turismo , la pesca ed altre attività economiche . 
+E ' importante che questa raccomandazione sfoci in provvedimenti concreti , che si definisca un quadro giuridico . 
+Gli Stati membri che sono restii a procedere in tal senso non vogliono accettare il fatto che è necessario proteggere le nostre coste . 
+Vogliono sottrarsi alle proprie responsabilità . 
+E questo non dev ' essere permesso . 
+, relatore per parere della commissione per la pesca . ( DE ) Signor Presidente , una gestione integrata delle zone costiere è doverosa , ma purtroppo molti non sanno ancora di che cosa si tratti in realtà . 
+A prescindere dal fatto che riguardi i Cliffs of Moher irlandesi , l ' Algarve in Portogallo o il watt sulla costa tedesca , le coste in Europa rivestono un ' enorme importanza sotto il profilo economico , ecologico , sociale e culturale . 
+Le coste non sono zone ad elevata densità di abitanti , tuttavia oggi circa un terzo della popolazione dell ' Unione europea risiede nelle regioni costiere . 
+Per un ecosistema fragile quali sono le coste questo aspetto è sinonimo di pericoli . 
+Anche i problemi di carattere socioeconomico sono aumentati , poiché le regioni costiere sono molto distanti dai centri vitali ad alta densità di popolazione e sono trascurate dalla politica . 
+Mi limito a ricordare la mancanza di collegamenti infrastrutturali di queste regioni . 
+Dobbiamo pertanto fare qualcosa per le coste europee . 
+Dati i crescenti problemi socioeconomici si richiede con urgenza di elaborare una pianificazione e di adottare una gestione coinvolgendo tutti coloro che sono legati alle coste . 
+Dobbiamo disporre di una gestione integrata che offra uno sviluppo sostenibile e che conservi le coste come habitat . 
+In Germania c ' è un bel proverbio che recita : troppi cuochi brucian l ' arrosto . 
+Sento coloro che si esprimono in modo critico , che alzano il dito in segno di ammonimento e citano il proverbio . 
+A queste persone ribatto che il proverbio può riguardare l ' arrosto , ma non le nostre coste . 
+Le zone che presentano problemi sono molto differenti , i settori interessati molteplici , ma il nesso è innegabile . 
+I turisti , ad esempio , scelgono come meta la costa del mio paese per mangiare i granchi . 
+L ' abbassamento artificiale dei fiumi o l ' immissione di sostanza nocive minacciano l ' esistenza dei granchi . 
+Niente granchi , niente turisti , niente denaro . 
+E neanche posti di lavoro in alternativa , comunque non nel settore della pesca . 
+Ci troviamo di fronte a problemi con molte implicazioni , per i quali gli Stati membri non sono in grado di trovare una soluzione o possono offrire solo palliativi . 
+Ciò di cui necessitiamo è una cooperazione tra le forze legate alla costa , e che questo porti ad attriti è palese . 
+Tuttavia questa cooperazione va a beneficio del nostro ambiente vitale a lungo termine . 
+Se ognuno di noi guarda solo nel proprio piatto , in Europa non andiamo lontano e neanche progrediamo . 
+Signor Presidente , signora Commissario , sarei tentato di dire che la qualità delle nostre zone costiere fa parte del patrimonio europeo . 
+E ' già tardi questa sera per parlare della gestione integrata delle zone costiere in Europa , tuttavia ritengo che si tratti di una questione di particolare importanza che necessita effettivamente di un quadro giuridico . 
+Perché un quadro giuridico ? 
+Semplicemente perché talvolta lo sviluppo delle nostre zone costiere è avvenuto in maniera tale da provocare il loro degrado , nonostante , come ha fatto notare uno dei colleghi , l ' habitat delle zone costiere sia talora lontano dai grandi centri urbani . 
+Non è questo il caso in tutti i paesi . 
+Io provengo da un paese in cui grandi agglomerati si estendono lungo le coste e la conseguenza è che questi grandi agglomerati hanno distrutto la qualità delle zone costiere , provocando una serie di danni dovuti alle attività umane . 
+Il degrado ha ripercussioni molto gravi sulla biodiversità , sulla conservazione delle specie , che si tratti di flora o di fauna , ripercussioni gravi sulla qualità dei paesaggi e gravissime sulla qualità delle acque . 
+A questo proposito abbiamo la direttiva quadro sulle acque , quella sulle acque di balneazione , e sappiamo , in particolare in questo periodo dell ' anno , quando i turisti cominciano a invadere le nostre coste , quanto sia importante la qualità delle acque di balneazione . 
+Tutto ciò riveste un ' importanza notevole anche per la qualità delle risorse alieutiche . 
+Siamo consapevoli di come sia necessaria una reale volontà politica , a livello dell ' insieme dei paesi dell ' Unione europea nonché a quello dei paesi candidati all ' adesione , poiché fra i paesi che aderiranno prossimamente all ' Unione europea vi sono paesi costieri ed isole che devono affrontare gli stessi problemi : quelli dello sviluppo economico da conciliare con la tutela delle zone costiere . 
+Non esiste , in realtà , contraddizione fra sviluppo economico e tutela : occorre una reale volontà di sviluppare con moderazione le aree interessate , nell ' assoluto rispetto dell ' esigenza di tutelare i paesaggi , la biodiversità , eccetera . 
+E ' chiaro che a tal fine è necessario un quadro giuridico . 
+Su questo punto concordo con i colleghi . 
+Occorre però un quadro giuridico che rispetti le diversità dei nostri paesi , poiché le coste dei paesi scandinavi non presentano gli stessi problemi delle coste dei paesi dell ' Europa meridionale , che si tratti della Francia , della Spagna , dell ' Italia o della Grecia . 
+Dobbiamo effettivamente attribuire maggiori responsabilità alle autorità locali e sollecitare tutti gli Stati ad adottare un quadro giuridico di concerto con le autorità regionali e locali . 
+In Francia , l ' ente incaricato della tutela del litorale è stato istituito venticinque anni fa ed è dotato dei mezzi necessari ad acquisire le zone costiere da preservare e , successivamente , a far rispettare , nell ' ambito dei piani regolatori , le norme giuridiche . 
+Ecco cosa dobbiamo fare . 
+Ritengo che le nostre zone costiere rappresentino una ricchezza tanto ambientale quanto economica che dobbiamo tutti quanti assolutamente salvaguardare in uno spirito di politica di sviluppo sostenibile . 
+La questione della gestione integrata delle zone costiere riveste importanza cruciale per i cittadini scozzesi della mia circoscrizione elettorale . 
+Come evidenzia la Commissione nella sua proposta , non si tratta solo di un problema locale , ma di una questione di fondamentale importanza per tutti gli europei . 
+Come ha affermato la onorevole Langenhagen , un terzo dei cittadini europei risiede in prossimità se non lungo la costa stessa . 
+Lo studio ha rivelato un allarmante deterioramento delle risorse ambientali , socioeconomiche e culturali delle nostre zone costiere . 
+Esiste una concorrenza aggressiva tra gli utilizzatori di queste risorse . 
+I problemi ambientali comprendono la distruzione degli habitat , la contaminazione delle acque , l ' erosione costiera e il depauperamento delle risorse . 
+Si tratta di problemi gravissimi , i quali producono effetti a catena che vanno ben oltre le regioni costiere ed interessano anche le zone interne . 
+Alla radice di tali problemi vi sono la mancanza di conoscenze , l ' incapacità di coinvolgere i soggetti interessati e , di conseguenza , la mancanza di cooperazione tra gli enti amministrativi competenti . 
+In occasione di una recente videoconferenza presso la Scotland Hous. la residenza del rappresentante scozzese a Bruxelle. è stato interessante osservare che le diverse autorità locali delle Highlands e delle isole della Scozia stanno già operando in collaborazione con i soggetti locali interessati al fine di proteggere le zone costiere . 
+Ho tratto grande incoraggiamento dal fatto che vengano intraprese azioni e si attribuisca alle zone costiere l ' importanza che meritano . 
+Dopo tutto , è a livello locale che l ' intervento può essere davvero incisivo . 
+Per concludere , dobbiamo incoraggiare un ' azione vigorosa a livello locale , già in atto in Scozia , e promuovere lo scambio di migliori prassi in tutta l ' Unione europea per far sì che sia questa generazione sia quelle future possano godersi le zone costiere . 
+Signor Presidente , nella mia cultura le mogli dei pescatori rappresentano una figura fra le più forti e le più derelitte . 
+Credo che anche la discussione di questa sera , cui partecipano quasi solo donne , dimostri come noi che partecipiamo a questo dibattito siamo probabilmente discendenti di queste povere , forti donne delle regioni costiere . 
+Onorevoli colleghi , i movimenti politici che da tempo difendono i principi contenuti nel documento si sono fatti deridere in diversi contesti . 
+Sul piano nazionale , il movimento che io rappresento difende da tempo questi principi , e per questo è stato coperto di ridicolo . 
+E ' essenziale puntare a ottenere raccomandazioni vincolanti per gli Stati membri , così da poter uscire da una situazione in cui la mano destra non sa ciò che fa la sinistra e in cui la fauna ittica risulta probabilmente fra le più minacciate di estinzione . 
+Esiste una situazione iniqua , con una disuguale protezione del patrimonio delle zone costiere . 
+Ed è anche una situazione in cui si chiede più traffico marittimo , ma non si vuole salvaguardare l ' ambiente . 
+La relatrice ha chiesto perché il nostro gruppo si opponga a un quadro giuridico vincolante , ma le spiegazioni che ha fornito non ci hanno persuasi . 
+Occorre una base giuridica per queste attività , ma non una legislazione vincolante . 
+Dobbiamo infatti fare affidamento sulle attività locali e sulla pianificazione a livello locale . 
+Signor Presidente , una gestione non solo integrata , ma pianificata delle zone costiere , tanto in Europa come in tutti i continenti , è una delle esigenze principali per il futuro dell ' umanità . 
+E ' impossibile affrontarla nell ' ambito ristretto degli Stati nazionali esistenti . 
+In questo settore possono essere necessarie e legittime decisioni su scala continentale , se non planetaria . 
+Tuttavia , è proprio in questo settore che le Istituzioni europee sono maggiormente impotenti , mentre sono irresistibilmente attratte da normative pignole in molti altri settori , in cui l ' accentramento non è necessario . 
+Dimostrano in tal modo di non rappresentare un ' autorità in grado d ' imporsi agli Stati membri , ai loro particolarismi ed egoismi , ma di esserne solamente il risultato . 
+Le Istituzioni europee sono , come gli Stati nazionali , al servizio degli interessi privati dei grandi gruppi industriali e finanziari . 
+Sono incapaci di imporre loro gli orientamenti indispensabili alla collettività , con il rischio che a soffrirne siano le generazioni future . 
+Affrontare i grandi problemi ecologici è del tutto incompatibile con la proprietà privata dei grandi mezzi di produzione e con il loro impiego esclusivamente allo scopo di realizzare profitti . 
+Le vicende dell ' Erika e della Ievoli Sun illustrano fino a che punto gli interessi privati si contrappongano all ' interesse collettivo . 
+In queste condizioni , votare a favore di una strategia di gestione integrata delle zone costiere è pura ipocrisia . 
+Noi ci asteniamo . 
+Signor Presidente , tutti concordano sull ' esigenza di tutelare gli spazi naturali in generale e in particolare il litorale , visto che le coste si degradano a causa dello sviluppo demografico ed economico . 
+Resta da definire come attuare tale necessaria tutela . 
+Sarà rispettosa delle popolazioni locali e delle loro attività oppure metterà la natura sotto una campana di vetro , come previsto dalla rete Natura 2000 ? 
+Occorre , senz ' altro , adottare una normativa atta a gestire la situazione ed evitare così uno sviluppo anarchico . 
+Ci siamo riusciti in Francia , con la legge sul litorale , che ha portato buoni risultati , sebbene il nostro Ministro verde dell ' ambiente , la signora Voynet , abbia appena concesso una deroga con la legge sulla Corsica . 
+Tuttavia , i necessari provvedimenti di gestione del territorio devono essere discussi con i rappresentanti eletti e i cittadini interessati , poiché sono loro che quotidianamente vivono sul litorale ed è assolutamente necessario associarli a tale tutela , se si vuole che essa sia accettata e rispettata . 
+Non dimentichiamo che sono loro che , dopo il naufragio dell ' Erika , hanno organizzato e partecipato alla pulizia delle spiagge e delle coste . 
+A mio giudizio , è meglio convincere che costringere . 
+Ci si guadagna dal punto di vista dell ' adesione , e quindi dell ' efficacia , nonché dal punto di vista della democrazia in termini di prossimità . 
+Gli obblighi provenienti da Bruxelles sono sempre sospetti e spesso inadeguati , poiché elaborati lontano dal territorio e dalle mentalità locali . 
+La prossimità è invece indispensabile al fine di negoziare e far accettare provvedimenti dettati dal buon senso . 
+Occorre altresì rispettare le usanze tradizionali locali , poiché esprimono una realtà economica , sociale e culturale che è parte integrante del litorale e costituiscono spesso la migliore garanzia del rispetto dei nostri spazi naturali . 
+In concreto , occorre applicare i principi di sussidiarietà e di decentramento , sebbene sia indispensabile una certa coerenza . 
+La competenza in merito alla gestione delle zone costiere deve rimanere nazionale e raccogliere un ampio consenso locale . 
+Votiamo pertanto contro la presente relazione , che riteniamo troppo vincolante . 
+Signor Presidente , come ha già rilevato la onorevole Stihler , questa proposta riveste enorme importanza per la Scozia . 
+Per esempio , una delle zone gestite dagli enti locali conta 26 isole abitate e una costa lunga quanto quella della Francia . 
+In Scozia , nel suo insieme , sono stati adottati 462 piani costieri , di cui quasi tre quarti a livello locale . 
+Sebbene la gestione delle zone costiere debba rimanere prevalentemente locale , le strategie nazionali di sostegno e coordinamento degli interventi sono cruciali . 
+Siamo fortunati ad avere un forum costiero scozzese cui è affidata questa funzione . 
+Tuttavia , questo ottimo lavoro può essere compromesso . 
+Come ha spiegato di recente il forum del Firth of Clyde , non disponiamo di alcuna misura di sicurezza , politica o finanziaria , che fornisca una base solida per prevedere una gestione a più lungo termine . 
+Questo è il motivo per cui la proposta della Commissione è accolta con grande favore . 
+Mi congratulo con la onorevole McKenna per la sua relazione , la quale chiarisce e amplia il testo della proposta . 
+Signor Presidente , onorevoli parlamentari europei , poiché intervengo al posto della mia collega , Commissario Wallström , parlerò in inglese . 
+Le zone costiere sono molto importanti per l ' Europa , come hanno già rilevato altri oratori . 
+Le loro risorse ci forniscono cibo , energia ed abitazioni e creano opportunità . 
+Tuttavia , secondo i rapporti dell ' Agenzia europea dell ' ambiente , la situazione delle zone costiere e delle relative risorse continua a peggiorare . 
+Le condizioni delle zone costiere si possono migliorare soltanto compiendo intensi sforzi , cui partecipino tutti i livelli dei settori di governo interessati , sulla base dei principi di gestione integrata delle zone costiere . 
+Vorrei sottolineare che la gestione integrata delle zone costiere di per sé non è una procedura di pianificazione territoriale . 
+Si tratta piuttosto di una metodologia atta ad introdurre una strategia coerente di gestione e utilizzo delle risorse costiere , con la partecipazione informata di tutti i soggetti interessati . 
+Al fine di incoraggiare gli Stati membri ad assumersi la piena responsabilità di promuovere la gestione integrata delle zone costiere , la Commissione ha elaborato la proposta di raccomandazione in esame . 
+Essa invita gli Stati membri a definire strategie nazionali di gestione delle zone costiere basate su un ' analisi dei soggetti , delle leggi e delle istituzioni che influenzano la gestione e la pianificazione delle zone costiere . 
+Tale strategia mira a definire una metodologia coerente per le zone costiere di tutta Europa , tuttavia la raccomandazione affida intenzionalmente agli Stati membri il compito di elaborare le strategie nazionali , al fine di garantire che ciascuna di esse tenga conto delle condizioni istituzionali , materiali e sociali specifiche dei singoli Stati membri . 
+Nel contempo , la raccomandazione fornisce un elenco degli aspetti che gli Stati membri sono incoraggiati ad esaminare nell ' ambito delle rispettive strategie nazionali , quali la necessità di garantire la coerenza tra diversi piani , politiche e programmi di gestione delle coste e la necessità di un coordinamento tra i soggetti che utilizzano e gestiscono le coste , in particolare i responsabili delle acque e dei terreni che fanno parte delle zone costiere . 
+Consentitemi di esaminare le principali questioni sollevate con gli emendamenti proposti . 
+Vorrei innanzitutto rilevare che la Commissione può accogliere numerosi emendamenti . 
+Infatti , molti di essi rafforzano il testo chiarendo concetti ed introducendo ulteriori informazioni . 
+Ringraziamo il Parlamento per aver presentato questi emendamenti . 
+Tuttavia , ve ne sono alcuni che la Commissione non può accogliere . 
+Diversi emendamenti proposti , precisamente gli emendamenti nn . 11, 12, 16, 18, 29, 32, 43 e 49, fanno riferimento ad un futuro quadro giuridico comunitario . 
+Tali emendamenti non possono essere accolti dalla Commissione per l ' ovvio motivo che esprimono un giudizio prematuro sulla necessità di adottare o meno un approccio legislativo . 
+Inoltre , non è opportuno menzionare un quadro giuridico comunitario , tenuto conto della grande diversità tra le condizioni presenti negli Stati membri e della filosofia della Commissione in materia di gestione delle zone costiere . 
+La decisione della Commissione di proporre una raccomandazione si basa su un ' esauriente valutazione della necessità di un intervento a livello europeo attraverso il programma dimostrativo sulla gestione integrata delle zone costiere nonché su un ' ampia consultazione pubblica . 
+Nello stesso spirito , la Commissione non può accogliere gli emendamenti che introducono un linguaggio coercitivo . 
+" Shall " non è l ' espressione adeguata per uno strumento non vincolante , quale è una raccomandazione , e quindi l ' uso di questo termine negli emendamenti nn . 29, 32 e 34 non può essere ammesso dalla Commissione . 
+Analogamente , le parti degli emendamenti nn . 17, 20, 33 e 45 in cui si menziona la necessità di strumenti vincolanti all ' interno degli Stati membri ignorano il fatto che la gestione integrata delle zone costiere in alcuni Stati membri si può introdurre meglio con misure volontarie . 
+Queste parti degli emendamenti non possono quindi essere accolte . 
+Per il resto , gli emendamenti sono accolti in linea di principio o in parte . 
+La Commissione teme che gli emendamenti nn . 16 e 42 possano dare un ' impressione errata e limitata della portata della strategia di gestione integrata delle zone costiere . 
+In particolare , riguardo agli emendamenti nn . 25 e 47, sebbene la Commissione riconosca la necessità di coinvolgere tutte le parti interessate , questo testo non dovrebbe limitarsi al processo specifico di pianificazione , ma fare più ampio riferimento a tutti i soggetti interessati alla pianificazione e alla gestione delle zone costiere e delle relative risorse . 
+La Commissione rileva inoltre che non può accogliere due emendamenti , i quali contengono riferimenti inopportuni ad altre politiche comunitarie , che sono trattate meglio in un diverso contesto . 
+Il riferimento al programma INTERREG nell ' emendamento n . 16 non è opportuno , in quanto gli orientamenti relativi a INTERREG sono definiti in un altro documento . 
+Analogamente , il riferimento nell ' emendamento n . 35 alla politica comune della pesca e al limite di 12 miglia non può essere accolto , in quanto pregiudica l ' esito della discussione relativa alla revisione di tale politica . 
+Inoltre , gli emendamenti nn . 47 e 48 non possono essere accolti , almeno in parte , in quanto possono incoraggiare pratiche tradizionali insostenibili , comprese quelle riguardanti la caccia e la pesca . 
+Per quanto riguarda i restanti emendament. e questo elenco è più lungo di quello degli emendamenti respint. la Commissione può accogliere gli emendamenti nn . 1, da 3 a 10, 13, 15, 19, 21, 22, 23, 26, 27, 28, 30, 31, 37, 38, 39, 40, 41 e 46 ; può inoltre accogliere in linea di principio gli emendamenti nn . 
+2, 14, 24, 36 e 44 . Ciò significa che la Commissione accoglie due terzi degli emendamenti proposti . 
+Infine , il Parlamento ha contribuito a migliorare notevolmente il testo della proposta . 
+Vorrei quindi ringraziare la relatrice , onorevole McKenna , ed i relatori per parere delle altre commissioni per il loro impegno . 
+Sono certa che il testo definitivo rappresenterà un ' importante misura intesa ad incoraggiare l ' attuazione della gestione integrata delle zone costiere in Europa . 
+La ringrazio , signora Commissario . 
+La discussione è chiusa . 
+La votazione si svolgerà domani , alle 12.00 . 
+( La seduta termina alle 00.10 ) 
