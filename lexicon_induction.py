@@ -73,7 +73,7 @@ if __name__ == "__main__":
 
     # Analyser les arguments en ligne de commande
     args = parse_arguments()
-    
+
     clean_corpus_source_path = "clean_corpus_source.txt"
     clean_corpus_target_path = "clean_corpus_target.txt"
 
@@ -86,7 +86,6 @@ if __name__ == "__main__":
     # preprocessing target corpus
     preprocess_text(args.target_corpus, clean_corpus_target_path)
 
-    # Génération des embeddings pour le corpus source
     print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
     source_output_path = "source_embeddings"
     generate_word_embeddings(clean_corpus_source_path, source_output_path)
