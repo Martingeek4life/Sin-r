@@ -60,7 +60,7 @@ def generate_dictionary(src_embeddings, trg_embeddings):
 def write_dictionary_to_file(dictionary, file_path):
     with open(file_path, 'w', encoding='utf-8') as file:
         for src, trg in dictionary.items():
-            file.write(f"{src}\t{trg}\n")
+            file.write(src + "\t" + trg + "\n")
 
 def parse_arguments():
     parser = argparse.ArgumentParser(description="Lexicon Induction IT-EN")
