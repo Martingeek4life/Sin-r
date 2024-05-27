@@ -52,10 +52,8 @@ def generate_dictionary(src_embeddings, trg_embeddings):
     
     cosine_similarities = 1 - distance.cdist(src_matrix, trg_matrix, 'cosine')
     
-    # trouver l'index de la plus grande similarité
     best_matches = np.argmax(cosine_similarities, axis=1)
     
-    # Créer le dictionnaire
     dictionary = {src_word: trg_words[best_index] for src_word, best_index in zip(src_words, best_matches)}
     return dictionary
 
