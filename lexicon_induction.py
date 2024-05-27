@@ -1,9 +1,18 @@
 import subprocess
 import argparse
 import string
+import chardet
+
+def detect_encoding(file_path):
+    with open(file_path, 'rb') as file:
+        rawdata = file.read()
+        result = chardet.detect(rawdata)
+        return result['encoding']
+        print("Detected encoding:", result['encoding'])
 
 def preprocess_text(corpus_path, output_file):
-    with open(corpus_path, 'r', encoding='utf-8') as file:
+    encodage = detect_encoding(corpus_path)
+    with open(corpus_path, 'r', encoding=encodage) as file:
         text = file.read().lower()
         text = text.translate(str.maketrans('', '', string.punctuation))
     with open(output_file, 'w', encoding='utf-8') as clean_file:
@@ -33,10 +42,11 @@ def parse_arguments():
     parser.add_argument("--target_corpus", required=True, help="Chemin vers le corpus de texte cible")
     return parser.parse_args()
 
+
 if __name__ == "__main__":
+
     # Analyser les arguments en ligne de commande
     args = parse_arguments()
-
     # pretraitement des corpus de texte (normalisation, déponctuation)
     clean_corpus_source_path = "clean_corpus_source.txt"
     clean_corpus_target_path = "clean_corpus_target.txt"
