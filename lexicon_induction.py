@@ -116,22 +116,22 @@ if __name__ == "__main__":
 
     print("--------------------- Preprocessing du corpus de texte source -------------------------\n")
     # preprocessing source corpus
-    # preprocess_text(args.source_corpus, clean_corpus_source_path)
+    preprocess_text(args.source_corpus, clean_corpus_source_path)
 
     print("--------------------- Preprocessing du corpus de texte Cible -------------------------\n")
 
     # preprocessing target corpus
-    # preprocess_text(args.target_corpus, clean_corpus_target_path)
+    preprocess_text(args.target_corpus, clean_corpus_target_path)
 
     print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
     source_output_path = "source_embeddings"
-    # generate_word_embeddings(clean_corpus_source_path, source_output_path)
-    # words_it = get_W2V_words_from_corpus(clean_corpus_source_path)
-    # words_en = get_W2V_words_from_corpus(clean_corpus_target_path)
-    # generate_pretrained_w2v_it_en(words_it, words_en)
+    generate_word_embeddings(clean_corpus_source_path, source_output_path)
+    words_it = get_W2V_words_from_corpus(clean_corpus_source_path)
+    words_en = get_W2V_words_from_corpus(clean_corpus_target_path)
+    generate_pretrained_w2v_it_en(words_it, words_en)
     print("--------------------- Génération des embeddings monolingue pour le corpus target -------------------------\n")
     target_output_path = "target_embeddings"
-    # generate_word_embeddings(clean_corpus_target_path, target_output_path)
+    generate_word_embeddings(clean_corpus_target_path, target_output_path)
 
     # generation des embeddings multilingue avec vec2map
     source_cross_path = "source_crosslingual.vec"
