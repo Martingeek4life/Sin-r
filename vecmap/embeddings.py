@@ -17,23 +17,6 @@ from cupy_utils import *
 
 import numpy as np
 
-
-def read(file, threshold=0, vocabulary=None, dtype='float'):
-    header = file.readline().split(' ')
-    count = int(header[0]) if threshold <= 0 else min(threshold, int(header[0]))
-    dim = int(header[1])
-    words = []
-    matrix = np.empty((count, dim), dtype=dtype) if vocabulary is None else []
-    for i in range(count):
-        word, vec = file.readline().split(' ', 1)
-        if vocabulary is None:
-            words.append(word)
-            matrix[i] = np.fromstring(vec, sep=' ', dtype=dtype)
-        elif word in vocabulary:
-            words.append(word)
-            matrix.append(np.fromstring(vec, sep=' ', dtype=dtype))
-    return (words, matrix) if vocabulary is None else (words, np.array(matrix, dtype=dtype))
-
 def read(file, threshold=0, vocabulary=None, dtype='float'):
     header = file.readline().split(' ')
     count = int(header[0]) if threshold <= 0 else min(threshold, int(header[0]))
