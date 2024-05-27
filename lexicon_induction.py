@@ -2,6 +2,8 @@ import subprocess
 import argparse
 import string
 import chardet
+import numpy as np
+from scipy.spatial import distance
 
 def detect_encoding(file_path):
     with open(file_path, 'rb') as file:
@@ -29,12 +31,38 @@ def generate_crossLingual_map_embeddings(src_emb, trg_emb, src_mapped_emb, trg_m
     ]
     subprocess.run(command)
 
-def generate_lexicon_induction(source_cross_path, target_cross_path):
-    command = [
-        'python3', './vecmap/eval_translation.py',
-        source_cross_path, target_cross_path, '-d', 'IT-EN.DICT'
-    ]
-    subprocess.run(command)
+
+def load_embeddings(file_path):
+    embeddings = {}
+    with open(file_path, 'r', encoding='utf-8') as file:
+        for line in file:
+            parts = line.strip().split()
+            word = parts[0]
+            vec = np.array(parts[1:], dtype=float)
+            embeddings[word] = vec
+    return embeddings
+
+def generate_dictionary(src_embeddings, trg_embeddings):
+    #convertir les embedding en matrice de vecteurs de mots
+    src_words, src_vecs = zip(*src_embeddings.items())
+    trg_words, trg_vecs = zip(*trg_embeddings.items())
+    src_matrix = np.array(src_vecs)
+    trg_matrix = np.array(trg_vecs)
+    
+    # calculer la similarité cosinus
+    cosine_similarities = 1 - distance.cdist(src_matrix, trg_matrix, 'cosine')
+    
+    # trouver l'index de la plus grande similarité
+    best_matches = np.argmax(cosine_similarities, axis=1)
+    
+    # Créer le dictionnaire
+    dictionary = {src_word: trg_words[best_index] for src_word, best_index in zip(src_words, best_matches)}
+    return dictionary
+
+def write_dictionary_to_file(dictionary, file_path):
+    with open(file_path, 'w', encoding='utf-8') as file:
+        for src, trg in dictionary.items():
+            file.write(f"{src}\t{trg}\n")
 
 def parse_arguments():
     parser = argparse.ArgumentParser(description="Lexicon Induction IT-EN")
@@ -77,4 +105,5 @@ if __name__ == "__main__":
     generate_crossLingual_map_embeddings(source_output_path+ext , target_output_path+ext, source_cross_path, target_cross_path)
 
     print("--------------------- Induction de lexique  -------------------------\n")
-    generate_lexicon_induction(source_cross_path, target_cross_path)
+    Dictionnary = generate_dictionary(source_cross_path, target_cross_path)
+    write_dictionary_to_file(Dictionnary, "Dico_IT-EN.txt")
