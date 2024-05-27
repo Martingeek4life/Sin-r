@@ -64,9 +64,9 @@ if __name__ == "__main__":
     print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
     source_output_path = "source_embeddings"
     generate_word_embeddings(clean_corpus_source_path, source_output_path)
-    print("--------------------- Génération des embeddings monolingue pour le target source -------------------------\n")
+    print("--------------------- Génération des embeddings monolingue pour le corpus target -------------------------\n")
     target_output_path = "target_embeddings"
-    generate_word_embeddings(clean_corpus_target_path, source_output_path)
+    generate_word_embeddings(clean_corpus_target_path, target_output_path)
 
     # generation des embeddings multilingue avec vec2map
     source_cross_path = "source_crosslingual.vec"
