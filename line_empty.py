@@ -13,7 +13,7 @@ def validate_and_clean_file(input_file_path):
             for line in file_in:
                 # Tenter de splitter la ligne sur le premier espace pour obtenir un mot et un vecteur
                 parts = line.strip().split(' ', 1)
-                
+                print(parts)
                 # Vérifier si la ligne est correctement formatée avec au moins un mot et un vecteur
                 if len(parts) < 2 or not parts[1]:
                     print(f"Format incorrect trouvé à la ligne {line_number}: '{line.strip()}'")
