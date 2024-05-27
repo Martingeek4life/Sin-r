@@ -4,7 +4,12 @@ import string
 import chardet
 import numpy as np
 from scipy.spatial import distance
+import gensim.downloader as api
+from gensim.models import KeyedVectors
+from huggingface_hub import hf_hub_download
+model_pretrained_it = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_itwiki_20180420_300d", filename="itwiki_20180420_300d.txt"))
 
+model_pretrained_en = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_enwiki_20180420_300d", filename="enwiki_20180420_300d.txt"))
 def detect_encoding(file_path):
     with open(file_path, 'rb') as file:
         rawdata = file.read()
@@ -19,6 +24,37 @@ def preprocess_text(corpus_path, output_file):
         text = text.translate(str.maketrans('', '', string.punctuation))
     with open(output_file, 'w', encoding='utf-8') as clean_file:
         clean_file.write(text)
+
+def get_W2V_words_from_corpus(file_path_corpus):
+    words = []
+    with open(file_path_corpus, 'r', encoding='utf-8') as file:
+        for line in file:
+            # Diviser chaque ligne en mots en utilisant un espace comme séparateur
+            line_words = line.strip().split()
+            # Ajouter chaque mot à la liste des mots
+            words.extend(line_words)
+        print("words fr: ", words)
+    return words
+
+
+def generate_pretrained_w2v_it_en(words_en, words_it):
+    with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
+        # load pre-trained word embeddings model:
+        for word_en in words_en:
+            try:
+                embedding = model_pretrained_en[word_en]
+                f_out.write(f"{word_en} {' '.join(map(str, embedding))}\n")
+            except KeyError:
+                # Si le mot n'existe pas dans le modèle, passez simplement à l'itération suivante
+                continue
+    with open("source_embeddings.vec", "w", encoding="utf-8") as f_out:
+        for word_it in words_it:
+            try:
+                embedding = model_pretrained_it[word_it]
+                f_out.write(f"{word_it} {' '.join(map(str, embedding))}\n")
+            except KeyError:
+                continue
+
 
 def generate_word_embeddings(corpus_path, output_path):
     command = ['./fastText/fasttext', 'skipgram', '-input', corpus_path, '-output', output_path, '-minCount', '1', '-wordNgrams', '1', '-minn', '0', '-maxn', '0', '-dim', '200']
@@ -88,10 +124,13 @@ if __name__ == "__main__":
 
     print("--------------------- Génération des embeddings monolingue pour le corpus source -------------------------\n")
     source_output_path = "source_embeddings"
-    generate_word_embeddings(clean_corpus_source_path, source_output_path)
+    # generate_word_embeddings(clean_corpus_source_path, source_output_path)
+    words_it = get_W2V_words_from_corpus(clean_corpus_source_path)
+    words_en = get_W2V_words_from_corpus(clean_corpus_target_path)
+    generate_pretrained_w2v_it_en(words_it, words_en)
     print("--------------------- Génération des embeddings monolingue pour le corpus target -------------------------\n")
     target_output_path = "target_embeddings"
-    generate_word_embeddings(clean_corpus_target_path, target_output_path)
+    # generate_word_embeddings(clean_corpus_target_path, target_output_path)
 
     # generation des embeddings multilingue avec vec2map
     source_cross_path = "source_crosslingual.vec"
