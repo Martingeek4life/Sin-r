@@ -21,7 +21,7 @@ def preprocess_text(corpus_path, output_file):
         clean_file.write(text)
 
 def generate_word_embeddings(corpus_path, output_path):
-    command = ['./fastText/fasttext', 'skipgram', '-input', corpus_path, '-output', output_path, '-minCount', '1', '-wordNgrams', '1', '-minn', '0', '-maxn', '0', '-dim', '300']
+    command = ['./fastText/fasttext', 'skipgram', '-input', corpus_path, '-output', output_path, '-minCount', '1', '-wordNgrams', '1', '-minn', '0', '-maxn', '0', '-dim', '200']
     subprocess.run(command)
 
 def generate_crossLingual_map_embeddings(src_emb, trg_emb, src_mapped_emb, trg_mapped_emb):
