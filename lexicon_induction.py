@@ -39,6 +39,7 @@ def get_W2V_words_from_corpus(file_path_corpus):
 
 def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
+        f_out.write(f"{len(words_en)} {' '.join(map(str, "300"))}\n")
         # load pre-trained word embeddings model:
         for word_en in words_en:
             try:
@@ -48,6 +49,7 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
                 # Si le mot n'existe pas dans le modèle, passez simplement à l'itération suivante
                 continue
     with open("source_embeddings.vec", "w", encoding="utf-8") as f_out:
+        f_out.write(f"{len(words_it)} {' '.join(map(str, "300"))}\n")
         for word_it in words_it:
             try:
                 embedding = model_pretrained_it[word_it]
