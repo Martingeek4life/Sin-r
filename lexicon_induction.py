@@ -50,7 +50,6 @@ def generate_dictionary(src_embeddings, trg_embeddings):
     src_matrix = np.array(src_vecs)
     trg_matrix = np.array(trg_vecs)
     
-    # calculer la similarité cosinus
     cosine_similarities = 1 - distance.cdist(src_matrix, trg_matrix, 'cosine')
     
     # trouver l'index de la plus grande similarité
