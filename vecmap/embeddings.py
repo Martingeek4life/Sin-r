@@ -34,6 +34,27 @@ def read(file, threshold=0, vocabulary=None, dtype='float'):
             matrix.append(np.fromstring(vec, sep=' ', dtype=dtype))
     return (words, matrix) if vocabulary is None else (words, np.array(matrix, dtype=dtype))
 
+def read(file, threshold=0, vocabulary=None, dtype='float'):
+    header = file.readline().split(' ')
+    count = int(header[0]) if threshold <= 0 else min(threshold, int(header[0]))
+    dim = int(header[1])
+    words = []
+    matrix = np.empty((count, dim), dtype=dtype) if vocabulary is None else []
+    for i in range(count):
+        line = file.readline().strip()
+        if not line:
+            continue  # Ignore les lignes vides
+        parts = line.split(' ', 1)
+        if len(parts) < 2:
+            continue  # Ignore les lignes qui ne contiennent pas deux éléments
+        word, vec = parts
+        if vocabulary is None or word in vocabulary:
+            words.append(word)
+            matrix.append(np.fromstring(vec, sep=' ', dtype=dtype))
+    if vocabulary is None:
+        matrix = np.array(matrix, dtype=dtype).reshape(count, dim)
+    return words, matrix
+
 
 def write(words, matrix, file):
     m = asnumpy(matrix)
