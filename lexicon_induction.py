@@ -73,7 +73,7 @@ if __name__ == "__main__":
 
     # Analyser les arguments en ligne de commande
     args = parse_arguments()
-    # pretraitement des corpus de texte (normalisation, déponctuation)
+    
     clean_corpus_source_path = "clean_corpus_source.txt"
     clean_corpus_target_path = "clean_corpus_target.txt"
 
