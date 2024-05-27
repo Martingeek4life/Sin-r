@@ -1,8 +1,8 @@
 import sys
 
-def remove_empty_lines(input_file_path):
+def validate_and_clean_file(input_file_path):
     # Déterminer le chemin du fichier de sortie
-    output_file_path = input_file_path + "_no_empty_lines"
+    output_file_path = input_file_path + "_validated"
 
     try:
         # Ouvrir le fichier d'entrée en mode lecture et le fichier de sortie en mode écriture
@@ -11,14 +11,17 @@ def remove_empty_lines(input_file_path):
             # Lire chaque ligne du fichier d'entrée
             line_number = 1
             for line in file_in:
-                # Vérifier si la ligne est vide (en ignorant les espaces)
-                if line.strip() == '':
-                    print(f"Ligne vide trouvée à la ligne {line_number}")
+                # Tenter de splitter la ligne sur le premier espace pour obtenir un mot et un vecteur
+                parts = line.strip().split(' ', 1)
+                
+                # Vérifier si la ligne est correctement formatée avec au moins un mot et un vecteur
+                if len(parts) < 2 or not parts[1]:
+                    print(f"Format incorrect trouvé à la ligne {line_number}: '{line.strip()}'")
                 else:
-                    # Écrire la ligne dans le fichier de sortie si elle n'est pas vide
+                    # Écrire la ligne dans le fichier de sortie si elle est correctement formatée
                     file_out.write(line)
                 line_number += 1
-        print(f"Les lignes ont été traitées. Les lignes non vides ont été écrites dans '{output_file_path}'")
+        print(f"Les lignes ont été traitées. Les lignes correctement formatées ont été écrites dans '{output_file_path}'")
     except FileNotFoundError:
         print("Erreur : Le fichier spécifié n'a pas été trouvé.")
     except Exception as e:
@@ -28,4 +31,4 @@ if __name__ == "__main__":
     if len(sys.argv) != 2:
         print("Usage: python script.py <path_to_file>")
     else:
-        remove_empty_lines(sys.argv[1])
+        validate_and_clean_file(sys.argv[1])
