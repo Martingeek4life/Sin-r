@@ -46,6 +46,10 @@ def get_W2V_words_from_corpus(file_path):
         
         # La taille de l'ensemble est le nombre de mots uniques dans le fichier
         return unique_words
+    except FileNotFoundError:
+        print("Erreur : Le fichier spécifié n'a pas été trouvé.")
+    except Exception as e:
+        print(f"Une erreur est survenue lors de la lecture du fichier: {e}")
 
 def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
