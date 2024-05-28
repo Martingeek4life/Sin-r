@@ -50,9 +50,30 @@ def get_W2V_words_from_corpus(file_path):
         print("Erreur : Le fichier spécifié n'a pas été trouvé.")
     except Exception as e:
         print(f"Une erreur est survenue lors de la lecture du fichier: {e}")
-
+        
+def count_non_empty_lines(file_path):
+    try:
+        # Initialiser un compteur pour les lignes non vides
+        non_empty_line_count = 0
+        
+        # Ouvrir le fichier en mode lecture
+        with open(file_path, 'r', encoding='utf-8') as file:
+            # Lire le fichier ligne par ligne
+            for line in file:
+                # Vérifier si la ligne n'est pas vide (ignorer les espaces blancs)
+                if line.strip():
+                    non_empty_line_count += 1
+        
+        # Afficher le nombre de lignes non vides
+        return non_empty_line_count
+    
+    except FileNotFoundError:
+        print("Erreur : Le fichier spécifié n'a pas été trouvé.")
+    except Exception as e:
+        print(f"Une erreur est survenue lors de la lecture du fichier: {e}")
+        
 def generate_pretrained_w2v_it_en(words_en, words_it):
-    with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
+    with open("target_embeddings1.vec", "w", encoding="utf-8") as f_out:   
         f_out.write(f"{len(words_en)} 300\n")
         for word_en in words_en:
             try:
@@ -61,7 +82,14 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
             except KeyError:
                 # Si le mot n'existe pas dans le modèle, passez simplement à l'itération suivante
                 continue
-    with open("source_embeddings.vec", "w", encoding="utf-8") as f_out:
+    count_words_en = count_non_empty_lines(target_embeddings1.vec)
+    with open("target_embeddings1.vec", "r", encoding="utf-8") as f_in:
+        with open("target_embeddings.vec", "w", encoding="utf-8") as f_in_out:
+            f_in_out.write(f"{count_words_en - 1} 300\n")
+            for line in f_in:
+                f_in_out.write(f"{line}\n")
+        
+    with open("source_embeddings1.vec", "w", encoding="utf-8") as f_out:
         f_out.write(f"{len(words_it)} 300\n")
         for word_it in words_it:
             try:
@@ -69,8 +97,13 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
                 f_out.write(f"{word_it} {' '.join(map(str, embedding))}\n")
             except KeyError:
                 continue
-
-
+    count_words_it = count_non_empty_lines(source_embeddings1.vec)
+    with open("source_embeddings1.vec", "r", encoding="utf-8") as f_in:
+        with open("source_embeddings.vec", "w", encoding="utf-8") as f_in_out:
+            f_in_out.write(f"{count_words_it - 1} 300\n")
+            for line in f_in:
+                f_in_out.write(f"{line}\n")
+                
 def generate_word_embeddings(corpus_path, output_path):
     command = ['./fastText/fasttext', 'skipgram', '-input', corpus_path, '-output', output_path, '-minCount', '1', '-wordNgrams', '1', '-minn', '0', '-maxn', '0', '-dim', '200']
     subprocess.run(command)
