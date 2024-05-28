@@ -24,18 +24,28 @@ def preprocess_text(corpus_path, output_file):
         text = text.translate(str.maketrans('', '', string.punctuation))
     with open(output_file, 'w', encoding='utf-8') as clean_file:
         clean_file.write(text)
-
-def get_W2V_words_from_corpus(file_path_corpus):
-    words = []
-    with open(file_path_corpus, 'r', encoding='utf-8') as file:
-        for line in file:
-            # Diviser chaque ligne en mots en utilisant un espace comme séparateur
-            line_words = line.strip().split()
-            # Ajouter chaque mot à la liste des mots
-            words.extend(line_words)
-        print("words fr: ", words)
-    return words
-
+        
+def get_W2V_words_from_corpus(file_path):
+    try:
+        # Créer un ensemble pour stocker les mots uniques
+        unique_words = set()
+        
+        # Ouvrir le fichier en mode lecture
+        with open(file_path, 'r', encoding='utf-8') as file:
+            # Lire le fichier ligne par ligne
+            for line in file:
+                # Normaliser la ligne pour éviter les variations dues à la casse
+                line = line.lower()
+                # Remplacer les signes de ponctuation communs par des espaces
+                for char in ",.!?;:()[]{}\"'":
+                    line = line.replace(char, " ")
+                # Diviser la ligne en mots sur les espaces
+                words = line.split()
+                # Ajouter les mots à l'ensemble des mots uniques
+                unique_words.update(words)
+        
+        # La taille de l'ensemble est le nombre de mots uniques dans le fichier
+        return unique_words
 
 def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("target_embeddings.vec", "w", encoding="utf-8") as f_out:   
