@@ -19,14 +19,14 @@ import numpy as np
 
 def read(file, threshold=0, vocabulary=None, dtype='float'):
     header = file.readline().split(' ')
-    print("header: ", header)
     count = int(header[0]) if threshold <= 0 else min(threshold, int(header[0]))
-    print("count: ", count)
     dim = int(header[1])
-    print("dim: ", dim)
     words = []
     matrix = np.empty((count, dim), dtype=dtype) if vocabulary is None else []
     for i in range(count):
+        word, vec = file.readline().split(' ', 1)
+        print("word: ", word)
+        print("vec: ", vec)
         if vocabulary is None:
             words.append(word)
             matrix[i] = np.fromstring(vec, sep=' ', dtype=dtype)
