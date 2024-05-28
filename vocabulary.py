@@ -1,27 +1,20 @@
 import sys
 
-def calculate_vocabulary_size(file_path):
+def count_non_empty_lines(file_path):
     try:
-        # Créer un ensemble pour stocker les mots uniques
-        unique_words = set()
+        # Initialiser un compteur pour les lignes non vides
+        non_empty_line_count = 0
         
         # Ouvrir le fichier en mode lecture
         with open(file_path, 'r', encoding='utf-8') as file:
             # Lire le fichier ligne par ligne
             for line in file:
-                # Normaliser la ligne pour éviter les variations dues à la casse
-                line = line.lower()
-                # Remplacer les signes de ponctuation communs par des espaces
-                for char in ",.!?;:()[]{}\"'":
-                    line = line.replace(char, " ")
-                # Diviser la ligne en mots sur les espaces
-                words = line.split()
-                # Ajouter les mots à l'ensemble des mots uniques
-                unique_words.update(words)
+                # Vérifier si la ligne n'est pas vide (ignorer les espaces blancs)
+                if line.strip():
+                    non_empty_line_count += 1
         
-        # La taille de l'ensemble est le nombre de mots uniques dans le fichier
-        vocabulary_size = len(unique_words)
-        print(f"La taille du vocabulaire est de {vocabulary_size} mots uniques.")
+        # Afficher le nombre de lignes non vides
+        print(f"Nombre de lignes non vides : {non_empty_line_count}")
     
     except FileNotFoundError:
         print("Erreur : Le fichier spécifié n'a pas été trouvé.")
@@ -32,4 +25,4 @@ if __name__ == "__main__":
     if len(sys.argv) != 2:
         print("Usage: python script.py <path_to_file>")
     else:
-        calculate_vocabulary_size(sys.argv[1])
+        count_non_empty_lines(sys.argv[1])
