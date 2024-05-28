@@ -82,7 +82,7 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
             except KeyError:
                 # Si le mot n'existe pas dans le modèle, passez simplement à l'itération suivante
                 continue
-    count_words_en = count_non_empty_lines(target_embeddings1.vec)
+    count_words_en = count_non_empty_lines("./target_embeddings1.vec")
     with open("target_embeddings1.vec", "r", encoding="utf-8") as f_in:
         with open("target_embeddings.vec", "w", encoding="utf-8") as f_in_out:
             f_in_out.write(f"{count_words_en - 1} 300\n")
@@ -97,7 +97,7 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
                 f_out.write(f"{word_it} {' '.join(map(str, embedding))}\n")
             except KeyError:
                 continue
-    count_words_it = count_non_empty_lines(source_embeddings1.vec)
+    count_words_it = count_non_empty_lines("./source_embeddings1.vec")
     with open("source_embeddings1.vec", "r", encoding="utf-8") as f_in:
         with open("source_embeddings.vec", "w", encoding="utf-8") as f_in_out:
             f_in_out.write(f"{count_words_it - 1} 300\n")
