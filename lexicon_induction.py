@@ -6,6 +6,7 @@ import numpy as np
 from scipy.spatial import distance
 import gensim.downloader as api
 from gensim.models import KeyedVectors
+import shutil
 from huggingface_hub import hf_hub_download
 model_pretrained_it = KeyedVectors.load_word2vec_format(hf_hub_download(repo_id="Word2vec/wikipedia2vec_itwiki_20180420_300d", filename="itwiki_20180420_300d.txt"))
 
@@ -86,8 +87,8 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("target_embeddings1.vec", "r", encoding="utf-8") as f_in:
         with open("target_embeddings.vec", "w", encoding="utf-8") as f_in_out:
             f_in_out.write(f"{count_words_en - 1} 300\n")
-            for line in f_in:
-                f_in_out.write(f"{line}\n")
+            f_in.readline()  # Lire et ignorer la première ligne
+            shutil.copyfileobj(f_in, f_in_out)  # Copier le reste du fichier
         
     with open("source_embeddings1.vec", "w", encoding="utf-8") as f_out:
         f_out.write(f"{len(words_it)} 300\n")
@@ -101,8 +102,9 @@ def generate_pretrained_w2v_it_en(words_en, words_it):
     with open("source_embeddings1.vec", "r", encoding="utf-8") as f_in:
         with open("source_embeddings.vec", "w", encoding="utf-8") as f_in_out:
             f_in_out.write(f"{count_words_it - 1} 300\n")
-            for line in f_in:
-                f_in_out.write(f"{line}\n")
+            f_in_out.write(f"{count_words_it - 1} 300\n")
+            f_in.readline()  # Lire et ignorer la première ligne
+            shutil.copyfileobj(f_in, f_in_out)  # Copier le reste du fichier
                 
 def generate_word_embeddings(corpus_path, output_path):
     command = ['./fastText/fasttext', 'skipgram', '-input', corpus_path, '-output', output_path, '-minCount', '1', '-wordNgrams', '1', '-minn', '0', '-maxn', '0', '-dim', '200']
